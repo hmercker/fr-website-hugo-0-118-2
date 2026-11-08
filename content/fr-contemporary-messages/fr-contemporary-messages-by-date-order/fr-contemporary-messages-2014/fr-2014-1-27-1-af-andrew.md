@@ -1,7 +1,7 @@
 ---
 title: "Le grand objectif est le salut de l'humanité"
 menu_title: ""
-description: "Le grand objectif est le salut de l'humanité"
+description: "André, reçu par Al Fike : « Je vois que vous vous avancez tous dans le monde ; beaucoup souhaitent s'aligner sur vous, tandis que d'autres cherchent à … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

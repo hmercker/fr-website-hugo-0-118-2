@@ -1,7 +1,7 @@
 ---
 title: "Plus sur la communication avec les esprits"
 menu_title: ""
-description: "Plus sur la communication avec les esprits"
+description: "Judas, reçu par Jimbeau Walsh : « Je souhaite parler de la communication avec les esprits, mais peut-être d’un point de vue différent de celui que vous … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

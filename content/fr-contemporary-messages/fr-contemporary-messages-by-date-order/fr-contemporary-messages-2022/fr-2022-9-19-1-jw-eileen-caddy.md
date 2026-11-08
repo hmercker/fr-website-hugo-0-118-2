@@ -1,7 +1,7 @@
 ---
 title: "Comment être dans le monde et non pas du monde ?"
 menu_title: ""
-description: "Comment être dans le monde et non pas du monde ?"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Comment peut-on vivre dans ce monde sans en faire partie ? Que faut-il faire pour être engagé dans la condition … »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

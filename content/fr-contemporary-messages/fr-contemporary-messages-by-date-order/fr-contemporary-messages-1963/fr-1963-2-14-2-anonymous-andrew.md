@@ -1,7 +1,7 @@
 ---
 title: "Tendre la main au Royaume des Cieux"
 menu_title: ""
-description: "Tendre la main au Royaume des Cieux"
+description: "André : « Je veux vous saluer mes amis, André. Mais je sais quelle grande joie vous ressentirez et connaîtrez lorsque vous nous entendrez vous parler … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

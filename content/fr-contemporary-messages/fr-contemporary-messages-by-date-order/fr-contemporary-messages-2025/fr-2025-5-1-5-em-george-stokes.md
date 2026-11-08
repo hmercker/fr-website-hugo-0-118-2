@@ -1,7 +1,7 @@
 ---
 title: "Satisfait de nos progrès"
 menu_title: ""
-description: "Satisfait de nos progrès"
+description: "George Stokes, reçu par Elizabeth Mack : « Par « votre » développement, j’entends chacun d’entre vous, visible et invisible. L’Amour du Père se déverse … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon 13 : L’équilibre et la loi de l’harmonie"
 menu_title: ""
-description: "Leçon 13 : L’équilibre et la loi de l’harmonie"
+description: "Jésus, reçu par Al Fike : « Avant de commencer mon message, je souhaite remercier chacun d’entre vous (les participants du Cercle des douze) pour vos … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marcher le chemin de l’Amour Divin"
 menu_title: ""
-description: "Marcher le chemin de l’Amour Divin"
+description: "Augustin, reçu par Helge Mercker : « Je vous aide tous sur vos chemins vers l’éveil de l’âme, dans vos progressions de l’âme, en enseignant et en … »"
 date: 2022-06-01 06:00:01+00:1080
 draft: False
 hidden: True

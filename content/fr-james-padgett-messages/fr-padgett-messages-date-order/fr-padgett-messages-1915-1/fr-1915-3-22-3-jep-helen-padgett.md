@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett confirme ce que M. Garfield a écrit"
 menu_title: ""
-description: "Hélène Padgett confirme ce que M. Garfield a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as reçu une sacrée lettre de James Garfield. C’est certainement un esprit intellectuellement merveilleux … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

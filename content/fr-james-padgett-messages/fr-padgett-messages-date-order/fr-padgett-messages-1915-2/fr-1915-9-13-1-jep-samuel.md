@@ -1,7 +1,7 @@
 ---
 title: "Samuel écrit qu’il n’y a aucune raison que M. Padgett ne puisse pas obtenir l’Amour Divin du Père"
 menu_title: ""
-description: "Samuel écrit qu’il n’y a aucune raison que M. Padgett ne puisse pas obtenir l’Amour Divin du Père"
+description: "Samuel, reçu par James Padgett : « Ce soir, je voudrais seulement dire quelques mots sur l’amour que je vois que vous avez dans une large mesure. »"
 date: 2022-06-01 06:00:01+00:243
 draft: False
 hidden: True

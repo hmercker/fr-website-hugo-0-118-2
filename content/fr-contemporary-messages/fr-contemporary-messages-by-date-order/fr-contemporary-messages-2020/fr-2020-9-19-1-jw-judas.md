@@ -1,7 +1,7 @@
 ---
 title: "Mettez Dieu à la première place"
 menu_title: ""
-description: "Mettez Dieu à la première place"
+description: "Judas, reçu par Jimbeau Walsh : « Et je tiens à vous féliciter d’avoir choisi ces deux messages très complets aujourd’hui. Et je vais rester bref, mais je … »"
 date: 2022-06-01 06:00:01+00:1254
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez des instruments de paix par l’Amour Divin"
 menu_title: ""
-description: "Soyez des instruments de paix par l’Amour Divin"
+description: "Jésus, reçu par Al Fike : « Car la paix est désirée au plus profond de chacun. Pourtant, on laisse l’obscurité et la destruction prévaloir. »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

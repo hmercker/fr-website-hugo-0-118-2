@@ -1,7 +1,7 @@
 ---
 title: "La personnalité de Dieu"
 menu_title: ""
-description: "La personnalité de Dieu"
+description: "Jésus, reçu par James Padgett : « J’ai entendu ce que le professeur vous a dit et vous devez faire de votre mieux pour en comprendre le sens, car ce … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

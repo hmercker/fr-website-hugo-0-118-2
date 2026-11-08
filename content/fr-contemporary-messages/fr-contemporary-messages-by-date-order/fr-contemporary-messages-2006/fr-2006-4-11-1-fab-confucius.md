@@ -1,7 +1,7 @@
 ---
 title: "Confucius et le monde des esprits"
 menu_title: ""
-description: "Confucius et le monde des esprits"
+description: "Confucius, reçu par FAB : « Nous savions tous que vous seriez attiré par mes « Analectes » . Ils serviront un objectif vital dans ce Nouvel Âge, et vous … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

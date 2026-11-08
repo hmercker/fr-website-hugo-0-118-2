@@ -1,7 +1,7 @@
 ---
 title: "La guérison du fils du maire de Capharnaüm"
 menu_title: ""
-description: "La guérison du fils du maire de Capharnaüm"
+description: "Judas, reçu par H : « Mon cher frère, comme je te l’ai promis, je vais continuer avec le récit de la vie de Jésus. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

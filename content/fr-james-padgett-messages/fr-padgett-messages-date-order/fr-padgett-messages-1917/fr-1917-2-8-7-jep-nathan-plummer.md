@@ -1,7 +1,7 @@
 ---
 title: "Nathan Plummer est remerciant pour l’aide reçue par le Dr Stone alors qu’il était sur terre"
 menu_title: ""
-description: "Nathan Plummer est remerciant pour l’aide reçue par le Dr Stone alors qu’il était sur terre"
+description: "Nathan Plummer, reçu par James Padgett : « Laissez-moi vous dire un mot maintenant. Je ne suis pas sa mère et je ne peux pas écrire comme le fait sa mère … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

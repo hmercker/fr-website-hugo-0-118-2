@@ -1,7 +1,7 @@
 ---
 title: "Unis dans la prière, transformés par l'amour"
 menu_title: ""
-description: "Unis dans la prière, transformés par l'amour"
+description: "Jésus, reçu par Albert Fike : « Cela me fait chaud au cœur de voir que vous suivez la voie de cette Vérité, que la puissance de l’Amour est la seule … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

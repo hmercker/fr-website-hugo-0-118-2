@@ -1,7 +1,7 @@
 ---
 title: "Écouter"
 menu_title: ""
-description: "Écouter"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Il y a beaucoup de gens qui écoutent, mais qui n’entendent pas. Qu’est-ce que je veux dire par là ? »"
 date: 2022-06-01 06:00:01+00:1239
 draft: False
 hidden: True

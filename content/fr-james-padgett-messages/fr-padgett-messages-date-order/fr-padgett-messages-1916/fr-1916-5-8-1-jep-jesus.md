@@ -1,7 +1,7 @@
 ---
 title: "Comment l’Amour Divin entre dans l’âme de l’homme (Suite)"
 menu_title: ""
-description: "Comment l’Amour Divin entre dans l’âme de l’homme (Suite)"
+description: "Jésus, reçu par James Padgett : « Eh bien, comme vous vous en souvenez peut-être, mon sujet est : « Comment l’Amour Divin entre dans l’âme d’un être … »"
 date: 2022-06-01 06:00:01+00:222
 draft: False
 hidden: True

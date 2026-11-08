@@ -1,7 +1,7 @@
 ---
 title: "Continuez à suivre la Voie Divine"
 menu_title: ""
-description: "Continuez à suivre la Voie Divine"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Ô précieuses âmes de l’Amour du Père. Un changement s’opère en vous, mes enfants, un grand changement venu des … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

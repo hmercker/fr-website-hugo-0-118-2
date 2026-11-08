@@ -1,7 +1,7 @@
 ---
 title: "Les voies de l'amour au service de Dieu"
 menu_title: ""
-description: "Les voies de l'amour au service de Dieu"
+description: "Orion, reçu par Albert Fike : « L’Essence du Créateur se déverse bel et bien dans vos âmes, mes amis. À mesure que vous êtes transformés par ce don, que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

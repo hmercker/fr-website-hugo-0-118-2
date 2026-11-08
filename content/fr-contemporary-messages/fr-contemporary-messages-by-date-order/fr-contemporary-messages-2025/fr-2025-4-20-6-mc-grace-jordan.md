@@ -1,7 +1,7 @@
 ---
 title: "Soyez courageux face à vos défis"
 menu_title: ""
-description: "Soyez courageux face à vos défis"
+description: "Grace Jordqn, reçu par Maureen Cardoso : « C’est un grand plaisir de vous rejoindre depuis l’autre côté du voile, de prier avec vous et d’avoir cette … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

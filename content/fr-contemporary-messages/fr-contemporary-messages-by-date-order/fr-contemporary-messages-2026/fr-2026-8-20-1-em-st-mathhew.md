@@ -1,7 +1,7 @@
 ---
 title: "La douceur de la progression"
 menu_title: ""
-description: "La douceur de la progression"
+description: "Matthieu, reçu par Elizabeth Mack : « Mon âme est emplie de l'Amour Divin. Je vous apporte mon amour pour vous élever, pour me joindre à vous dans cette … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme qu’un esprit fut capable de visualiser la grand-mère de M. Padgett"
 menu_title: ""
-description: "Hélène confirme qu’un esprit fut capable de visualiser la grand-mère de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as eu beaucoup d’écrits ce soir et tu dois te sentir fatigué et je ne te retiendrai pas … »"
 date: 2022-06-01 06:00:01+00:185
 draft: False
 hidden: True

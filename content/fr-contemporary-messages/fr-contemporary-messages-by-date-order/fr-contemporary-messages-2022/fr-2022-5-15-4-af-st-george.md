@@ -1,7 +1,7 @@
 ---
 title: "Notre nation, Guernesey, a grand besoin de s’élever"
 menu_title: ""
-description: "Notre nation, Guernesey, a grand besoin de s’élever"
+description: "St. George, reçu par Al Fike : « Je souhaite vraiment vous dire que j’approuve ce que vous faites pour améliorer et élever votre nation et vos … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

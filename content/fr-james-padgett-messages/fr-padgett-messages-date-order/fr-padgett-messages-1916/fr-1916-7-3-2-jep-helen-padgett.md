@@ -1,7 +1,7 @@
 ---
 title: "Confirme le plan de Mary"
 menu_title: ""
-description: "Confirme le plan de Mary"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as reçu une belle lettre de Mary ce soir, et elle fut si heureuse de pouvoir t’écrire car elle voulait faire … »"
 date: 2022-06-01 06:00:01+00:256
 draft: False
 hidden: True

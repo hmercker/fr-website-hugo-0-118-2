@@ -1,7 +1,7 @@
 ---
 title: "Les détails de la vie d'Hélène Padgett et son parcours spirituel"
 menu_title: ""
-description: "Les détails de la vie d'Hélène Padgett et son parcours spirituel"
+description: "Hélène Padgett, reçu par Al Fike : « Moi aussi je vous salue de mon côté de la vie et je transmets mes meilleurs vœux à vous tous. »"
 date: 2023-03-01 06:25:48+00:80
 draft: False
 hidden: True

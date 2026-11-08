@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur l'engagement / Réfléchissez au destin que vous vous forgez"
 menu_title: ""
-description: "Leçon sur l'engagement / Réfléchissez au destin que vous vous forgez"
+description: "Augustin et Barbara Davies, reçu par Albert Fike : « C'est votre enseignant, Augustin. Je souhaite vous parler des bienfaits de l'engagement et de … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

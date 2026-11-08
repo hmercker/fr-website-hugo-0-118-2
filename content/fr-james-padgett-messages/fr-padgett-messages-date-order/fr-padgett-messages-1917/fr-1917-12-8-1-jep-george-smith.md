@@ -1,7 +1,7 @@
 ---
 title: "George W. Smith vivait en Angleterre près de la famille Stone"
 menu_title: ""
-description: "George W. Smith vivait en Angleterre près de la famille Stone"
+description: "George W Smith, reçu par James Padgett : « Je ne suis pas dans une position aussi élevée que mes amis et j’ai avec moi quelque obscurité et une certaine … »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

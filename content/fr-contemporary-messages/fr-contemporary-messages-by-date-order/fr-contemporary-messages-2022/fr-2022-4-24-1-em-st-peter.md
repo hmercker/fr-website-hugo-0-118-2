@@ -1,7 +1,7 @@
 ---
 title: "Recherche d'âmes à Puenta Delgado"
 menu_title: ""
-description: "Recherche d'âmes à Puenta Delgado"
+description: "Pierre, reçu par Elizabeth Mack : « Soyez vous-mêmes afin de les toucher par l’Amour de Dieu, afin qu’ils ressentent l’espoir et la joie. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

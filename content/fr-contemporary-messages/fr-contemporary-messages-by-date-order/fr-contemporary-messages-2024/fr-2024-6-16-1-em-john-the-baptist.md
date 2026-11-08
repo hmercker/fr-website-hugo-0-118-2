@@ -1,7 +1,7 @@
 ---
 title: "Confirme le message de Jésus pour le fête des pères"
 menu_title: ""
-description: "Confirme le message de Jésus pour le fête des pères"
+description: "Jean le Baptiste, reçu par Elizabeth Mack : « Je me joins à mon frère dans les Cieux Célestes. Vous avez tous travaillé avec diligence, priant sincèrement … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

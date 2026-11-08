@@ -1,7 +1,7 @@
 ---
 title: "Soyez prêt à suivre les conseils reçus"
 menu_title: ""
-description: "Soyez prêt à suivre les conseils reçus"
+description: "St Matthieu, reçu par Maureen Cardoso : « Je me joins à vous en ce temps de prière, où vous ouvrez vos âmes, aspirant à ce que l'Amour Divin bénisse vos … »"
 date: 2022-06-01 06:00:01+00:732
 draft: False
 hidden: True

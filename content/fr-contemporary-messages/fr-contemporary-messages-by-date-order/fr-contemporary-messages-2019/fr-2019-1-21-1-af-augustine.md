@@ -1,7 +1,7 @@
 ---
 title: "Chemin de l’Amour Divin et Chemin de l’Amour Naturel"
 menu_title: ""
-description: "Chemin de l’Amour Divin et Chemin de l’Amour Naturel"
+description: "Augustin, reçu par Al Fike : « Comme les ailes des colombes qui se déploient, vous enveloppent de Lumière, ainsi vous êtes élevés et bénis de la grâce de … »"
 date: 2022-06-01 06:00:01+00:609
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Océan infini"
 menu_title: ""
-description: "Océan infini"
+description: "Hafiz, reçu par Jimbeau Walsh : « Afiz (Afez) s'est également exprimé dans les messages suivants : ↩ Auteur | Titre du message | Date du message … »"
 date: 2022-06-01 06:00:01+00:1526
 draft: False
 hidden: True

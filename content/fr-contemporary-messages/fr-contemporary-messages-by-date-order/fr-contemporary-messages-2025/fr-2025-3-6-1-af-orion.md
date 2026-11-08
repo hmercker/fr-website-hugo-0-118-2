@@ -1,7 +1,7 @@
 ---
 title: "Vous avez choisi d'apprendre de toutes vos épreuves et tribulations"
 menu_title: ""
-description: "Vous avez choisi d'apprendre de toutes vos épreuves et tribulations"
+description: "Orion, reçu par Albert Fike : « D’après mes observations, je dirais que les épreuves et les tribulations ont toujours fait partie de votre vie sur Terre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

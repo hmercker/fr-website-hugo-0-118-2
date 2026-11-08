@@ -1,7 +1,7 @@
 ---
 title: "En grandissant dans l'amour, vous grandissez au service de Dieu"
 menu_title: ""
-description: "En grandissant dans l'amour, vous grandissez au service de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Sentez-vous l’empressement de vos amis lointains qui souhaitent être avec vous dans la prière ? »"
 date: 2022-06-01 06:00:01+00:302
 draft: False
 hidden: True

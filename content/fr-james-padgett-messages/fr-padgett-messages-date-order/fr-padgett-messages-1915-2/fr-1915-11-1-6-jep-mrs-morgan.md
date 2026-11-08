@@ -1,7 +1,7 @@
 ---
 title: "La mère d’Eugène Morgan écrit"
 menu_title: ""
-description: "La mère d’Eugène Morgan écrit"
+description: "Mme Morgan, reçu par James Padgett : « J’ai attendu si longtemps d’avoir l’occasion de lui écrire, ou de communiquer d’une manière ou d’une autre. »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

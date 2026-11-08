@@ -1,7 +1,7 @@
 ---
 title: "Votre défi est de libérer tout ce qui n'est pas de l'amour"
 menu_title: ""
-description: "Votre défi est de libérer tout ce qui n'est pas de l'amour"
+description: "St Matthieu, reçu par Al Fike : « Vos esprits continuent de voir au plus près du sol, les événements quotidiens de votre vie. »"
 date: 2022-06-01 06:00:01+00:695
 draft: False
 hidden: True

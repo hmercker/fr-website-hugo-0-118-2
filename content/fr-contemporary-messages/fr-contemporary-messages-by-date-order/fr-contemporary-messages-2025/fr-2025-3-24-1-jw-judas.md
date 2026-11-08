@@ -1,7 +1,7 @@
 ---
 title: "Dire la vérité au pouvoir et aux rêves"
 menu_title: ""
-description: "Dire la vérité au pouvoir et aux rêves"
+description: "Judas, reçu par Jimbeau Walsh : « Je reviens dans votre beau cercle, par amour de Dieu, une fois de plus. Il existe un dicton contemporain qui encourage à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

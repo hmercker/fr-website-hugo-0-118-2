@@ -1,7 +1,7 @@
 ---
 title: "Comment les prières pour les choses matérielles sont exaucées - Le miracle des pains et des poissons ne s’est jamais produit"
 menu_title: ""
-description: "Comment les prières pour les choses matérielles sont exaucées - Le miracle des pains et des poissons ne s’est jamais produit"
+description: "St Jean, reçu par James Padgett : « Eh bien, Il répond aux prières pour les choses matérielles par l’intermédiaire et l’œuvre de Ses anges et de Ses … »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

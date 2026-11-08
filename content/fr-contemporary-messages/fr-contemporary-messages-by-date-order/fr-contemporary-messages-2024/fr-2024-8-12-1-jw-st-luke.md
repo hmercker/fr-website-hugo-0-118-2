@@ -1,7 +1,7 @@
 ---
 title: "La foi au-delà de l’échec"
 menu_title: ""
-description: "La foi au-delà de l’échec"
+description: "Luc, reçu par Jimbeau Walsh : « Puissiez-vous permettre, en ce moment, au grand don de notre Père Céleste, à Son essence même, d’entrer dans vos âmes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

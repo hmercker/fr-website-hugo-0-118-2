@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions sur Nos voyages… Une porte s’ouvre (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "Bénédictions sur Nos voyages… Une porte s’ouvre (Retraite Voix Directe 2021)"
+description: "Jésus, reçu par Al Fike : « Vous êtes donc bénis par Dieu, guidés par Dieu dans vos voyages. Le grand voyage de l’éveil de l’âme est sur le point de … »"
 date: 2022-06-01 06:00:01+00:1620
 draft: False
 hidden: True

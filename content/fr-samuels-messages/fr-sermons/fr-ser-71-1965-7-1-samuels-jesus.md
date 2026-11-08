@@ -1,7 +1,7 @@
 ---
 title: "71ème Sermon – Aggée demande instamment la reconstruction du Temple"
 menu_title: ""
-description: "71ème Sermon – Aggée demande instamment la reconstruction du Temple"
+description: "Jésus, reçu par Dr Samuels : « Le troisième Isaïe avait cherché à encourager le retour à Jérusalem et la reconstruction du Temple, à l’instar de son … »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

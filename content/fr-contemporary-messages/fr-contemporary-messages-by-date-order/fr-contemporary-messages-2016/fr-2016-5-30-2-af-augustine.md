@@ -1,7 +1,7 @@
 ---
 title: "Rester dans la lumière"
 menu_title: ""
-description: "Rester dans la lumière"
+description: "Augustin, reçu par Al Fike : « Votre enseignant Augustin est venu vous parler dans vos prières et dans vos désirs d’être dans la Lumière. »"
 date: 2022-06-01 06:00:01+00:212
 draft: False
 hidden: True

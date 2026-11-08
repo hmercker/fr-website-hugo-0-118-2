@@ -1,7 +1,7 @@
 ---
 title: "Hélène explique l'amour divin, l'amour naturel, l'amour de l'âme-soeur et les autres amours"
 menu_title: ""
-description: "Hélène explique l'amour divin, l'amour naturel, l'amour de l'âme-soeur et les autres amours"
+description: "Hélène Padgett, reçu par James Padgett : « Après mon décès, j’ai vu que je devais chercher un moyen de communiquer avec toi de mon existence spirituelle … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Foi, connaissance, compréhension et confiance"
 menu_title: ""
-description: "Foi, connaissance, compréhension et confiance"
+description: "Judas, reçu par H : « Foi signifie connaissance, connaissance intérieure. C’est notre part de la vision holistique de Dieu. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

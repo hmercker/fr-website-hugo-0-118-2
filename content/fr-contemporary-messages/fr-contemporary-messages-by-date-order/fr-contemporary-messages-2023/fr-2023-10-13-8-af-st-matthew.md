@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes les auditeurs"
 menu_title: ""
-description: "Vous êtes les auditeurs"
+description: "St Matthieu, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père s’abattent sur chacun de vous, votre âme ouverte et désireuse de les recevoir. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

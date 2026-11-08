@@ -1,7 +1,7 @@
 ---
 title: "En fait, vous êtes sur la bonne voie"
 menu_title: ""
-description: "En fait, vous êtes sur la bonne voie"
+description: "Augustin, reçu par Al Fike : « Il n’y a rien dont vous deviez vous inquiéter quand il s’agit de permettre et d’alimenter ce courant, car nous sommes … »"
 date: 2022-06-01 06:00:01+00:1505
 draft: False
 hidden: True

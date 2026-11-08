@@ -1,7 +1,7 @@
 ---
 title: "Ce moment"
 menu_title: ""
-description: "Ce moment"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Cher enfant, aujourd’hui, nous allons parler de ce moment. La journée d’hier est passée, demain n’est pas … »"
 date: 2022-06-01 06:00:01+00:242
 draft: False
 hidden: True

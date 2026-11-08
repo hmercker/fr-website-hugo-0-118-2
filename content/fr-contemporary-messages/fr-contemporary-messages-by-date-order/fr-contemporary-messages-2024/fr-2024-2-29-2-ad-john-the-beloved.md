@@ -1,7 +1,7 @@
 ---
 title: "Décrit l'Amour Divin et accueille deux nouveaux venus dans le cercle"
 menu_title: ""
-description: "Décrit l'Amour Divin et accueille deux nouveaux venus dans le cercle"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « L'Amour de Dieu coule dans vos âmes, beaux, beaux enfants du Créateur. Je fus connu sous le nom de Jean le … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

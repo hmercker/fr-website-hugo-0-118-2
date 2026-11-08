@@ -1,7 +1,7 @@
 ---
 title: "28ème Sermon – Jésus étudie les prophéties d’Osée"
 menu_title: ""
-description: "28ème Sermon – Jésus étudie les prophéties d’Osée"
+description: "Jésus, reçu par Dr Samuels : « Dans mon dernier sermon, j’ai montré comment Osée, le grand prophète d’Israël, a vu la punition approcher suite aux … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus et la guerre"
 menu_title: ""
-description: "Jésus et la guerre"
+description: "Jésus, reçu par FAB : « Vous avez besoin de plus de précisions sur le sujet de la guerre. Comment pouvons-nous ne pas interférer et pourtant travailler … »"
 date: 2022-06-01 06:00:01+00:222
 draft: False
 hidden: True

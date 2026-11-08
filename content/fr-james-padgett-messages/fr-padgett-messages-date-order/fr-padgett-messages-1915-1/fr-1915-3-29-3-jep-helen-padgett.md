@@ -1,7 +1,7 @@
 ---
 title: "Explique la condition spirituelle du juge Syrick ainsi que celle de leur cousine Laura, qui n’était pas connue d’eux sur terre"
 menu_title: ""
-description: "Explique la condition spirituelle du juge Syrick ainsi que celle de leur cousine Laura, qui n’était pas connue d’eux sur terre"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as reçu une lettre du juge. Il était si impatient d’écrire que nous avons pensé que cela lui ferait du bien … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

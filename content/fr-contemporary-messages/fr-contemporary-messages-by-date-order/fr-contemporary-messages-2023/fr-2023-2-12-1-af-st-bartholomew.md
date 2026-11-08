@@ -1,7 +1,7 @@
 ---
 title: "Satisfait de notre mission ; Serez guidés encore et encore"
 menu_title: ""
-description: "Satisfait de notre mission ; Serez guidés encore et encore"
+description: "Bartholomée, reçu par Al Fike : « Je tiens à vous remercier pour vos efforts au sein de ces îles languissantes de beauté et de chaleur, car elles ont … »"
 date: 2023-09-01 06:00:01+00:80
 draft: False
 hidden: True

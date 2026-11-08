@@ -1,7 +1,7 @@
 ---
 title: "Discerner les conseils dans la prise de décisions quotidiennes"
 menu_title: ""
-description: "Discerner les conseils dans la prise de décisions quotidiennes"
+description: "Matthieu, reçu par Albert Fike : « Je m’appelle Matthieu et je souhaite vous parler de guidance. Permettez-moi d’utiliser l’allégorie d’un individu … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

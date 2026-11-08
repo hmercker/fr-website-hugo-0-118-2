@@ -1,7 +1,7 @@
 ---
 title: "L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses"
 menu_title: ""
-description: "L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes pour vous communiquer une vérité importante qu’il est nécessaire que les hommes … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Forrest, un frère avocat et ancien associé de M. Padgett, demande de l’aide, puisqu’il a appris que d’autres ont reçu de l’aide"
 menu_title: ""
-description: "Forrest, un frère avocat et ancien associé de M. Padgett, demande de l’aide, puisqu’il a appris que d’autres ont reçu de l’aide"
+description: "Edwin Forrest, reçu par James Padgett : « Eh bien, je comprends ce que tu dis et je vais croire que tu désires m’aider, et je vais certainement essayer de … »"
 date: 2022-06-01 06:00:01+00:252
 draft: False
 hidden: True

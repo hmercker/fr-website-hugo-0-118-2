@@ -1,7 +1,7 @@
 ---
 title: "Jésus et Marie réconfortent ceux qui sont en deuil"
 menu_title: ""
-description: "Jésus et Marie réconfortent ceux qui sont en deuil"
+description: "Jésus et Marie, reçu par Albert Fike : « Cela ne veut pas dire que les épreuves et les tribulations de la vie terrestre disparaissent. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

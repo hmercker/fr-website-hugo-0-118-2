@@ -1,7 +1,7 @@
 ---
 title: "Ouvrir davantage l'expression de vos dons"
 menu_title: ""
-description: "Ouvrir davantage l'expression de vos dons"
+description: "Nuage Blanc, reçu par Albert Fike : « … une bénédiction, une bénédiction unique pour eux, une bénédiction qu’ils pourront emporter avec eux, une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "En bien des choses, vous êtes plus proche de Dieu"
 menu_title: ""
-description: "En bien des choses, vous êtes plus proche de Dieu"
+description: "Goldie, reçu par Al Fike : « Lorsque vous jouez dans les vagues, vous êtes plus proche de Dieu. Lorsque vous sentez le soleil sur votre visage, vous êtes … »"
 date: 2022-06-01 06:00:01+00:342
 draft: False
 hidden: True

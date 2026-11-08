@@ -1,7 +1,7 @@
 ---
 title: "Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous"
 menu_title: ""
-description: "Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous"
+description: "Marie, reçu par Elizabeth Mack : « Sachez que nous serons avec vous. Vous serez bercés dans nos bras pendant que vous rejoignez vos foyers. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ne résistez pas aux désirs de votre âme"
 menu_title: ""
-description: "Ne résistez pas aux désirs de votre âme"
+description: "Anonyme, reçu par Albert Fike : « Douces âmes… vous n’avez rien à craindre, mes enfants, rien à craindre, car vos âmes vous conduiront vers la Lumière à … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

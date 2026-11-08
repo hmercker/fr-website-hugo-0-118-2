@@ -1,7 +1,7 @@
 ---
 title: "Guérisons par la couleur"
 menu_title: ""
-description: "Guérisons par la couleur"
+description: "Confucius, reçu par Al Fike : « Une vague de nombreuses couleurs, profonde et résonnante et belle pour vous aider avec vos corps physiques, pour vous … »"
 date: 2022-06-01 06:00:01+00:257
 draft: False
 hidden: True

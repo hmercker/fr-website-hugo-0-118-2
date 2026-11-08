@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu imprègne l’univers"
 menu_title: ""
-description: "L’Amour de Dieu imprègne l’univers"
+description: "Yogananda, reçu par Albert Fike : « L’Amour de Dieu est disponible dans tout l’univers. Peu importe la perspective, peu importe où réside cette âme, peu … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

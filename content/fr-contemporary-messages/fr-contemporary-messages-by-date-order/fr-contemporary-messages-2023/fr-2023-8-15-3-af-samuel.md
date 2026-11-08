@@ -1,7 +1,7 @@
 ---
 title: "Que Dieu vous enlève les écailles des yeux"
 menu_title: ""
-description: "Que Dieu vous enlève les écailles des yeux"
+description: "Samuel, reçu par Albert Fike : « Que Dieu enlève les écailles de vos yeux afin que le voile soit levé sur ce que vous ne pouvez pas voir et qui peut être … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

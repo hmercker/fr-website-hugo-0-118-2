@@ -1,7 +1,7 @@
 ---
 title: "Loi de la progression"
 menu_title: ""
-description: "Loi de la progression"
+description: "Orion, reçu par Albert Fike : « C’est votre vieil ami, Orion. Je souhaite aborder certaines communications et idées qui circulent dans la conscience des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

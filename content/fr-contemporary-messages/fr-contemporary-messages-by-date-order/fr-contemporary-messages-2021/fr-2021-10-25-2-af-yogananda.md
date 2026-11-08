@@ -1,7 +1,7 @@
 ---
 title: "Répond à une conversation au sujet d’un homme prétendant être Jésus"
 menu_title: ""
-description: "Répond à une conversation au sujet d’un homme prétendant être Jésus"
+description: "Yogananda, reçu par Al Fike : « J’ai écouté vos conversations concernant la chère âme qui souhaite se proclamer comme la source de toute vérité sur votre … »"
 date: 2022-06-01 06:00:01+00:1691
 draft: False
 hidden: True

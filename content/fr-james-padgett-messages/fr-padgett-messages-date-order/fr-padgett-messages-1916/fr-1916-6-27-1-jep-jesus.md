@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste"
 menu_title: ""
-description: "Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste"
+description: "Jésus, reçu par James Padgett : « Ce soir, je voudrais vous écrire sur un sujet qui intéresse l’humanité tout entière, et j’espère que nous serons en … »"
 date: 2022-06-01 06:00:01+00:251
 draft: False
 hidden: True

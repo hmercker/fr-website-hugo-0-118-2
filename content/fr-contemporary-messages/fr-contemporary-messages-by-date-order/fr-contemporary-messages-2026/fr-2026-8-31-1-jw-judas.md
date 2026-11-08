@@ -1,7 +1,7 @@
 ---
 title: "Aller vers Dieu pour ceux qui ne vont pas vers Dieu"
 menu_title: ""
-description: "Aller vers Dieu pour ceux qui ne vont pas vers Dieu"
+description: "Judas, reçu par Albert Fike : « Que la paix de l’Amour de Dieu soit avec vous tous en ces temps de changement, de grands bouleversements et de profonds … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

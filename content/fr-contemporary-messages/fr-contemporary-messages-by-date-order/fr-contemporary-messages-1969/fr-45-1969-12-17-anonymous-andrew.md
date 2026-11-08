@@ -1,7 +1,7 @@
 ---
 title: "Lien d'unité"
 menu_title: ""
-description: "Lien d'unité"
+description: "André : « Cela fait longtemps, Alec. Bien souvent, tu as été avec moi en pensée, dans mes prières et dans mon amour. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

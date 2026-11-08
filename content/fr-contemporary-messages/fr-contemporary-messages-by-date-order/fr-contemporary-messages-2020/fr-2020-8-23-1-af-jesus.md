@@ -1,7 +1,7 @@
 ---
 title: "Concentrez vos pensées sur Dieu, pas tant sur nous, les anges"
 menu_title: ""
-description: "Concentrez vos pensées sur Dieu, pas tant sur nous, les anges"
+description: "Jésus, reçu par Al Fike : « Je tiens à souligner que vos pensées et vos désirs jouent un rôle clé dans l’efficacité de nos efforts pour maintenir la … »"
 date: 2022-06-01 06:00:01+00:1228
 draft: False
 hidden: True

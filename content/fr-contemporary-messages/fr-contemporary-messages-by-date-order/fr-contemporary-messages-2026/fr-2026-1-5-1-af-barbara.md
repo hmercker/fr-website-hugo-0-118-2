@@ -1,7 +1,7 @@
 ---
 title: "Établir une base solide de prière et éviter la rigidité pour devenir des enseignants efficaces"
 menu_title: ""
-description: "Établir une base solide de prière et éviter la rigidité pour devenir des enseignants efficaces"
+description: "Barbara, reçu par Albert Fike : « Les circonstances terrestres dresseront sans aucun doute des obstacles et des situations qui tenteront de contrecarrer … »"
 date: 2026-01-21 06:00:01+00:01
 draft: False
 hidden: True

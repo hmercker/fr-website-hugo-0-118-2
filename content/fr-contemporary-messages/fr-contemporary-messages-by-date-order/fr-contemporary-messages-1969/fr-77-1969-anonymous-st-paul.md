@@ -1,7 +1,7 @@
 ---
 title: "Nous devons enseigner à tous ceux qui le souhaitent comment se libérer de la peur"
 menu_title: ""
-description: "Nous devons enseigner à tous ceux qui le souhaitent comment se libérer de la peur"
+description: "St Paul : « C'est si gratifiant pour nous, mes enfants, d'être capables d'élever le taux de vibration si haut en si peu de temps, car lorsque je me suis … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

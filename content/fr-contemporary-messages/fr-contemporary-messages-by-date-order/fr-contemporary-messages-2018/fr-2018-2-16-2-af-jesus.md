@@ -1,7 +1,7 @@
 ---
 title: "Vos efforts feront de cette église un centre de lumière"
 menu_title: ""
-description: "Vos efforts feront de cette église un centre de lumière"
+description: "Jésus, reçu par Al Fike : « Toutes les âmes qui cherchent le plus haut, qui connaissent la grande bénédiction de l’Amour du Père auront mes bénédictions … »"
 date: 2022-06-01 06:00:01+00:317
 draft: False
 hidden: True

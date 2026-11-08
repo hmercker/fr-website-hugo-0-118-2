@@ -1,7 +1,7 @@
 ---
 title: "61ème Sermon – Le Second Isaïe, la voix de la libération"
 menu_title: ""
-description: "61ème Sermon – Le Second Isaïe, la voix de la libération"
+description: "Jésus, reçu par Dr Samuels : « La voix de la libération, ou le rachat par le Seigneur, vient aux exilés de Babylonie avec la montée de Cyrus, le Perse … »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

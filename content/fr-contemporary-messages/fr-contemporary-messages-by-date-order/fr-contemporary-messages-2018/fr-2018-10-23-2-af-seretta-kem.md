@@ -1,7 +1,7 @@
 ---
 title: "L'éveil de l'âme, la puissance de vos dons"
 menu_title: ""
-description: "L'éveil de l'âme, la puissance de vos dons"
+description: "Seretta Kem, reçu par Al Fike : « Il y a des décalages et des changements dans tous les aspects de votre être. De vos corps à votre âme, beaucoup de … »"
 date: 2022-06-01 06:00:01+00:534
 draft: False
 hidden: True

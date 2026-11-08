@@ -1,7 +1,7 @@
 ---
 title: "Que chaque moment de la vie apporte un choix pour se rapprocher de Dieu"
 menu_title: ""
-description: "Que chaque moment de la vie apporte un choix pour se rapprocher de Dieu"
+description: "Keea Atta Kem, reçu par Al Fike : « Précieuses, belles lumières, vous marchez chacune sur un chemin différent, un chemin unique, un chemin de découverte … »"
 date: 2022-06-01 06:00:01+00:315
 draft: False
 hidden: True

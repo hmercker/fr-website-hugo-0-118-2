@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que les anciens écrivains étaient exactement ce qu’ils prétendaient être"
 menu_title: ""
-description: "Hélène confirme que les anciens écrivains étaient exactement ce qu’ils prétendaient être"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as eu de merveilleuses communications ce soir et je sais que tu es un peu perplexe et que tu as des doutes … »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

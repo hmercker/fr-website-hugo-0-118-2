@@ -1,7 +1,7 @@
 ---
 title: "Demandez à Dieu d'établir la conscience de l'Amour dans votre esprit"
 menu_title: ""
-description: "Demandez à Dieu d'établir la conscience de l'Amour dans votre esprit"
+description: "Grace Jordan, reçu par Maureen Cardoso : « Élevons-nous dans l'amour, vers les royaumes de lumière. Ce cercle m'est particulièrement cher, car il provient … »"
 date: 2023-09-15 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "William Shakespeare dans le monde des esprits"
 menu_title: ""
-description: "William Shakespeare dans le monde des esprits"
+description: "Joseph (AT), reçu par FAB : « C’est notre désir de canaliser à travers vous des messages qui seront d’intérêt pour les mortels, et les aspects de ces … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

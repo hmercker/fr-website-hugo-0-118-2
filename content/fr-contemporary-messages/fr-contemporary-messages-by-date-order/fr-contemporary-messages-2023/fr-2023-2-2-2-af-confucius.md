@@ -1,7 +1,7 @@
 ---
 title: "Dieu vous guidera dans votre service"
 menu_title: ""
-description: "Dieu vous guidera dans votre service"
+description: "Confucius, reçu par Al Fike : « Vous cherchez à servir avec tant de sérieux et de désir. Vous voulez que le monde soit guéri et que tous ceux que vous … »"
 date: 2023-09-01 06:00:01+00:76
 draft: False
 hidden: True

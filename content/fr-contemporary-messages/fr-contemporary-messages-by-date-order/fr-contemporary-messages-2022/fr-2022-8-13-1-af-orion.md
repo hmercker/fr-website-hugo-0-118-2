@@ -1,7 +1,7 @@
 ---
 title: "C’est le moment d’être libre"
 menu_title: ""
-description: "C’est le moment d’être libre"
+description: "Orion, reçu par Al Fike : « Notre travail continue de progresser et la lumière en vous s’illumine également alors que vous poursuivez sur ce chemin de … »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

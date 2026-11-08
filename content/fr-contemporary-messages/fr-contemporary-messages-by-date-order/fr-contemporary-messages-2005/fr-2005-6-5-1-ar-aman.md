@@ -1,7 +1,7 @@
 ---
 title: "La première expérience"
 menu_title: ""
-description: "La première expérience"
+description: "Aman, reçu par Amada Reza : « Lorsque nous avons pris conscience de nous-mêmes en tant que créations spéciales de Dieu, nous étions conscients de notre … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

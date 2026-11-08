@@ -1,7 +1,7 @@
 ---
 title: "Lutte de l’âme et du mental"
 menu_title: ""
-description: "Lutte de l’âme et du mental"
+description: "Augustin, reçu par Al Fike : « Votre âme est avec Dieu, et vos esprits sont souvent avec l’humanité et les conditions de l’humanité et cela provoque une … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

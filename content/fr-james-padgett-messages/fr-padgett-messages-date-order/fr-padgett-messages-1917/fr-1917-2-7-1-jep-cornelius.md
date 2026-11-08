@@ -1,7 +1,7 @@
 ---
 title: "Très intéressé par le travail et l’importance pour l’humanité de connaître la Vérité"
 menu_title: ""
-description: "Très intéressé par le travail et l’importance pour l’humanité de connaître la Vérité"
+description: "Corneille, reçu par James Padgett : « Je veux seulement écrire quelques lignes ce soir. Je m’intéresse tellement à vous et à votre travail que je sens que … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

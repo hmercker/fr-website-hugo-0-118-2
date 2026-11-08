@@ -1,7 +1,7 @@
 ---
 title: "Jean le Baptiste – le temps est venu pour les Vérités d’être connues afin que l’humanité soit délivrée des fausses croyances"
 menu_title: ""
-description: "Jean le Baptiste – le temps est venu pour les Vérités d’être connues afin que l’humanité soit délivrée des fausses croyances"
+description: "Jean le Baptiste, reçu par James Padgett : « L’Amour du Père attend que vous remplissiez votre âme au maximum, et les seules choses requises de votre part … »"
 date: 2022-06-01 06:00:01+00:237
 draft: False
 hidden: True

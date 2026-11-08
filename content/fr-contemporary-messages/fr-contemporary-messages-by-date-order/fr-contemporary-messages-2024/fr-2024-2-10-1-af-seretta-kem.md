@@ -1,7 +1,7 @@
 ---
 title: "Les cadeaux surprenants de vos âmes s'ouvrent"
 menu_title: ""
-description: "Les cadeaux surprenants de vos âmes s'ouvrent"
+description: "Seretta Kem, reçu par Albert Fike : « Dans les temps à venir, de nombreux dons s’ouvriront pour chacun d’entre vous, des dons surprenants, des dons dont … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

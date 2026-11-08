@@ -1,7 +1,7 @@
 ---
 title: "Nos pensées sont très puissantes et manifestes dans le monde"
 menu_title: ""
-description: "Nos pensées sont très puissantes et manifestes dans le monde"
+description: "Kea Atta Kem, reçu par Al Fike : « L’humanité ne comprend pas ni ne réalise à quel point leurs pensées peuvent être puissantes et à quel point elles sont … »"
 date: 2023-09-01 06:00:01+00:16
 draft: False
 hidden: True

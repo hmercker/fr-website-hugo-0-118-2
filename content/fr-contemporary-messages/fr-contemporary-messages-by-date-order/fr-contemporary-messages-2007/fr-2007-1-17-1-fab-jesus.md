@@ -1,7 +1,7 @@
 ---
 title: "L'attention du public aux messages de James Padgett"
 menu_title: ""
-description: "L'attention du public aux messages de James Padgett"
+description: "Jésus, reçu par FAB : « Certains croyants américains sincères et intelligents se sont demandés pourquoi mes enseignements ont pu être déformés à ce point … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Apporte un message de grand encouragement"
 menu_title: ""
-description: "Apporte un message de grand encouragement"
+description: "Professeur Salyards, reçu par Al Fike : « Bien que beaucoup d’entre vous profitent d’une belle journée d’été, vous devez vous demander quel est le besoin … »"
 date: 2023-09-01 06:00:01+00:34
 draft: False
 hidden: True

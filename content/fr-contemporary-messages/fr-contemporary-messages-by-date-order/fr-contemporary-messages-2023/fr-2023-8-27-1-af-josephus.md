@@ -1,7 +1,7 @@
 ---
 title: "Dieu nous utilise pour renforcer le réseau de lumière"
 menu_title: ""
-description: "Dieu nous utilise pour renforcer le réseau de lumière"
+description: "Flavius Josèphe, reçu par Albert Fike : « Bénédictions à vous, âmes bien-aimées. En effet, à mesure que chacun de vous avance dans le dévouement et la … »"
 date: 2023-09-01 06:00:01+00:68
 draft: False
 hidden: True

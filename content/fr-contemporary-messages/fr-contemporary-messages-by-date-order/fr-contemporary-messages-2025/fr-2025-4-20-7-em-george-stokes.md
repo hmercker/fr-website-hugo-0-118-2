@@ -1,7 +1,7 @@
 ---
 title: "Leçon d'un esprit en développement"
 menu_title: ""
-description: "Leçon d'un esprit en développement"
+description: "George Stokes, reçu par Elizabeth Mack : « Esprit en développement : Lâchez prise sur l’accumulation de biens matériels, mais priez profondément pour … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

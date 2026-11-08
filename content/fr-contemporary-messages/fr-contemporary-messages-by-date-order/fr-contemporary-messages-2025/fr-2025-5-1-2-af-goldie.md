@@ -1,7 +1,7 @@
 ---
 title: "Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir"
 menu_title: ""
-description: "Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir"
+description: "Goldie, reçu par Albert Fike : « C’est chaleureux et léger. Il apporte un soupir de soulagement à l’âme qui recherche constamment ce contact. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

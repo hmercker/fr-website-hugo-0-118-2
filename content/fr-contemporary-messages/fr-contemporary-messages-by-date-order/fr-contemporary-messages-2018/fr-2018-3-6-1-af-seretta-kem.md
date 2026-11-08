@@ -1,7 +1,7 @@
 ---
 title: "Les lois du rapport dans le développement de la Voix Directe"
 menu_title: ""
-description: "Les lois du rapport dans le développement de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite parler de la loi du rapport et de la communication en ce qui concerne le développement de la voix directe. »"
 date: 2022-06-01 06:00:01+00:343
 draft: False
 hidden: True

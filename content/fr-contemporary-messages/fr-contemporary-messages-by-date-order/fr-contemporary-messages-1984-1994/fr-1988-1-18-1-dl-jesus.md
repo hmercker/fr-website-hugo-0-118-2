@@ -1,7 +1,7 @@
 ---
 title: "La loi de l’équipoise et de l’équilibre"
 menu_title: ""
-description: "La loi de l’équipoise et de l’équilibre"
+description: "Jésus, reçu par Révérend Dave Lampron : « Comme il vous a été dit, il existe de nombreuses lois, tant naturelles que spirituelles, qui régissent le … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

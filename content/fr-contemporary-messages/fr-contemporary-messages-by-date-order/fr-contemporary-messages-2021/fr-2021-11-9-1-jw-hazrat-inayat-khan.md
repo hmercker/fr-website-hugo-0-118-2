@@ -1,7 +1,7 @@
 ---
 title: "Gardez un chant dans votre cœur"
 menu_title: ""
-description: "Gardez un chant dans votre cœur"
+description: "Hazrat Inayat Khan, reçu par Jimbeau Walsh : « Il est écrit qu’au commencement était la parole et que par elle toute la création a commencé. »"
 date: 2022-06-01 06:00:01+00:1709
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pas de solution pour les Rockefeller"
 menu_title: ""
-description: "Pas de solution pour les Rockefeller"
+description: "Nelson Rockefeller, reçu par FAB : « Il n’y a aucun moyen pour ma famille de gagner cette affaire, pas contre Dieu tout-puissant. »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

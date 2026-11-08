@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le manque de rapport"
 menu_title: ""
-description: "Hélène commente le manque de rapport"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, tu n’étais pas en forme, et ce fut difficile pour le Maître de contrôler ta main et ton cerveau. »"
 date: 2022-06-01 06:00:01+00:244
 draft: False
 hidden: True

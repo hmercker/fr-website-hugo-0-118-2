@@ -1,7 +1,7 @@
 ---
 title: "Confucius accueille le troupeau"
 menu_title: ""
-description: "Confucius accueille le troupeau"
+description: "Confucius, reçu par Al Fike : « Mes petits oiseaux, vous vous êtes rassemblés une fois de plus et comme nous nous réjouissons lorsque cela se produit. »"
 date: 2022-06-01 06:00:01+00:268
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Esprit Saintn’est pas Dieu. Pas de péché impardonnable"
 menu_title: ""
-description: "'Esprit Saint n’est pas Dieu. Pas de péché impardonnable"
+description: "Jésus, reçu par James Padgett : « Je veux vous dire, une fois pour toutes, que l’Esprit Saint n’est pas Dieu et que le péché impardonnable (Note 1) est … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

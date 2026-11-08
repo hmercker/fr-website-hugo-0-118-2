@@ -1,7 +1,7 @@
 ---
 title: "Réfléchissez à la manière dont vous pourriez manifester la Vérité dans le monde"
 menu_title: ""
-description: "Réfléchissez à la manière dont vous pourriez manifester la Vérité dans le monde"
+description: "Augustin, reçu par Albert Fike : « C’est votre maître, Augustin. Nombreux sont ceux qui ont reçu une part d’Amour Divin dans leur âme au cours des … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

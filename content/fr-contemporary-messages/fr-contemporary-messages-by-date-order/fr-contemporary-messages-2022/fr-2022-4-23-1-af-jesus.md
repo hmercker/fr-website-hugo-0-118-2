@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions profondes de paix"
 menu_title: ""
-description: "Bénédictions profondes de paix"
+description: "Jésus, reçu par Al Fike : « La paix profonde qui dépasse toute compréhension, l’Essence de Dieu se déversant en vous, renforçant et éveillant vos âmes … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin exprimé dans le plan terrestre"
 menu_title: ""
-description: "L'Amour Divin exprimé dans le plan terrestre"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « La lumière dans vos âmes contribue à la lumière ici. Nous, dans les Cieux Célestes, apportons une luminosité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

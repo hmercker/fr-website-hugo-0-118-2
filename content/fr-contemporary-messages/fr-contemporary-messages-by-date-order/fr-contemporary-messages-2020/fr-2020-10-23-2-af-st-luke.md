@@ -1,7 +1,7 @@
 ---
 title: "Facettes de l'âme"
 menu_title: ""
-description: "Facettes de l'âme"
+description: "St Luc, reçu par Al Fike : « Puissiez-vous boire, âmes bien-aimées, boire avec constance et avec beaucoup d’ardeur. Car ces Eaux Vives sont les … »"
 date: 2022-06-01 06:00:01+00:1294
 draft: False
 hidden: True

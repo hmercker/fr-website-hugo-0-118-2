@@ -1,7 +1,7 @@
 ---
 title: "Même si vous êtes peu nombreux, votre lumière est brillante et puissante"
 menu_title: ""
-description: "Même si vous êtes peu nombreux, votre lumière est brillante et puissante"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père se déversent en grande abondance dans vos âmes. Pour chacun d’entre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

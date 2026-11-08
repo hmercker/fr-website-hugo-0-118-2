@@ -1,7 +1,7 @@
 ---
 title: "La transformation de vos âmes est votre destinée"
 menu_title: ""
-description: "La transformation de vos âmes est votre destinée"
+description: "Orion, reçu par Albert Fike : « Mes amis, le monde continue de changer, et vous aussi. L’univers est destiné à évoluer et à changer. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

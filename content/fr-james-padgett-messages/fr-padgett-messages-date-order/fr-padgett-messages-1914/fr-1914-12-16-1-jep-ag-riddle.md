@@ -1,7 +1,7 @@
 ---
 title: "Albert Riddle était tellement ancré dans ses pensées religieuses qu’il pensait n’avoir besoin de l’aide de personne pour progresser"
 menu_title: ""
-description: "Albert Riddle était tellement ancré dans ses pensées religieuses qu’il pensait n’avoir besoin de l’aide de personne pour progresser"
+description: "Albert Riddle, reçu par James Padgett : « Je veux parler un peu avec toi. Tu ne m’en avez pas donné l’occasion auparavant et j’ai commencé à penser que tu … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

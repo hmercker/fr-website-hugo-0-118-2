@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin chasse la peur"
 menu_title: ""
-description: "L’Amour Divin chasse la peur"
+description: "St André, reçu par James Padgett : « Nous, qui vivons dans les Sphères Célestes, nous savons que c’est un fait, et avec toute la force et l’autorité que … »"
 date: 2022-06-01 06:00:01+00:251
 draft: False
 hidden: True

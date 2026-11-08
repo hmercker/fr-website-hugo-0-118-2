@@ -1,7 +1,7 @@
 ---
 title: "Se tourner vers l’âme plutôt que vers l’esprit"
 menu_title: ""
-description: "Se tourner vers l’âme plutôt que vers l’esprit"
+description: "Augustin, reçu par Al Fike : « Les serviteurs de Dieu vont assister à un service religieux demain. Soyez priants, continuez à être un canal de Son amour … »"
 date: 2022-06-01 06:00:01+00:283
 draft: False
 hidden: True

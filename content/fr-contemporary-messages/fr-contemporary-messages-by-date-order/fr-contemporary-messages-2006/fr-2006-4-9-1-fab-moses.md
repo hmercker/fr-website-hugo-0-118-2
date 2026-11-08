@@ -1,7 +1,7 @@
 ---
 title: "Un médium Juif attire les mêmes esprits Juifs"
 menu_title: ""
-description: "Un médium Juif attire les mêmes esprits Juifs"
+description: "Moïse, reçu par FAB : « Il ne fait aucun doute pour les esprits Juifs que vous respectez leur Judaïsme. Ils voient que vous n'avez aucun rapport avec le … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

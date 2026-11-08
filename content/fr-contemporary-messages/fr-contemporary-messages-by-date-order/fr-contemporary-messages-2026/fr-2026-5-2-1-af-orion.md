@@ -1,7 +1,7 @@
 ---
 title: "Votre capacité à dissiper les ténèbres de ce monde est plus puissante que vous ne le pensez"
 menu_title: ""
-description: "Votre capacité à dissiper les ténèbres de ce monde est plus puissante que vous ne le pensez"
+description: "Orion, reçu par Al Fike : « Une telle disharmonie règne dans votre monde. La puissance de cette disharmonie peut être accablante. »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

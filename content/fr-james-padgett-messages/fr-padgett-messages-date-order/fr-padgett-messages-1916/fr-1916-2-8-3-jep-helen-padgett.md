@@ -1,7 +1,7 @@
 ---
 title: "Hélène apprend que M. Morgan aura un guide indien appelé Red Fox"
 menu_title: ""
-description: "Hélène apprend que M. Morgan aura un guide indien appelé Red Fox"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as besoin d’un gardien, car tu ne sais jamais quand aller au lit. Je veux dire que tu ne dois pas laisser … »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

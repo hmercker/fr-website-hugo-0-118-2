@@ -1,7 +1,7 @@
 ---
 title: "La Pentecôte"
 menu_title: ""
-description: "La Pentecôte"
+description: "St Pierre, reçu par Al Fike : « J’ai bénéficié du don de la Pentecôte, cette grande pluie d’Amour de Dieu dans mon âme et dans les âmes de mes frères … »"
 date: 2022-06-01 06:00:01+00:1125
 draft: False
 hidden: True

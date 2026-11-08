@@ -1,7 +1,7 @@
 ---
 title: "Au début de son travail au nom du Royaume, M. Padgett reçut ce message de sa grand-mère (Anne Rollins) par l’intermédiaire de sa femme Hélène pour l’encourager à prier plus sincèrement le Père et non Jésus comme il le croyait autrefois"
 menu_title: ""
-description: "Au début de son travail au nom du Royaume, M. Padgett reçut ce message de sa grand-mère (Anne Rollins) par l’intermédiaire de sa femme Hélène pour l’encourager à prier plus sincèrement le Père et non Jésus comme il le croyait autrefois"
+description: "Hélène Padgett, reçu par James Padgett : « Tu ne dois pas laisser cette pensée faire irruption dans ton adoration car ce n’est qu’une des bénédictions … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

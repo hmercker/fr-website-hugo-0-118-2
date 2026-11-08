@@ -1,7 +1,7 @@
 ---
 title: "La musique dans les Cieux Célestes"
 menu_title: ""
-description: "La musique dans les Cieux Célestes"
+description: "Ludwig van Beethoven, reçu par FAB : « Je sais que vous avez l’impression que le premier message que vous avez reçu sur la relation entre l’artistique et … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

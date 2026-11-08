@@ -1,7 +1,7 @@
 ---
 title: "L’Amour est mon message"
 menu_title: ""
-description: "L’Amour est mon message"
+description: "Jésus, reçu par Al Fike : « J’aime tous mes frères et sœurs dans ce monde, quelles que soient leurs croyances, leur couleur ou leur appartenance, je les aime. »"
 date: 2022-06-01 06:00:01+00:678
 draft: False
 hidden: True

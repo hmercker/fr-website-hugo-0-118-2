@@ -1,7 +1,7 @@
 ---
 title: "La prière pour l’Amour Divin ouvre la porte à l’éveil de l’âme"
 menu_title: ""
-description: "La prière pour l’Amour Divin ouvre la porte à l’éveil de l’âme"
+description: "Marthe, reçu par Al Fike : « Je souhaite partager avec vous certaines choses à mojn sujet moi dans l’espoir qu’elles puissent vous réconforter dans vos … »"
 date: 2022-06-01 06:00:01+00:496
 draft: False
 hidden: True

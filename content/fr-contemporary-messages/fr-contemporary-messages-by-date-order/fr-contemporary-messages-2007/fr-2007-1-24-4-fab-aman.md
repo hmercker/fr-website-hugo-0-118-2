@@ -1,7 +1,7 @@
 ---
 title: "Changements dans le programme 'Les Premiers Parents'"
 menu_title: ""
-description: "Changements dans le programme 'Les Premiers Parents'"
+description: "Aman, reçu par FAB : « Bien sûr, nos corps étaient essentiellement les mêmes. Mais la lumière intérieure créée par le fait que nous possédions une âme … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

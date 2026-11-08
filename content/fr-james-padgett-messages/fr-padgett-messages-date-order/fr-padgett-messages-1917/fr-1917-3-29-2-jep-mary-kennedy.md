@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy déclare que l’âme sœur de l’éditeur tient beaucoup qu’il obtienne l’Amour Divin abondamment afin qu’il puisse être plus proche d’elle"
 menu_title: ""
-description: "Mary Kennedy déclare que l’âme sœur de l’éditeur tient beaucoup qu’il obtienne l’Amour Divin abondamment afin qu’il puisse être plus proche d’elle"
+description: "Mary Kennedy, reçu par James Padgett : « Il ne vous l’avouera peut-être pas, mais c’est vrai, car je peux lire son âme et je ne me flatte pas quand je … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

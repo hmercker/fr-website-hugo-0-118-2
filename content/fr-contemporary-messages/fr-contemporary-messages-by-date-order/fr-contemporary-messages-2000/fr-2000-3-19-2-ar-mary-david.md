@@ -1,7 +1,7 @@
 ---
 title: "Faire face à la vie"
 menu_title: ""
-description: "Faire face à la vie"
+description: "Marie et David, reçu par Amada Réza : « Il m’accompagne en ce moment afin qu’il puisse ajouter sa sagesse à ces pensées que je partage avec toi sur . »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

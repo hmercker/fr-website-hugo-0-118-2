@@ -1,7 +1,7 @@
 ---
 title: "Ce que Jésus voulait dire quand il a dit: « Dans la maison de mon Père, il y a beaucoup de demeures. »"
 menu_title: ""
-description: "Ce que Jésus voulait dire quand il a dit: « Dans la maison de mon Père, il y a beaucoup de demeures. »"
+description: "Jésus, reçu par James Padgett : « Votre condition, ce soir, permet que je continue mon message. Vous devez donc comprendre que cet Amour Divin est un … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

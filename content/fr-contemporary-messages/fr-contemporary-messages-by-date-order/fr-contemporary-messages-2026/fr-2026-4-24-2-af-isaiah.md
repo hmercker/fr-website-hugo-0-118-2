@@ -1,7 +1,7 @@
 ---
 title: "Choisir la voie de l’Amour Divin et de l’éveil de l’âme"
 menu_title: ""
-description: "Choisir la voie de l’Amour Divin et de l’éveil de l’âme"
+description: "Isaïe, reçu par Al Fike : « C’est le don le plus élevé que Dieu puisse offrir. En vérité, vous avez recherché ce qu’il y a de plus élevé et vous … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

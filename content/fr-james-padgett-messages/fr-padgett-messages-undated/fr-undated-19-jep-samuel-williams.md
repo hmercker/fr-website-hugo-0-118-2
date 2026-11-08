@@ -1,7 +1,7 @@
 ---
 title: "Samuel Williams cherche de l’aide parce qu’il a fait souffrir beaucoup d’animaux sur terre"
 menu_title: ""
-description: "Samuel Williams cherche de l’aide parce qu’il a fait souffrir beaucoup d’animaux sur terre"
+description: "Samuel Williams, reçu par James Padgett : « Laissez-moi écrire un peu. Je fus un homme qui a vécu une très mauvaise vie en faisant souffrir de nombreux … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

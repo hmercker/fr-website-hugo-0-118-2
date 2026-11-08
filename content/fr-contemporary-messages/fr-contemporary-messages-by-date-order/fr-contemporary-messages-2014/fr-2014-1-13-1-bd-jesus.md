@@ -1,7 +1,7 @@
 ---
 title: "Vous avez une mission profonde"
 menu_title: ""
-description: "Vous avez une mission profonde"
+description: "Jésus, reçu par Barbara Davies : « Souvenez-vous et acceptez que chacun d’entre vous ait une mission profonde, très profonde et indispensable dans ce monde. »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous devez tenir compte de nos avertissements et vous préparer à la tempête du changement"
 menu_title: ""
-description: "Vous devez tenir compte de nos avertissements et vous préparer à la tempête du changement"
+description: "Augustin, reçu par Albert Fike : « Que la grâce de l’Amour du Père soit avec vous, mes chers étudiants. Le moment approche rapidement où l’on aura besoin … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Libérez-vous des conditions de ce monde"
 menu_title: ""
-description: "Libérez-vous des conditions de ce monde"
+description: "Augustin, reçu par Al Fike : « Vous avez supplié votre Père céleste de vous attirer toujours plus près de Son sein, afin d’être nourris et guéris, de … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

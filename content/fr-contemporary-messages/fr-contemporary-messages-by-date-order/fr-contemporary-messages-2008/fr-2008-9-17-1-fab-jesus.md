@@ -1,7 +1,7 @@
 ---
 title: "La tristesse de Dieu"
 menu_title: ""
-description: "La tristesse de Dieu"
+description: "Jésus, reçu par FAB : « Je souhaite aborder un sujet qui vous intrigue. Dans le livre d'Osée de la Bible, il est dit que Dieu est triste lorsque ses … »"
 date: 2022-06-01 06:00:01+00:109
 draft: False
 hidden: True

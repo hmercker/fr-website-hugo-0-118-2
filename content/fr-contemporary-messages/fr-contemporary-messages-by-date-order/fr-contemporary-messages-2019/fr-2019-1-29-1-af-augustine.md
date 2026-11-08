@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme a-t-elle un but ?"
 menu_title: ""
-description: "Chaque âme a-t-elle un but ?"
+description: "Augustin, reçu par Al Fike : « Tu as posé une question importante, ma fille bien-aimée, et tu l'as l’as fait avec des mots clairs et élégants comme tel … »"
 date: 2022-06-01 06:00:01+00:626
 draft: False
 hidden: True

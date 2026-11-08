@@ -1,7 +1,7 @@
 ---
 title: "C’est seulement l’Amour de Dieu qui nourrit les personnes"
 menu_title: ""
-description: "C’est seulement l’Amour de Dieu qui nourrit les personnes"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Nous sommes puissants d’esprit et doux mais c’est seulement l’Amour de Dieu qui nous nourrit, cette élévation … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

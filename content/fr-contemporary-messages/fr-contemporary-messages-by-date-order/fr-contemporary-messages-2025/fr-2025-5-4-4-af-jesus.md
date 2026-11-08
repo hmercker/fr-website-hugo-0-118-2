@@ -1,7 +1,7 @@
 ---
 title: "Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité"
 menu_title: ""
-description: "Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité"
+description: "Jésus, reçu par Albert Fike : « Il y a trop de souffrance sur votre monde, une souffrance inutile, une souffrance créée par la disharmonie et le manque … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Inquiétude et préoccupations"
 menu_title: ""
-description: "Inquiétude et préoccupations"
+description: "Claire d'Assise, reçu par reçu par Jimbeau Walsh : « Mes chères souris, quel plaisir de venir vous parler ! Nous avons abordé un sujet qui pourrait … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

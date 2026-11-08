@@ -1,7 +1,7 @@
 ---
 title: "Lumière spirituelle"
 menu_title: ""
-description: "Lumière spirituelle"
+description: "André : « J'ai senti que je devais venir vous parler ce soir après avoir écouté l'être aimé parler de la Lumière. »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

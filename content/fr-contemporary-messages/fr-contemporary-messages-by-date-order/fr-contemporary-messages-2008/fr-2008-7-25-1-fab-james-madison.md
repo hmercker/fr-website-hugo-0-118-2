@@ -1,7 +1,7 @@
 ---
 title: "Un principe supérieur de gouvernement"
 menu_title: ""
-description: "Un principe supérieur de gouvernement"
+description: "James Madison, reçu par FAB : « Nous étions des mortels, et nous devions tenir compte de la matière. Mais en plus, nous pensions différemment. »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

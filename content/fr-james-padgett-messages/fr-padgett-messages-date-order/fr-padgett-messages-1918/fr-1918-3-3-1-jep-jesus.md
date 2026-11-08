@@ -1,7 +1,7 @@
 ---
 title: "Christ peut être en vous – ce que cela signifie"
 menu_title: ""
-description: "Christ peut être en vous – ce que cela signifie"
+description: "Jésus, reçu par James Padgett : « Je désire, ce soir, vous écrire en ce qui concerne la manière dont, comme le prédicateur conseille, « Christ peut être … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

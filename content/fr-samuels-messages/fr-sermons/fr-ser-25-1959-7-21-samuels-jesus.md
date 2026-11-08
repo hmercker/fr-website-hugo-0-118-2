@@ -1,7 +1,7 @@
 ---
 title: "25ème Sermon – Le vingt-troisième Psaume"
 menu_title: ""
-description: "25ème Sermon – Le vingt-troisième Psaume"
+description: "Jésus, reçu par Dr Samuels : « Le Psaume 23 est celui qui est le plus aimé et connu de tous les 150 psaumes que nous possédons, avant qu’il ne soit fait … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

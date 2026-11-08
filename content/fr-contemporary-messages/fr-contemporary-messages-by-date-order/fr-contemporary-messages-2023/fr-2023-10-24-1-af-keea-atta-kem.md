@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes avec vous dans l'amour et la joie !"
 menu_title: ""
-description: "Nous sommes avec vous dans l'amour et la joie !"
+description: "Keea Atta Kem, reçu par Albert Fike : « Nous sommes heureux parce que vous êtes réunis dans une harmonie aimante. Nous sommes heureux parce que nous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

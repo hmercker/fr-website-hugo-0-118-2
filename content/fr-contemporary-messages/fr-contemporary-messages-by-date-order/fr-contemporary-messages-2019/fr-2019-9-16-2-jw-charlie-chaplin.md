@@ -1,7 +1,7 @@
 ---
 title: "Utilisez les médias sociaux pour atteindre des millions de personnes"
 menu_title: ""
-description: "Utilisez les médias sociaux pour atteindre des millions de personnes"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « C’est Charlie comme vous le dites, oui. Comme c’est merveilleux quand le monde n’a pas de poids. »"
 date: 2022-06-01 06:00:01+00:855
 draft: False
 hidden: True

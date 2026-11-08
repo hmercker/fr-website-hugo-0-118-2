@@ -1,7 +1,7 @@
 ---
 title: "Dansez sur la musique de l'Amour de Dieu"
 menu_title: ""
-description: "Dansez sur la musique de l'Amour de Dieu"
+description: "Goldie, reçu par Al Fike : « Puissiez-vous danser sur le bel air que Dieu joue pour vous, âmes bien-aimées. Car Dieu vous portera dans cette harmonieuse … »"
 date: 2022-06-01 06:00:01+00:291
 draft: False
 hidden: True

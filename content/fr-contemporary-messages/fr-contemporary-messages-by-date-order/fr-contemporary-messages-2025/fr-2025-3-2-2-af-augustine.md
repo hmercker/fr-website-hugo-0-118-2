@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour l'Estonie"
 menu_title: ""
-description: "Conseils pour l'Estonie"
+description: "Augustin, reçu par Albert Fike : « Je vous exhorte à ouvrir votre esprit à l’univers des possibilités. Ce temps passé ensemble est précieux et riche en … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

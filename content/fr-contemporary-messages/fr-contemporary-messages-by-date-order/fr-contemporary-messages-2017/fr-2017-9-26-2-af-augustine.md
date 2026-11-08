@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir du libre arbitre"
 menu_title: ""
-description: "Le pouvoir du libre arbitre"
+description: "Augustin, reçu par Al Fike : « Que signifie le libre arbitre dans la vie d'une personne et comment affecte-t-il l'âme ? Le premier acte de choix d'une âme … »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

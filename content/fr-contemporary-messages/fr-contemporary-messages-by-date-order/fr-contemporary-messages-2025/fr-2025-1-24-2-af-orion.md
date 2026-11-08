@@ -1,7 +1,7 @@
 ---
 title: "Décrit l'obscurité croissante des états de pensée énergétique de l'humanité circulant dans notre monde"
 menu_title: ""
-description: "Décrit l'obscurité croissante des états de pensée énergétique de l'humanité circulant dans notre monde"
+description: "Orion, reçu par Albert Fike : « L’état énergétique de votre monde est souvent comparable à celui du temps qui change autour de votre planète. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

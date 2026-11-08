@@ -1,7 +1,7 @@
 ---
 title: "Immortalité par St. Luc – L’auteur du troisième Évangile du Nouveau Testament"
 menu_title: ""
-description: "Immortalité par St. Luc – L’auteur du troisième Évangile du Nouveau Testament"
+description: "St Luc, reçu par James Padgett : « Je voudrais partager quelques réflexions sur la question de l’immortalité au sujet de laquelle vous avez beaucoup … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

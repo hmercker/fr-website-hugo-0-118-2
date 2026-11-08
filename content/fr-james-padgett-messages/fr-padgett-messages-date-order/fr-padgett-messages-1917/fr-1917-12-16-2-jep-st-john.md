@@ -1,7 +1,7 @@
 ---
 title: "Saint Jean, l’ange gardien de M. Padgett a dit que Jésus, notre leader, fait un grand effort pour établir, dans les Cieux Célestes, un Royaume de Dieu"
 menu_title: ""
-description: "Saint Jean, l’ange gardien de M. Padgett a dit que Jésus, notre leader, fait un grand effort pour établir, dans les Cieux Célestes, un Royaume de Dieu"
+description: "St Jean, reçu par James Padgett : « Je ne dirai que quelques mots. Bien que je n’aie pas écrit sur ces vérités, j’ai beaucoup été avec vous pour vous … »"
 date: 2022-06-01 06:00:01+00:192
 draft: False
 hidden: True

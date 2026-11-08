@@ -1,7 +1,7 @@
 ---
 title: "Influence spirituelle et loi de l’attraction"
 menu_title: ""
-description: "Influence spirituelle et loi de l’attraction"
+description: "Anne Rollins, reçu par Jimbeau Walsh Fike : « Je souhaite parler de l’influence spirituelle et de la loi de l’attraction et de la façon dont ces deux … »"
 date: 2023-09-01 06:00:01+00:61
 draft: False
 hidden: True

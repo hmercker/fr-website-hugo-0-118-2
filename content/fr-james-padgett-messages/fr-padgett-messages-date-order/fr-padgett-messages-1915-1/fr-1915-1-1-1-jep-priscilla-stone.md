@@ -1,7 +1,7 @@
 ---
 title: "Premier message formel de la mère du Dr Leslie R. Stone"
 menu_title: ""
-description: "Premier message formel de la mère du Dr Leslie R. Stone"
+description: "Priscilla Stone, reçu par James Padgett : « Il ne doit pas douter que sa mère est ici, car elle est là, et elle était présente plusieurs fois lorsque vous … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

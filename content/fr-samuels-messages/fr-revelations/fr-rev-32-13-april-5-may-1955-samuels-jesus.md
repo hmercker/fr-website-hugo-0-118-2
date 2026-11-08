@@ -1,7 +1,7 @@
 ---
 title: "32ème Révélation : Les premiers disciples à recevoir l’Amour Divin, au-delà de la Seconde Mort"
 menu_title: ""
-description: "32ème Révélation : Les premiers disciples à recevoir l’Amour Divin, au-delà de la Seconde Mort"
+description: "Jésus, reçu par Dr Samuels : « Premièrement, je voudrais parler du renouvellement de l’Amour Divin aux mortels. Je tiens à réitérer que mes disciples … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

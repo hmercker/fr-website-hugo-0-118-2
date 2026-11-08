@@ -1,7 +1,7 @@
 ---
 title: "Clarification de FDR"
 menu_title: ""
-description: "Clarification de FDR"
+description: "Franklin D Roosevelt, reçu par FAB : « Vous venez de lire que j’ai dit, à propos de la nomination de personnes liées à l’élite dans mon administration … »"
 date: 2022-06-01 06:00:01+00:287
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les merveilles de l’âme"
 menu_title: ""
-description: "Les merveilles de l’âme"
+description: "Flavius Josèphe, reçu par Al Fike : « Bien que les âmes de la plupart des hommes soient incomplètes, à moitié pleines; pleine de vie, pleine de lumière  … »"
 date: 2022-06-01 06:00:01+00:1221
 draft: False
 hidden: True

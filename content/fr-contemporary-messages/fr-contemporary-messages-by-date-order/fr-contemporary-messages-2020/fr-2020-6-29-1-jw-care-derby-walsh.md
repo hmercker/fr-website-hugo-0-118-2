@@ -1,7 +1,7 @@
 ---
 title: "Fou de Dieu"
 menu_title: ""
-description: "Fou de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Quand St François comme vous le connaissez, quand notre frère François s’est éloigné du monde… ils ont dit  … »"
 date: 2022-06-01 06:00:01+00:1164
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le ministère de Jésus et les enseignements de l'Amour Divin"
 menu_title: ""
-description: "Le ministère de Jésus et les enseignements de l'Amour Divin"
+description: "Jésus, reçu par Al Fike : « Il y en a beaucoup aujourd’hui qui croient que mon message et mon but de venir sur cette Terre sont nés de mon sacrifice sur … »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

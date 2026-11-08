@@ -1,7 +1,7 @@
 ---
 title: "Les conditions terrestres et le libre arbitre de chaque individu détermineront qui participera à la retraite"
 menu_title: ""
-description: "Les conditions terrestres et le libre arbitre de chaque individu détermineront qui participera à la retraite"
+description: "Seretta Kem, reçu par Al Fike : « Tout d’abord, je dois dire qu’il est intéressant que certains pensent que depuis qu’ils ont été appelés, toutes les … »"
 date: 2022-06-01 06:00:01+00:1542
 draft: False
 hidden: True

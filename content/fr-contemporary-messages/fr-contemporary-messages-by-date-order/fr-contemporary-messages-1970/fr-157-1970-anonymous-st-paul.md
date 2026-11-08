@@ -1,7 +1,7 @@
 ---
 title: "N'ayez pas peur"
 menu_title: ""
-description: "N'ayez pas peur"
+description: "St Paul : « Ce n'est pas facile, mes amis, quand on s'avance en tant que serviteur de Dieu et que l'on est prêt à abandonner et à renoncer à beaucoup de … »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

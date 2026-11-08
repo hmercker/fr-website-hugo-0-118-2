@@ -1,7 +1,7 @@
 ---
 title: "Dans l'Amour et la Gratitude de Dieu"
 menu_title: ""
-description: "Dans l'Amour et la Gratitude de Dieu"
+description: "Joseph Babinsky, reçu par Al Fike : « C’est votre votre ami Joseph . Je souhaite exprimer ma profonde gratitude ainsi que ma joie que le travail, que j’ai … »"
 date: 2023-09-01 06:00:01+00:08
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ce que les hommes peuvent faire pour supprimer la guerre et le mal des âmes des hommes. Jésus n’est jamais venu apporter une épée, mais apporter la paix par ses enseignements"
 menu_title: ""
-description: "Ce que les hommes peuvent faire pour supprimer la guerre et le mal des âmes des hommes. Jésus n’est jamais venu apporter une épée, mais apporter la paix par ses enseignements"
+description: "Jésus, reçu par James Padgett : « Je désire dire que j’étais avec vous ce soir à l’église. En écoutant le sermon du prédicateur (Dr. »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

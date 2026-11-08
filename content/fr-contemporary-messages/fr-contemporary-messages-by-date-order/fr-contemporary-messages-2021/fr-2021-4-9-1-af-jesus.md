@@ -1,7 +1,7 @@
 ---
 title: "Leçon 1 : Changements Terrestres"
 menu_title: ""
-description: "Leçon 1 : Changements Terrestres"
+description: "Jésus, reçu par Al Fike : « Je souhaite que vous sachiez qu’il existe une contrepartie à chaque manifestation physique de la Création de Dieu. »"
 date: 2022-06-01 06:00:01+00:1462
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tombons amoureux"
 menu_title: ""
-description: "Tombons amoureux"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mets ton esprit de côté et donne-toi à Moi. Tu es la plus merveilleuse de toutes Mes créations. »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

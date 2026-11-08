@@ -1,7 +1,7 @@
 ---
 title: "Saelish – La réincarnation n’existe pas"
 menu_title: ""
-description: "Saelish – La réincarnation n’existe pas"
+description: "Saelish, reçu par James Padgett : « Je fus, lors de ma vie terrestre, un habitant du grand Empire d’Assyrie dont Ninive était la capitale. »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

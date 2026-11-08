@@ -1,7 +1,7 @@
 ---
 title: "La Loi de l’Amour Divin"
 menu_title: ""
-description: "La Loi de l’Amour Divin"
+description: "Judas, reçu par H : « Comme je te l’ai promis, me voici à nouveau, Judas, ton guide le long de ta quête de Dieu et de son Amour. »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

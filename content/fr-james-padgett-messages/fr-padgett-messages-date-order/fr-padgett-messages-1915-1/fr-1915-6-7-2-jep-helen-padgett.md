@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirmant que Jésus avait écrit à M. Padgett"
 menu_title: ""
-description: "Hélène affirmant que Jésus avait écrit à M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu es trop somnolent pour écrire, tu ferais mieux d’aller au lit et de bien dormir. »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

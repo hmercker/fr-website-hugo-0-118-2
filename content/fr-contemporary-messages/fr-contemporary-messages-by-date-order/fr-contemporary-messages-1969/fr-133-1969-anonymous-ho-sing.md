@@ -1,7 +1,7 @@
 ---
 title: "Le seul moyen de trouver la paix et l'amour est l'Amour de Dieu"
 menu_title: ""
-description: "Le seul moyen de trouver la paix et l'amour est l'Amour de Dieu"
+description: "Ho Sing : « C'est merveilleux de venir vous voir ce soir. D'être autorisé à vous parler en présence du plus grand maître de tous, mes amis. »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

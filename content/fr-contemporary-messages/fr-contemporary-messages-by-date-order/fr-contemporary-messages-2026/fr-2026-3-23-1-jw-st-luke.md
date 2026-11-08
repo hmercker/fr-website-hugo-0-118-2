@@ -1,7 +1,7 @@
 ---
 title: "La Chrysalide"
 menu_title: ""
-description: "La Chrysalide"
+description: "St Luc, reçu par Jimbeau Walsh : « Par la foi, vous pouvez être guéris ; par la foi, vous pouvez faire ce pas qui, vous le savez, vous mènera vers la … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

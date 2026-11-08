@@ -1,7 +1,7 @@
 ---
 title: "Que s’est-il réellement passé lors de la crucifixion de Jésus ?"
 menu_title: ""
-description: "Que s’est-il réellement passé lors de la crucifixion de Jésus ?"
+description: "Samuel, reçu par James Padgett : « Je voudrais écrire quelques lignes ce soir, car je ne vous ai pas écrit depuis longtemps et je désire vous décrire la … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

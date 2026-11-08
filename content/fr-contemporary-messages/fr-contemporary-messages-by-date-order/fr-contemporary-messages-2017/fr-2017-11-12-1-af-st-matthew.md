@@ -1,7 +1,7 @@
 ---
 title: "Dieu est Amour"
 menu_title: ""
-description: "Dieu est Amour"
+description: "St Matthieu, reçu par Al Fike : « Cette Lumière et cet Amour qui se construiront en vous agiront pour allumer une bénédiction pour ceux que vous aimez et … »"
 date: 2022-06-01 06:00:01+00:195
 draft: False
 hidden: True

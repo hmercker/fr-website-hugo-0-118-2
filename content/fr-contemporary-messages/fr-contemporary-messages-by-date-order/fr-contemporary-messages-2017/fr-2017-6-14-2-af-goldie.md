@@ -1,7 +1,7 @@
 ---
 title: "Un conseil de Goldie : « Soyez joyeux »"
 menu_title: ""
-description: "Un conseil de Goldie : « Soyez joyeux »"
+description: "Goldie, reçu par Al Fike : « La vie est joie, beauté et amour. Ne vous prenez pas trop au sérieux. »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

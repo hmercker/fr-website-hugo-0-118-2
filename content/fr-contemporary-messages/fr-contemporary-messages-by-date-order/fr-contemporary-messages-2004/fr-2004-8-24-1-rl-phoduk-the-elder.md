@@ -1,7 +1,7 @@
 ---
 title: "Même la pierre retourne à la poussière"
 menu_title: ""
-description: "Même la pierre retourne à la poussière"
+description: "Phoduk l'Ancien, reçu par RL : « Mon travail consistait à suivre le Pharaon et à noter ce qui m'était dicté. Pour écrire rapidement, on prenait un bâton … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

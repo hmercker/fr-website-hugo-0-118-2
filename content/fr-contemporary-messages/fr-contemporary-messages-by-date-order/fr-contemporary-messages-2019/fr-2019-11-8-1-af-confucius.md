@@ -1,7 +1,7 @@
 ---
 title: "Chaque rencontre est une bénédiction"
 menu_title: ""
-description: "Chaque rencontre est une bénédiction"
+description: "Confucius, reçu par Al Fike : « Âmes bien-aimées, c’est Confucius qui est ici. Je vous apporte mes bénédictions, âmes bien-aimées, voyageurs intrépides … »"
 date: 2022-06-01 06:00:01+00:897
 draft: False
 hidden: True

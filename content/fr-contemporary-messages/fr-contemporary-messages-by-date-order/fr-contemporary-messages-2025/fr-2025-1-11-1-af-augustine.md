@@ -1,7 +1,7 @@
 ---
 title: "Écoutez votre propre âme plutôt que les conseils des autres"
 menu_title: ""
-description: "Écoutez votre propre âme plutôt que les conseils des autres"
+description: "Augustin, reçu par Albert Fike : « Je vous exhorte à ne pas écouter ni à tenir compte des conseils des autres, mais à vous tourner vers votre propre âme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

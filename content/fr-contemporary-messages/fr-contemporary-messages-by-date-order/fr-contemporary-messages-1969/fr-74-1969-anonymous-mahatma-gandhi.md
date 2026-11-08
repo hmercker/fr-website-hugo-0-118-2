@@ -1,7 +1,7 @@
 ---
 title: "Nous devons devenir de véritables serviteurs pour Dieu"
 menu_title: ""
-description: "Nous devons devenir de véritables serviteurs pour Dieu"
+description: "Mahatma Gandhi : « Je sais que plus tard dans la soirée, vous allez prier pour que je vous parle en voix directe et je prie avec vous pour que je puisse … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Moïse et les femmes"
 menu_title: ""
-description: "Moïse et les femmes"
+description: "Moïse, reçu par FAB : « En tant que jeune homme en bonne santé, j’étais attiré par les femmes, et il me semblait que j’étais moi-même attirant. »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

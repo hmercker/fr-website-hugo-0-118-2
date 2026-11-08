@@ -1,7 +1,7 @@
 ---
 title: "Un philosophe allemand, maintenant dans la deuxième sphère, a écrit sur l’immortalité et l’incertitude de l’obtenir même dans le monde spirituel"
 menu_title: ""
-description: "Un philosophe allemand, maintenant dans la deuxième sphère, a écrit sur l’immortalité et l’incertitude de l’obtenir même dans le monde spirituel"
+description: "Gottfried Leibnitz, reçu par James Padgett : « Laissez-moi écrire quelques lignes. Je fus professeur sur terre et j’ai consacré une grande partie de mon … »"
 date: 2022-06-01 06:00:01+00:143
 draft: False
 hidden: True

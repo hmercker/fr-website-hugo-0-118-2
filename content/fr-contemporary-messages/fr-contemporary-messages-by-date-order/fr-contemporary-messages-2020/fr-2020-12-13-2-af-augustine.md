@@ -1,7 +1,7 @@
 ---
 title: "Ce qui se passe pendant les cercles de lumière"
 menu_title: ""
-description: "Ce qui se passe pendant les cercles de lumière"
+description: "Augustin, reçu par Al Fike : « Lorsque vous vous réunissez comme vous le faites de cette façon, vous êtes si nombreux à vous unir dans la prière. »"
 date: 2022-06-01 06:00:01+00:1344
 draft: False
 hidden: True

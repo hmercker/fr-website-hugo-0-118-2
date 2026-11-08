@@ -1,7 +1,7 @@
 ---
 title: "Abstenez-vous de toute discussion politique ou relative aux changements terrestres"
 menu_title: ""
-description: "Abstenez-vous de toute discussion politique ou relative aux changements terrestres"
+description: "Augustin, reçu par Al Fike : « Je vous exhorte à ne pas vous engager dans la condition humaine. Ces manières de faire de la politique, de la religion, de … »"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True

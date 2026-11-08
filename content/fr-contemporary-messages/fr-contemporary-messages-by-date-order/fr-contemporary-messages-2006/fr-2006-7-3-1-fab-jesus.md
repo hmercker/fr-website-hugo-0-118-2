@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente la présence Juive dans les messages de James Padgett"
 menu_title: ""
-description: "Jésus commente la présence Juive dans les messages de James Padgett"
+description: "Jésus, reçu par FAB : « Permets-moi de commenter les références aux Juifs et au Judaïsme dans les messages de James Padgett. »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

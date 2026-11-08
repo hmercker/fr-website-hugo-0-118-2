@@ -1,7 +1,7 @@
 ---
 title: "Honorez la Création de Dieu et la Création vous honorera"
 menu_title: ""
-description: "Honorez la Création de Dieu et la Création vous honorera"
+description: "Mylora, reçu par Albert Fike : « Lorsque je parcourais le monde, j’étais connue comme une femme-médecine, même si ce n’était ni mon étiquette ni mon nom à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

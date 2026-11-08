@@ -1,7 +1,7 @@
 ---
 title: "La conscience de l'âme plutôt que les croyances du mental"
 menu_title: ""
-description: "La conscience de l'âme plutôt que les croyances du mental"
+description: "Grace Jordan, reçu par Albert Fike : « Moi aussi, j’attends avec une grande impatience les jours à venir, alors que vous vous réunissez avec les belles … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

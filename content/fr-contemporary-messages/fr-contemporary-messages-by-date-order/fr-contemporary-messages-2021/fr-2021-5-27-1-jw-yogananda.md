@@ -1,7 +1,7 @@
 ---
 title: "De nombreux saints ont prié de tout leur cœur pour l'Amour de Dieu"
 menu_title: ""
-description: "De nombreux saints ont prié de tout leur cœur pour l'Amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Notre cher frère James Padgett m’a permis de m’avancer aujourd’hui. Je voudrais commencer par dire que je n’étais … »"
 date: 2022-06-01 06:00:01+00:1517
 draft: False
 hidden: True

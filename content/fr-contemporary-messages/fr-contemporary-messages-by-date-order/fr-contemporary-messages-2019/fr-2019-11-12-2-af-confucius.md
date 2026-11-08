@@ -1,7 +1,7 @@
 ---
 title: "Dieu se sert de vous de bien des manières différentes"
 menu_title: ""
-description: "Dieu se sert de vous de bien des manières différentes"
+description: "Confucius, reçu par Al Fike : « Votre ami Confucius est ici, écoutant vos supplications de guérison et d’élévation. Dieu envoie ses anges, n’est-ce pas … »"
 date: 2022-06-01 06:00:01+00:907
 draft: False
 hidden: True

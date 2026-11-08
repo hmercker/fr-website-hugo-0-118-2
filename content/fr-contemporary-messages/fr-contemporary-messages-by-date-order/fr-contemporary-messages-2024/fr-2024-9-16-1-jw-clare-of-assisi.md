@@ -1,7 +1,7 @@
 ---
 title: "Le silence est d'or"
 menu_title: ""
-description: "Le silence est d'or"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Que nos cœurs soient ouverts dans ce cercle afin que le Créateur puisse remplir chaque âme de l’essence de Son … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

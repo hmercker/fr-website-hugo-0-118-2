@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme est aimée de la même façon par Dieu"
 menu_title: ""
-description: "Chaque âme est aimée de la même façon par Dieu"
+description: "Confucius, reçu par Albert Fike : « Vous avez tous besoin de rafraîchir votre esprit, votre âme et votre mental. Précieux oiseaux, chantez vos chants à Dieu. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

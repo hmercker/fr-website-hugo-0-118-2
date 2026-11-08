@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes appelés à apporter la vérité de Dieu au monde"
 menu_title: ""
-description: "Vous êtes appelés à apporter la vérité de Dieu au monde"
+description: "Étienne, reçu par Al Fike : « Et je vous exhorte à rester fidèles à votre compréhension et à vos croyances, au pouvoir de l’Amour pour guérir, au grand … »"
 date: 2022-06-01 06:00:01+00:1361
 draft: False
 hidden: True

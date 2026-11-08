@@ -1,7 +1,7 @@
 ---
 title: "Se ressourcer dans la prière pour se préparer aux défis à venir"
 menu_title: ""
-description: "Se ressourcer dans la prière pour se préparer aux défis à venir"
+description: "Adriana, reçu par Al Fike : « De nombreux défis se présenteront à chacun d’entre vous dans les temps à venir. Il est bon que vous vous ressourciez dans la … »"
 date: 2022-06-01 06:00:01+00:1244
 draft: False
 hidden: True

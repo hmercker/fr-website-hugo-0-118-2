@@ -1,7 +1,7 @@
 ---
 title: "Parle clairement de ce qui est requis pour les manifestations vocales directes"
 menu_title: ""
-description: "Parle clairement de ce qui est requis pour les manifestations vocales directes"
+description: "Augustin, reçu par Al Fike : « Dieu bénit les enfants de la Vérité car ils hériteront de la Terre, une Terre que Dieu prépare et qu’il nettoiera afin que … »"
 date: 2023-09-01 06:00:01+00:02
 draft: False
 hidden: True

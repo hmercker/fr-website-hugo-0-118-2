@@ -1,7 +1,7 @@
 ---
 title: "Les lois simples de Dieu"
 menu_title: ""
-description: "Les lois simples de Dieu"
+description: "Abraham Lincoln : « Je vous remercie, mes amis, et je remercie Dieu d'être un homme simple. Oh, mes amis, bien que je sois en esprit, je souhaite vous … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

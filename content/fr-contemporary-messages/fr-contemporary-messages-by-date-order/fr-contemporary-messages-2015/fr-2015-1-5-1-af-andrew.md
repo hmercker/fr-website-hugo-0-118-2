@@ -1,7 +1,7 @@
 ---
 title: "L’importance de permettre l’expiation de vos âmes dans l’Amour de Dieu"
 menu_title: ""
-description: "L’importance de permettre l’expiation de vos âmes dans l’Amour de Dieu"
+description: "André, reçu par Al Fike : « L’année à venir sera une année de grands changements et de nombreuses opportunités. Certains d’entre vous se sentent agités et … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

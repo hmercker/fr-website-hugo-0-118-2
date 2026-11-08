@@ -1,7 +1,7 @@
 ---
 title: "Le Moyen-Orient et la vérité"
 menu_title: ""
-description: "Le Moyen-Orient et la vérité"
+description: "David Ben-Gurion, reçu par FAB : « Alors que vous lisez le livre \"The Israel Lobby and U.S. Foreign Policy (Le lobby Israélien et la politique étrangère … »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

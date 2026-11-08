@@ -1,7 +1,7 @@
 ---
 title: "Initiation de l'âme"
 menu_title: ""
-description: "Initiation de l'âme"
+description: "St Matthieu, reçu par Al Fike : « Vous avez reçu le don de la vie. Une âme résidant dans le ventre de Dieu entreprend un voyage qui lui permettra … »"
 date: 2023-09-01 06:00:01+00:85
 draft: False
 hidden: True

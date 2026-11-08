@@ -1,7 +1,7 @@
 ---
 title: "Leçon 9 : La conscience de l’âme est la clé de la naissance d’un nouveau monde"
 menu_title: ""
-description: "Leçon 9 : La conscience de l’âme est la clé de la naissance d’un nouveau monde"
+description: "Jésus, reçu par Al Fike : « Mon désir est qu’il y ait une grande élévation et un grand réveil parmi tous les peuples de ce monde afin qu’ils puissent … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

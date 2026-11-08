@@ -1,7 +1,7 @@
 ---
 title: "Le rachat d’une âme perdue"
 menu_title: ""
-description: "Le rachat d’une âme perdue"
+description: "Marie Antoinette, reçu par Al Fike : « Beaucoup d’amour à vous, beaux enfants de la lumière. Je m’appelle Joséphine et vous me connaissez peut-être par … »"
 date: 2022-06-01 06:00:01+00:1163
 draft: False
 hidden: True

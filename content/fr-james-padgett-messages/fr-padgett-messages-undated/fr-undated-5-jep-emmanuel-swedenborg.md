@@ -1,7 +1,7 @@
 ---
 title: "Un message d’encouragement"
 menu_title: ""
-description: "Un message d’encouragement"
+description: "Emmanuel Swedenborg, reçu par James Padgett : « Je sais maintenant que ce que j’ai tenté de faire a été entravé par mes idées préconçues basées sur les … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

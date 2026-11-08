@@ -1,7 +1,7 @@
 ---
 title: "Hélène – Confirmation que Jésus et Elizabeth ont écrit les messages précédents"
 menu_title: ""
-description: "Hélène – Confirmation que Jésus et Elizabeth ont écrit les messages précédents"
+description: "Hélène Padgett, reçu par James Padgett : « Tu es plus proche du Père que tu ne l’as jamais été, et Son amour est maintenant plus répandu dans ton cœur que … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

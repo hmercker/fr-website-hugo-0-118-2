@@ -1,7 +1,7 @@
 ---
 title: "Un espoir pour l'environnement"
 menu_title: ""
-description: "Un espoir pour l'environnement"
+description: "Jésus, reçu par FAB : « Il n'y a pas de problème trop grand pour le Seigneur. L'harmonie viendra sur Terre. »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

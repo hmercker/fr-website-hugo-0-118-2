@@ -1,7 +1,7 @@
 ---
 title: "Création d'un sanctuaire"
 menu_title: ""
-description: "Création d'un sanctuaire"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Comme vous le savez peut-être, tous les conseils que j’ai reçus pour la création de Findhorn l’ont été dans la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

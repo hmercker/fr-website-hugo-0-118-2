@@ -1,7 +1,7 @@
 ---
 title: "Les Gunas et au-delà"
 menu_title: ""
-description: "Les Gunas et au-delà"
+description: "Yogananda, reçu par Jimbeau Walsh : « Récemment, je me suis exprimé par l'intermédiaire de cet autre cher frère au sujet de la nécessité de se concentrer … »"
 date: 2026-09-08 16:00:01+00:01
 draft: False
 hidden: True

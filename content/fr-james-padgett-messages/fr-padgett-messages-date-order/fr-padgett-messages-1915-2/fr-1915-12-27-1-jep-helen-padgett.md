@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett n’approuve pas l’idée de M. Padgett d’envoyer un message à une personne qui ne l’apprécie pas"
 menu_title: ""
-description: "Hélène Padgett n’approuve pas l’idée de M. Padgett d’envoyer un message à une personne qui ne l’apprécie pas"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien chéri, j’attends depuis un certain temps de t’écrire pour te dire que ce n’est pas la bonne chose … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

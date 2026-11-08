@@ -1,7 +1,7 @@
 ---
 title: "Amants et bien-aimés"
 menu_title: ""
-description: "Amants et bien-aimés"
+description: "Inayat Khan, reçu par Jimbeau Walsh : « Je guidais mon frère aujourd’hui, j’étais donc présent lors de votre discussion animée sur la compréhension de la … »"
 date: 2022-06-01 06:00:01+00:175
 draft: False
 hidden: True

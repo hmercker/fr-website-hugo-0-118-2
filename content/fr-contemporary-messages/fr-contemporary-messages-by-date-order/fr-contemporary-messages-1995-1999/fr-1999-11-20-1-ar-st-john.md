@@ -1,7 +1,7 @@
 ---
 title: "Encourager Alfredo"
 menu_title: ""
-description: "Encourager Alfredo"
+description: "St Jean, reçu par Amada Reza : « Notre Maître a enseigné le potentiel de l’âme humaine à recevoir l’Amour Divin de Dieu, un Don qui a été ré-attribué aux … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

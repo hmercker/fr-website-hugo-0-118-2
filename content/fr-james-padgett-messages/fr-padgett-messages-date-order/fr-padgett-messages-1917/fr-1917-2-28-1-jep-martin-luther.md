@@ -1,7 +1,7 @@
 ---
 title: "Luther commente la brochure suédoise intitulée « Dieu incarné »"
 menu_title: ""
-description: "Luther commente la brochure suédoise intitulée « Dieu incarné »"
+description: "Martin Luther, reçu par James Padgett : « Je désire simplement dire que, dans le pamphlet que j’ai lu avec vous, la description et l’explication sur qui … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jean écrit qu’il n’y a actuellement personne à travers le monde qui est capable de faire le travail que vous faites maintenant. Vous devez continuer à faire aussi longtemps que vous serez sur terre"
 menu_title: ""
-description: "Jean écrit qu’il n’y a actuellement personne à travers le monde qui est capable de faire le travail que vous faites maintenant. Vous devez continuer à faire aussi longtemps que vous serez sur terre"
+description: "St Jean, reçu par James Padgett : « Vous êtes plus à l’unisson avec l’Amour du Père que vous ne l’avez été pendant un certain temps et vous vous rendez … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

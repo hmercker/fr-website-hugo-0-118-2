@@ -1,7 +1,7 @@
 ---
 title: "Les désirs de votre âme sont nombreux"
 menu_title: ""
-description: "Les désirs de votre âme sont nombreux"
+description: "André, reçu par Al Fike : « De nombreux anges vous entourent en ce moment, âmes bien-aimées, car lorsque vous suppliez le Père Céleste pour Son Amour … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

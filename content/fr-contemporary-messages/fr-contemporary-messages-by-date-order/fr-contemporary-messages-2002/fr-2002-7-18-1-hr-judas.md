@@ -1,7 +1,7 @@
 ---
 title: "Le Jugement"
 menu_title: ""
-description: "Le Jugement"
+description: "Judas, reçu par H : « Tu te sens mieux maintenant ? Si c’est le cas, comme je te l’ai promis hier, je vais te livrer un court message. »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

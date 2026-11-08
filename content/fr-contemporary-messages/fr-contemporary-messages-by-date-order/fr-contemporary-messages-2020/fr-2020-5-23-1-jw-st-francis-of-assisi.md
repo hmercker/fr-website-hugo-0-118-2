@@ -1,7 +1,7 @@
 ---
 title: "Permettez aux intentions de vos âmes de vous atteindre"
 menu_title: ""
-description: "Permettez aux intentions de vos âmes de vous atteindre"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Vous avez souvent entendu dire que nous vous appelons enfants, frères, sœurs, nos amis, car en vérité … »"
 date: 2022-06-01 06:00:01+00:1114
 draft: False
 hidden: True

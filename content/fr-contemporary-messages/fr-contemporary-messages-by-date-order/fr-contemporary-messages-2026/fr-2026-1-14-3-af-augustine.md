@@ -1,7 +1,7 @@
 ---
 title: "Chaque jour est une bénédiction et une occasion de progresser"
 menu_title: ""
-description: "Chaque jour est une bénédiction et une occasion de progresser"
+description: "Augustin, reçu par Albert Fike : « Vous arrivez peut-être au terme d’une étape de votre développement et de votre éveil spirituel, mais ce n’est … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

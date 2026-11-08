@@ -1,7 +1,7 @@
 ---
 title: "Conseils à ceux qui luttent pour établir une connexion plus forte avec Dieu "
 menu_title: ""
-description: "Conseils à ceux qui luttent pour établir une connexion plus forte avec Dieu "
+description: "Barbara, reçu par Albert Fike : « Certains d’entre vous sont assez durs avec eux-mêmes. Lorsque vous avez du mal à atteindre Dieu, vous vous blâmez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le miracle de la transformation de l'âme"
 menu_title: ""
-description: "Le miracle de la transformation de l'âme"
+description: "Yogananda, reçu par Jimbeau Walsh : « Le miracle qu’est la transformation de chaque âme dans l’Amour de Dieu. Vous n’avez pas besoin de quitter votre … »"
 date: 2022-06-01 06:00:01+00:1345
 draft: False
 hidden: True

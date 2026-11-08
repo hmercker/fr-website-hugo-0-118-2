@@ -1,7 +1,7 @@
 ---
 title: "Conseils en matière de communication interpersonnelle" 
 menu_title: ""
-description: "Conseils en matière de communication interpersonnelle "
+description: "Aaron, reçu par Albert Fike : « Le chemin vers la lumière vous est ouvert, âmes bien-aimées. L’Esprit Saint de la grande Âme de Dieu touche chacun de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

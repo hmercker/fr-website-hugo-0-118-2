@@ -1,7 +1,7 @@
 ---
 title: "Les anges vous entourent en grand nombre, plus qu'il n'y en a jamais eu dans ce monde"
 menu_title: ""
-description: "Les anges vous entourent en grand nombre, plus qu'il n'y en a jamais eu dans ce monde"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Le fleuve de l’Amour se déverse en vous, accompagné de grands jaillissements de lumière vivante, de l’essence … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

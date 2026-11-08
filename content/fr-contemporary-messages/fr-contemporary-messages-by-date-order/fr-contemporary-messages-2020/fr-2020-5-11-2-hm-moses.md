@@ -1,7 +1,7 @@
 ---
 title: "Visez le plus haut"
 menu_title: ""
-description: "Visez le plus haut"
+description: "Moïse, reçu par Helge Mercker : « Je parle et je t’apporte mon amour. J’apporte mon amour dans la prière et j’apporte la sagesse de la vérité telle que je … »"
 date: 2022-06-01 06:00:01+00:1098
 draft: False
 hidden: True

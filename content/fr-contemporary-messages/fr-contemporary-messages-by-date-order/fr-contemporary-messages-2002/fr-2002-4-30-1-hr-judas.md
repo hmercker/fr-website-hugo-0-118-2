@@ -1,7 +1,7 @@
 ---
 title: "Les Samaritains, première partie"
 menu_title: ""
-description: "Les Samaritains, première partie"
+description: "Judas, reçu par H : « Aujourd’hui, j’ai envie de revenir à un sujet historique. En fait, nous parlerons de certaines parties de l’histoire de l’Ancien … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

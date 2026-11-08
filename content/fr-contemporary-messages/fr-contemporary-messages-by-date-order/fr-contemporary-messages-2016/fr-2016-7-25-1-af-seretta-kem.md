@@ -1,7 +1,7 @@
 ---
 title: "La puissance exponentielle des prières"
 menu_title: ""
-description: "La puissance exponentielle des prières"
+description: "Seretta Kem, reçu par Al Fike : « La puissance de la multiplication des prières. Et dans ces cercles survient une grande Lumière, un portail de Lumière … »"
 date: 2022-06-01 06:00:01+00:224
 draft: False
 hidden: True

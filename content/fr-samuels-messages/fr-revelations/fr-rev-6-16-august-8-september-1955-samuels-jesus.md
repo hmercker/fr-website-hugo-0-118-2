@@ -1,7 +1,7 @@
 ---
 title: "6ème Révélation : La création de l’homme"
 menu_title: ""
-description: "6ème Révélation : La création de l’homme"
+description: "Jésus, reçu par Dr Samuels : « Comme vous le savez, l’homme a été créé par Dieu à partir des éléments de l’univers et dans l’homme fut implanté l’âme, ou … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

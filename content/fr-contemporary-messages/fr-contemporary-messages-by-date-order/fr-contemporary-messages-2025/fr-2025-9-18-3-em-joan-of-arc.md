@@ -1,7 +1,7 @@
 ---
 title: "Ayez de la compassion"
 menu_title: ""
-description: "Ayez de la compassion"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Lorsque je vivais sur terre, j'habitais ici. Et maintenant, je vis avec Dieu dans le Royaume Céleste, où de … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

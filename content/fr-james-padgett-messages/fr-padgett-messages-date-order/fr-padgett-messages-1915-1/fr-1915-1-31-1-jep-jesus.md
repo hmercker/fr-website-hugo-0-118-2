@@ -1,7 +1,7 @@
 ---
 title: "M.Padgett a reçu le deuxième message formel de Jésus seulement quelques jours plus tard, sur le thème de la Nature du Père comme étant mon Dieu et votre Dieu"
 menu_title: ""
-description: "M.Padgett a reçu le deuxième message formel de Jésus seulement quelques jours plus tard, sur le thème de la Nature du Père comme étant mon Dieu et votre Dieu"
+description: "Jésus, reçu par James Padgett : « Comme je vous l’ai dit, je vais écrire mon deuxième message ce soir. Je ne vais pas vous parler du Royaume de mon Père … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

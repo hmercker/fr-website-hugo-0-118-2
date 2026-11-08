@@ -1,7 +1,7 @@
 ---
 title: "Cet amour vous transportera à la fontaine de la grâce"
 menu_title: ""
-description: "Cet amour vous transportera à la fontaine de la grâce"
+description: "Yogananda, reçu par Jimbeau Walsh : « Car c’est cette énergie active de l’âme de Dieu qui transmet son Amour à tous ceux qui s’ouvrent pour le recevoir, à … »"
 date: 2022-06-01 06:00:01+00:1489
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les fondements solides de la prière et de la foi"
 menu_title: ""
-description: "Les fondements solides de la prière et de la foi"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Car le Père nous envoie, et nous venons avec joie. Il est important, lorsque l’on construit une communauté … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

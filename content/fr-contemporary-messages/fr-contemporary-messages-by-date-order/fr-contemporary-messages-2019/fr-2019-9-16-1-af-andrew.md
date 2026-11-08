@@ -1,7 +1,7 @@
 ---
 title: "Les porteurs de lumière se réuniront"
 menu_title: ""
-description: "Les porteurs de lumière se réuniront"
+description: "André, reçu par Al Fike : « Comme nous vous l’avons dit dans le passé, les porteurs de lumière vont se réunir. Comme nous l’avons dit, les pensées et les … »"
 date: 2022-06-01 06:00:01+00:854
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dieu cherche à réconcilier l'humanité avec Lui alors que les changements terrestres balaient le monde"
 menu_title: ""
-description: "Dieu cherche à réconcilier l'humanité avec Lui alors que les changements terrestres balaient le monde"
+description: "André, reçu par Al Fike : « Vous priez pour ceux qui sont perdus et dans les ténèbres dans votre monde, et ces ténèbres ont proliféré pendant de … »"
 date: 2022-06-01 06:00:01+00:1126
 draft: False
 hidden: True

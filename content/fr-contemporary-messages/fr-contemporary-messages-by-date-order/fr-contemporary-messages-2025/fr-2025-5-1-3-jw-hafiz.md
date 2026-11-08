@@ -1,7 +1,7 @@
 ---
 title: "Un festin de ça"
 menu_title: ""
-description: "Un festin de ça"
+description: "Hafiz, reçu par reçu par Jimbeau Walsh : « Ce qui est créé dans l’obscurité Peut regarder mais ne pas voir Ce qui est créé dans le chaos Peut écouter mais … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

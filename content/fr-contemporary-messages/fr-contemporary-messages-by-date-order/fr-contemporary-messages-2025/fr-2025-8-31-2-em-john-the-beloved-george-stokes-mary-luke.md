@@ -1,7 +1,7 @@
 ---
 title: "Un grand service rendu au sein du Cercle aujourd’hui"
 menu_title: ""
-description: "Un grand service rendu au sein du Cercle aujourd’hui"
+description: "Jean le Bien-Aimé, George Stokes, Marie et Luc, reçu par Elizabeth Mack : « L’Amour Divin est présent dans vos âmes. Vous êtes rares parmi tant d’autres … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

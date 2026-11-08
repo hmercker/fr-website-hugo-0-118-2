@@ -1,7 +1,7 @@
 ---
 title: "Le Chemin du Ciel : Choisir la Lumière plutôt que les Ténèbres"
 menu_title: ""
-description: "Le Chemin du Ciel : Choisir la Lumière plutôt que les Ténèbres"
+description: "Augustin, reçu par Albert Fike : « Quel bonheur de voir tant de personnes venues des quatre coins du monde, chacune en quête de vérité, chacune … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

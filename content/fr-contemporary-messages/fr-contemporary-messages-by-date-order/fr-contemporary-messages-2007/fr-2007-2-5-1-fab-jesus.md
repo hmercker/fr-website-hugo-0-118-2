@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle des messages de James Padgett"
 menu_title: ""
-description: "Jésus parle des messages de James Padgett"
+description: "Jésus, reçu par FAB : « Permettez-moi de commenter les messages de James Padgett. Padgett a terminé son travail, il a laissé derrière lui des … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

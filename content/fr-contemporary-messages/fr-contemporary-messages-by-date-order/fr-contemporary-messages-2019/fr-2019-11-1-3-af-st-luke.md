@@ -1,7 +1,7 @@
 ---
 title: "Le discernement dans le service"
 menu_title: ""
-description: "Le discernement dans le service"
+description: "St Luc, reçu par Al Fike : « Beaucoup dans votre monde sont désespérément en quête d’amour, cherchent à soulager leur douleur et sont très confus, ayant … »"
 date: 2022-06-01 06:00:01+00:893
 draft: False
 hidden: True

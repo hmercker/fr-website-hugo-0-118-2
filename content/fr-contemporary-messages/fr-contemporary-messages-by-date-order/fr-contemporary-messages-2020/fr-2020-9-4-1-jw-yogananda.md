@@ -1,7 +1,7 @@
 ---
 title: "Ne maudissez pas l’obscurité, mais louez la lumière"
 menu_title: ""
-description: "Ne maudissez pas l’obscurité, mais louez la lumière"
+description: "Yogananda, reçu par Jimbeau Walsh : « Alors que vous priez pour que l’Amour de Dieu soit dans vos âmes. Je souhaite que vous y réfléchissiez : Il y a deux … »"
 date: 2022-06-01 06:00:01+00:1241
 draft: False
 hidden: True

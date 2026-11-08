@@ -1,7 +1,7 @@
 ---
 title: "Soyez un véritable serviteur et enseignant pour Dieu"
 menu_title: ""
-description: "Soyez un véritable serviteur et enseignant pour Dieu"
+description: "St Paul : « Je n'ai pas senti que je devais venir à ce moment parce qu'il me semblait que tout ce que je pourrais dire serait inadéquat devant la … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Quelques propos du Révérend GV Owen"
 menu_title: ""
-description: "Quelques propos du Révérend GV Owen"
+description: "Pasteur George Vale Owen, reçu par Jimbeau Walsh : « Vous me connaissez peut-être sous le nom de Révérend Owen. À un moment donné de la vie de chaque âme … »"
 date: 2022-06-01 06:00:01+00:1378
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le processus de nettoyage de l’âme et la possibilité de purification sur Terre"
 menu_title: ""
-description: "Le processus de nettoyage de l’âme et la possibilité de purification sur Terre"
+description: "Orion, reçu par Albert Fike : « Bénédictions à vous, mes amis. Les changements de conscience ne se produisent pas aisément ni facilement dans votre monde. »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

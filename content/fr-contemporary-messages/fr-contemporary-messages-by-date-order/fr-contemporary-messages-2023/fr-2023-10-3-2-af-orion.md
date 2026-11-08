@@ -1,7 +1,7 @@
 ---
 title: "Nous faisons tous l'expérience de Dieu de manières uniques"
 menu_title: ""
-description: "Nous faisons tous l'expérience de Dieu de manières uniques"
+description: "Orion, reçu par Albert Fike : « Vos désirs, vos pensées, vos actions sont tout à fait transparents pour chacun de nous. Car nous avons les perceptions et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

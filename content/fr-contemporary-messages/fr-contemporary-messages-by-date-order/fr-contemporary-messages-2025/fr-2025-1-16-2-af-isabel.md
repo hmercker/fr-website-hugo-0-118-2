@@ -1,7 +1,7 @@
 ---
 title: "Se présente comme le guide de Sonja pour son anniversaire "
 menu_title: ""
-description: "Se présente comme le guide de Sonja pour son anniversaire "
+description: "Isabelle, reçu par Albert Fike : « Je vous guide et je vous aime. J’ai été avec vous toute votre vie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

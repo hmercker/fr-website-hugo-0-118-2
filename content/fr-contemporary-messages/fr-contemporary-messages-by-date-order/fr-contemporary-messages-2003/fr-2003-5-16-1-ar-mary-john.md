@@ -1,7 +1,7 @@
 ---
 title: "Esprit Divin"
 menu_title: ""
-description: "Esprit Divin"
+description: "Marie & Jean, reçu par Amada Reza : « Nous sommes tous les deux disciples de notre Maître, Jésus, dans la mesure où nous prions notre Père Céleste pour … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les prières à utiliser dans le service offrent des opportunités de croissance et d'apprentissage"
 menu_title: ""
-description: "Les prières à utiliser dans le service offrent des opportunités de croissance et d'apprentissage"
+description: "Barthélémy, reçu par Albert Fike : « Que les bénédictions du Père Céleste vous touchent profondément, âmes bien-aimées. Merci, chère fille, ta prière et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu de vous changer"
 menu_title: ""
-description: "Permettez à Dieu de vous changer"
+description: "Yogananda, reçu par Jimbeau Walsh : « Dans le monde matériel, il y a du changement, comme dans le monde de esprit, il y a de l’acceptation, de la … »"
 date: 2022-06-01 06:00:01+00:1307
 draft: False
 hidden: True

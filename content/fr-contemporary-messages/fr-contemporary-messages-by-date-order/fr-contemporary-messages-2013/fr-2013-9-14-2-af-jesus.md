@@ -1,7 +1,7 @@
 ---
 title: "Encouragement"
 menu_title: ""
-description: "Encouragement"
+description: "Jésus, reçu par Albert Fike : « Je serai avec vous à chaque étape, et beaucoup, beaucoup d’êtres célestes vous accompagneront dans vos efforts à travers … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

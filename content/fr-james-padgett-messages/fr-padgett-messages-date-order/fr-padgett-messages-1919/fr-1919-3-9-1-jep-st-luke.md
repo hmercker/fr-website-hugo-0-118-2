@@ -1,7 +1,7 @@
 ---
 title: "Saint Luc, sur les enseignements de la Nouvelle Pensée et son explication des croyances erronées de celle-ci"
 menu_title: ""
-description: "Saint Luc, sur les enseignements de la Nouvelle Pensée et son explication des croyances erronées de celle-ci"
+description: "St Luc, reçu par James Padgett : « J’étais avec vous aujourd’hui lors d’une réunion du peuple de la Nouvelle Pensée et j’ai vu l’impression qui vous a été … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

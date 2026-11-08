@@ -1,7 +1,7 @@
 ---
 title: "Ressentir les désirs de votre âme"
 menu_title: ""
-description: "Ressentir les désirs de votre âme"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Cher enfant, tes sentiments expriment le désir de ton âme. Quand tu fais attention à tes sentiments, tu … »"
 date: 2022-06-01 06:00:01+00:252
 draft: False
 hidden: True

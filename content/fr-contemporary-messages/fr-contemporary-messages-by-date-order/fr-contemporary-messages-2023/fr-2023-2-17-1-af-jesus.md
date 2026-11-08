@@ -1,7 +1,7 @@
 ---
 title: "La vérité de l'Amour Divin"
 menu_title: ""
-description: "La vérité de l'Amour Divin"
+description: "Jesus, reçu par Al Fike : « Car en vérité, chacun de vous est mon frère et je me soucie de chacun de vous, j’aime chacun de vous. »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

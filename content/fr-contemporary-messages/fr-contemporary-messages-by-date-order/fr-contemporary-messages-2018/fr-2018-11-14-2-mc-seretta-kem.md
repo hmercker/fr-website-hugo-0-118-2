@@ -1,7 +1,7 @@
 ---
 title: "Les liens d'amour de l'âme"
 menu_title: ""
-description: "Les liens d'amour de l'âme"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Vous connaissez les liens d’amour, les liens que l’Amour de Dieu crée. Beaucoup d’entre vous sont en prière … »"
 date: 2022-06-01 06:00:01+00:562
 draft: False
 hidden: True

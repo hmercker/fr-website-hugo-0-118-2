@@ -1,7 +1,7 @@
 ---
 title: "Le développement de l’âme dans son amour naturel (suite)"
 menu_title: ""
-description: "Le développement de l’âme dans son amour naturel (suite)"
+description: "St Luc, reçu par James Padgett : « Eh bien, pensez-vous être en mesure de prendre mon message ce soir ? Il semble que vous le pouvez – en tout cas, nous … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

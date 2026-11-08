@@ -1,7 +1,7 @@
 ---
 title: "Disciples de la Vérité et Messagers de l'Amour de Dieu"
 menu_title: ""
-description: "Disciples de la Vérité et Messagers de l'Amour de Dieu"
+description: "Jésus, Isaïe et Moïse, reçu par Albert Fike : « Nous nous réjouissons de votre rassemblement, de vos efforts et de vos prières, du désir d’apporter la … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

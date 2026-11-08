@@ -1,7 +1,7 @@
 ---
 title: "Clarte de lame"
 menu_title: ""
-description: "Clarté de l'âme"
+description: "Yogananda, reçu par Jimbeau Walsh : « Mes chers êtres, vous êtes des âmes précieuses, acteurs sur la scène de la vie, jouant le plan Divin. »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

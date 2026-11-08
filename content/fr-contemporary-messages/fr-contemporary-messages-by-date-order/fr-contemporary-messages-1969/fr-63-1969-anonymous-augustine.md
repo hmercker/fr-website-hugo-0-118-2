@@ -1,7 +1,7 @@
 ---
 title: "Élevez votre vision vers le haut, vers le plus élevé"
 menu_title: ""
-description: "Élevez votre vision vers le haut, vers le plus élevé"
+description: "Augustin : « Une fois de plus, je peux venir et faire connaître ma présence. Il se peut qu'il y en ait dans la salle sur les oreilles desquels mes mots … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le monde n’est qu’une illusion de notre imagination"
 menu_title: ""
-description: "Le monde n’est qu’une illusion de notre imagination"
+description: "Yogananda, reçu par WV : « Je m’appelle Paramahansa Yogananda et j’ai l’honneur de m’adresser à vous ce soir. Permettez-moi de commencer en disant que … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

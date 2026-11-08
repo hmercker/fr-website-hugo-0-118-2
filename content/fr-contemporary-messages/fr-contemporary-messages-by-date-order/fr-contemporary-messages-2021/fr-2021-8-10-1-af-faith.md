@@ -1,7 +1,7 @@
 ---
 title: "Priez pour le monde, en particulier pour le Centre mondial de guérison"
 menu_title: ""
-description: "Priez pour le monde, en particulier pour le Centre mondial de guérison"
+description: "Faith, reçu par Al Fike : « Et comme vous êtes avec Dieu, puissiez-vous sentir la joie dans votre cœur qui vient avec le Toucher de Dieu dans votre âme … »"
 date: 2022-06-01 06:00:01+00:1596
 draft: False
 hidden: True

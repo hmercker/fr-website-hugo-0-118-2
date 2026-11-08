@@ -1,7 +1,7 @@
 ---
 title: "Jacques le mineur désire ajouter son témoignage aux messages eçus de la part du Maître et des esprits Célestes"
 menu_title: ""
-description: "Jacques le mineur désire ajouter son témoignage aux messages eçus de la part du Maître et des esprits Célestes"
+description: "Jacques le mineur, reçu par James Padgett : « Je sais que cela vous a été dit par de nombreux esprits, mais je veux néanmoins ajouter mon témoignage, car … »"
 date: 2022-06-01 06:00:01+00:303
 draft: False
 hidden: True

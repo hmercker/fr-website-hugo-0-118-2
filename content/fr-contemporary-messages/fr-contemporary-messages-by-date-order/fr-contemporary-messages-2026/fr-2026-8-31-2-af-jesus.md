@@ -1,7 +1,7 @@
 ---
 title: "Obstacles de l’esprit et de l’âme"
 menu_title: ""
-description: "Obstacles de l’esprit et de l’âme"
+description: "Jésus, reçu par Albert Fike : « En effet, des anges sont avec vous et vous accompagnent sur cette voie ; Dieu éclaire le chemin pour chacun d’entre vous … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

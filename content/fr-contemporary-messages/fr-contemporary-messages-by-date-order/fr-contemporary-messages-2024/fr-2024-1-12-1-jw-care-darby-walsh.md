@@ -1,7 +1,7 @@
 ---
 title: "Chagrin et amour"
 menu_title: ""
-description: "Chagrin et amour"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Bien que j’avais promis à mon cher Jimbeau de délivrer aujourd’hui un message d’un autre genre, je … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

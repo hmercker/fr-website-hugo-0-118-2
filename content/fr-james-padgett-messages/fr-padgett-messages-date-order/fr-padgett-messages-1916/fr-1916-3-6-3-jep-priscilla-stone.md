@@ -1,7 +1,7 @@
 ---
 title: "La mère du Dr Stone exprime son grand amour pour son fils et rend compte des progrès de son père et de sa sœur et de son âme-sœur Mary"
 menu_title: ""
-description: "La mère du Dr Stone exprime son grand amour pour son fils et rend compte des progrès de son père et de sa sœur et de son âme-sœur Mary"
+description: "Priscilla Stone, reçu par James Padgett : « Son père est aussi très heureux, il progresse et est maintenant certain de bientôt me rejoindre, nous pourrons … »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "67ème Sermon – Beaucoup de chrétiens considèrent ces sermons comme prophétiques"
 menu_title: ""
-description: "67ème Sermon – Beaucoup de chrétiens considèrent ces sermons comme prophétiques"
+description: "Jésus, reçu par Dr Samuels : « Pour continuer avec le chapitre 53 : 4-6 Cependant, ce sont nos souffrances qu’il a portées, C’est de nos douleurs qu’il … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

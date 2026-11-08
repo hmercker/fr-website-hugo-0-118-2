@@ -1,7 +1,7 @@
 ---
 title: "Je viendrai renforcer une bénédiction avec chacun de vous pour revigorer le monde"
 menu_title: ""
-description: "Je viendrai renforcer une bénédiction avec chacun de vous pour revigorer le monde"
+description: "Matthieu, reçu par Elizabeth Mack : « Je salue chacun d’entre vous, je vous souhaite la bienvenue en ce lieu, en ce moment où les âmes se rassemblent pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

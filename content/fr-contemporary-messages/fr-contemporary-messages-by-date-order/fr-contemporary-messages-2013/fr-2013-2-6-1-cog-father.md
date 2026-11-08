@@ -1,7 +1,7 @@
 ---
 title: "Ne laissez pas votre mental limiter votre pensée"
 menu_title: ""
-description: "Ne laissez pas votre mental limiter votre pensée"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Ne laisse pas ton mental limiter ta pensée. Ton mental ne peut imaginer que ce que tu penses. »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

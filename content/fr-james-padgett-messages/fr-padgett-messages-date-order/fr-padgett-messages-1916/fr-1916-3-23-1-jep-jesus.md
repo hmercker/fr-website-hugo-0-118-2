@@ -1,7 +1,7 @@
 ---
 title: "Comment l’Amour Divin entre dans l’âme de l’homme"
 menu_title: ""
-description: "Comment l’Amour Divin entre dans l’âme de l’homme"
+description: "Jésus, reçu par James Padgett : « Comme je vous l’ai déjà dit, l’homme est une créature de Dieu, ayant un corps, un esprit et une âme ; et tout cela est … »"
 date: 2022-06-01 06:00:01+00:187
 draft: False
 hidden: True

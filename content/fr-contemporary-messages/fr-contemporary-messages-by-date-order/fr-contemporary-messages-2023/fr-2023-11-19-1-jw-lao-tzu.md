@@ -1,7 +1,7 @@
 ---
 title: "La Voie"
 menu_title: ""
-description: "La Voie"
+description: "Lao Tseu, reçu par Jimbeau Walsh : « Mais j’ajoute maintenant que permettre les bénédictions du ciel dans votre vie vous transformera d’humain en divin. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

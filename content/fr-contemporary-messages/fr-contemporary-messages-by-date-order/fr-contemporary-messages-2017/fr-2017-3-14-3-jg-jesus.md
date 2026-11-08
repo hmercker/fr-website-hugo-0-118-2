@@ -1,7 +1,7 @@
 ---
 title: "La dévotion"
 menu_title: ""
-description: "La dévotion"
+description: "Jésus, reçu par Jane Gartshore : « Recherchez l'amour de Dieu par-dessus tout. Il est devant vous, à portée de main. »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

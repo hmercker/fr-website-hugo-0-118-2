@@ -1,7 +1,7 @@
 ---
 title: "Être un vecteur de l'Amour de Dieu"
 menu_title: ""
-description: "Être un vecteur de l'Amour de Dieu"
+description: "Yogananda, reçu par Al Fike : « J’ai été avec vous pendant la matinée et je vous trouve tous assez amusants, votre conversation était très mondaine bien … »"
 date: 2022-06-01 06:00:01+00:572
 draft: False
 hidden: True

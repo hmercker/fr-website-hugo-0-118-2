@@ -1,7 +1,7 @@
 ---
 title: "Le conflit entre les pensées et l’âme"
 menu_title: ""
-description: "Le conflit entre les pensées et l’âme"
+description: "Augustin, reçu par Al Fike : « Reconnaissez-vous vos deux moi, celui qui est humain et celui qui est votre âme ? Lorsque vous naissez, ces deux moi sont … »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

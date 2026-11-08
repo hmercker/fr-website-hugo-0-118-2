@@ -1,7 +1,7 @@
 ---
 title: "Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes"
 menu_title: ""
-description: "Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes"
+description: "Michaël Collier, reçu par Al Fike : « Que le précieux Amour Divin de Dieu entre dans vos âmes, mes amis. Je ne vous ai pas parlé depuis un certain temps. »"
 date: 2022-06-01 06:00:01+00:1610
 draft: False
 hidden: True

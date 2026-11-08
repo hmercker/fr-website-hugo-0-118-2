@@ -1,7 +1,7 @@
 ---
 title: "27ème Révélation : Ce que le Père a voulu dire en donnant au peuple un Nouveau Cœur"
 menu_title: ""
-description: "27ème Révélation : Ce que le Père a voulu dire en donnant au peuple un Nouveau Cœur"
+description: "Jésus, reçu par Dr Samuels : « Je vous ai déjà écrit, antérieurement, au sujet de ce que j’ai appris du Père, mais je compléterai cela avec des … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

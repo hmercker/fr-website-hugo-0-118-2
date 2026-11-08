@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que le grand amour de Jésus fut accordé à son mari. Elle fut remplie de crainte"
 menu_title: ""
-description: "Hélène affirme que le grand amour de Jésus fut accordé à son mari. Elle fut remplie de crainte"
+description: "Hélène Padgett, reçu par James Padgett : « Mais, mon chéri, je dois te dire que tu es très cher au Maître et, à un très grand degré, un enfant de l’Amour … »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

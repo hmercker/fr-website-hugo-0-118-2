@@ -1,7 +1,7 @@
 ---
 title: "Prière pour notre monde (2021 Cercle de prière en ligne)"
 menu_title: ""
-description: "Prière pour notre monde (2021 Cercle de prière en ligne)"
+description: "Orion, reçu par Al Fike : « Soyez bénis, beaux enfants du monde. En effet, votre Terre et ce que Dieu a créé sur cette belle sphère dans l’univers, est … »"
 date: 2022-06-01 06:00:01+00:1672
 draft: False
 hidden: True

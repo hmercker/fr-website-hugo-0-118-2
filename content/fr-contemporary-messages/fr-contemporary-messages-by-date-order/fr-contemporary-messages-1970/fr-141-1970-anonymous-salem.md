@@ -1,7 +1,7 @@
 ---
 title: "La plus grande puissance sur terre"
 menu_title: ""
-description: "La plus grande puissance sur terre"
+description: "Salem : « Ne pensez pas que je vous dérange trop souvent. Mes remerciements à vous tous, car les efforts combinés de chacun d'entre vous sont si … »"
 date: 2022-06-01 06:00:01+00:141
 draft: False
 hidden: True

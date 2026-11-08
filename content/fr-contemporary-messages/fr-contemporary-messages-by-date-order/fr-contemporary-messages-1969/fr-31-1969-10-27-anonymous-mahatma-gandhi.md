@@ -1,7 +1,7 @@
 ---
 title: "Instructions sur la Voix Directe_2"
 menu_title: ""
-description: "Instructions sur la Voix Directe_2"
+description: "Mahatma Gandhi : « J'ai également travaillé de ce côté de l'esprit, mes amis, et j'ai passé de longues heures à prier pour ce merveilleux cadeau, car je … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

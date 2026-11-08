@@ -1,7 +1,7 @@
 ---
 title: "C’est une voie qui englobe tout ; il n’existe rien de plus élevé"
 menu_title: ""
-description: "C’est une voie qui englobe tout ; il n’existe rien de plus élevé"
+description: "Augustin, reçu par Maureen Cardoso : « C’est votre enseignant, Augustin. Nous prenons plaisir à observer votre curiosité, vos connaissances et votre … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

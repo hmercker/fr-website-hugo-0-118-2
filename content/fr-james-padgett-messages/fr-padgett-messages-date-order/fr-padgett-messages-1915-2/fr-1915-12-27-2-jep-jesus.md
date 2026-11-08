@@ -1,7 +1,7 @@
 ---
 title: "Jésus ne pense pas que ce message peut faire du mal mais au contraire qu’il fera du bien"
 menu_title: ""
-description: "Jésus ne pense pas que ce message peut faire du mal mais au contraire qu’il fera du bien"
+description: "Jésus, reçu par James Padgett : « Eh bien mon cher frère, j’ai lu ce que votre femme vous a écrit et j’ai d’abord pensé que j’étais d’accord avec elle car … »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "35ème Révélation : La naissance virginale; le jeûne; la tentation par le diable; le lavage de l’Amour Divin"
 menu_title: ""
-description: "35ème Révélation : La naissance virginale; le jeûne; la tentation par le diable; le lavage de l’Amour Divin"
+description: "Jésus, reçu par Dr Samuels : « En fait, toute la conception de la naissance virginale n’était pas nouvelle dans les jours du Nouveau Testament, et, comme … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

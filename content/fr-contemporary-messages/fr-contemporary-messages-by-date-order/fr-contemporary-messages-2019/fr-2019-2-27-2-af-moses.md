@@ -1,7 +1,7 @@
 ---
 title: "Cherchez toujours le plus haut"
 menu_title: ""
-description: "Cherchez toujours le plus haut"
+description: "Moïse, reçu par Al Fike : « Cherchez toujours le plus haut, pour le plus grand bien, pour les plus grandes bénédictions. »"
 date: 2022-06-01 06:00:01+00:660
 draft: False
 hidden: True

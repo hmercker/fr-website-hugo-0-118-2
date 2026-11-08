@@ -1,7 +1,7 @@
 ---
 title: "Grover Cleveland vient vers M. Padgett pour demander de l’aide"
 menu_title: ""
-description: "Grover Cleveland vient vers M. Padgett pour demander de l’aide"
+description: "Grover Cleveland, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes. Après mon passage dans le monde des esprits, j’ai réalisé que ma … »"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

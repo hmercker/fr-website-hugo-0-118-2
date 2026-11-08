@@ -1,7 +1,7 @@
 ---
 title: "L’espoir des anges pour nous, depuis la retraite de Bassingham"
 menu_title: ""
-description: L’espoir des anges pour nous, depuis la retraite de Bassingham"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Quel bonheur de voir comment vous vous rassemblez, votre essence pure communiant avec Dieu et les uns avec les … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

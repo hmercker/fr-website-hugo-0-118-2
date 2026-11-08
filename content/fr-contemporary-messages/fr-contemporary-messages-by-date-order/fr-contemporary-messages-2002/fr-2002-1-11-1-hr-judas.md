@@ -1,7 +1,7 @@
 ---
 title: "Sur la Foi"
 menu_title: ""
-description: "Sur la Foi"
+description: "Judas, reçu par H : « Je vois que tu es très heureux aujourd’hui avec ta musique. Judas : Elle touche toutes les fibres de ton âme et la fait vibrer. »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La prédestination est fausse"
 menu_title: ""
-description: "La prédestination est fausse"
+description: "Charles Grandison Finney, reçu par FAB : « Comme vous, j'ai rejeté le Calvinisme, c'est-à-dire toute l'idée de la prédestination. Et combien cela m'a … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

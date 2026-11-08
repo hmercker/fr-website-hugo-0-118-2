@@ -1,7 +1,7 @@
 ---
 title: "L'épanouissement créatif de l'âme par l'Amour Divin"
 menu_title: ""
-description: "L'épanouissement créatif de l'âme par l'Amour Divin"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Alors que vous accédez à cet espace de repos en vous-même — celui qui permet aux aspirations de votre âme de … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

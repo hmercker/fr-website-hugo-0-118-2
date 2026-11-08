@@ -1,7 +1,7 @@
 ---
 title: "L’administrateur infidèle"
 menu_title: ""
-description: "L’administrateur infidèle"
+description: "Judas, reçu par H : « Lorsque les gens prêchent la religion, présentent les préceptes pour vivre ensemble, ou te conseillent sur ce que tu dois faire ou … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

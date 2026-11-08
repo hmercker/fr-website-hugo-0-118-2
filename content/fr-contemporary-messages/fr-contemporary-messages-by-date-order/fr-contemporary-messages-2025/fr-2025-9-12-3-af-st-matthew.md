@@ -1,7 +1,7 @@
 ---
 title: "Ceux qui cherchent véritablement Dieu le trouveront"
 menu_title: ""
-description: "Ceux qui cherchent véritablement Dieu le trouveront"
+description: "Matthieu, reçu par Al Fike : « Que la Volonté de Dieu soit votre volonté. Que l’Amour de Dieu soit votre amour. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

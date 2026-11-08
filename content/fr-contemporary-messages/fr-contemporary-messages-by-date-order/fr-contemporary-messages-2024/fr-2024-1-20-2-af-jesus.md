@@ -1,7 +1,7 @@
 ---
 title: "Écoutez la Volonté de Dieu et entretenez ce cercle de lumière"
 menu_title: ""
-description: "Écoutez la Volonté de Dieu et entretenez ce cercle de lumière"
+description: "Jésus, reçu par Albert Fike : « Que l’Amour du Père continue de vous bénir, âmes bien-aimées. Comme ce Cercle est précieux. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

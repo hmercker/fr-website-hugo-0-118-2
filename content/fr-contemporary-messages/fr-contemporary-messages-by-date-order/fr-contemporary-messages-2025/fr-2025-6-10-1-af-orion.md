@@ -1,7 +1,7 @@
 ---
 title: "Soutien et accompagnement pour le groupe des douze dans le plan divin pour la transformation du monde (2025 Direct Voice – Guidance)"
 menu_title: ""
-description: "Soutien et accompagnement pour le groupe des douze dans le plan divin pour la transformation du monde (2025 Direct Voice – Guidance)"
+description: "Orion, reçu par Albert Fike : « Une rareté au monde, car rares sont ceux qui comprennent véritablement le cheminement de l’âme. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

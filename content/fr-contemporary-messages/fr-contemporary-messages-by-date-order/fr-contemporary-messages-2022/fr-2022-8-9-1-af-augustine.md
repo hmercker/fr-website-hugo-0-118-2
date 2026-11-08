@@ -1,7 +1,7 @@
 ---
 title: "Excellent message d’enseignement sur la Volonté de Dieu et la volonté de l’homme"
 menu_title: ""
-description: "Excellent message d’enseignement sur la Volonté de Dieu et la volonté de l’homme"
+description: "Augustin, reçu par Al Fike : « Oh, combien de mauvaises actions dans le monde sont rationalisées par l’idée que Dieu perpètre de telles choses, et quelle … »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

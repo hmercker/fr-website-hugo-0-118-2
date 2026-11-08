@@ -1,7 +1,7 @@
 ---
 title: "Vos âmes ont certainement été accordées et bénies"
 menu_title: ""
-description: "Vos âmes ont certainement été accordées et bénies"
+description: "Augustin, reçu par Al Fike : « Oui vous avez été réunies âmes bien-aimées. Souvent vous étiez dans l'étonnement de savoir comment cela serait possible. »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

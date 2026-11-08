@@ -1,7 +1,7 @@
 ---
 title: "Affirme que Swedenborg a écrit. Importance que les erreurs soient corrigées dans ses écrits"
 menu_title: ""
-description: "Affirme que Swedenborg a écrit. Importance que les erreurs soient corrigées dans ses écrits"
+description: "St Luc, reçu par James Padgett : « Nous désirons tous qu’il vous écrive sur les sujets sur lesquels il a exprimé le désir d’écrire. »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

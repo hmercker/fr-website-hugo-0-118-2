@@ -1,7 +1,7 @@
 ---
 title: "Mary dit que le même Amour qui a rempli son âme et fait d’elle un Ange de Lumière coule dans l’âme de Leslie"
 menu_title: ""
-description: "Mary dit que le même Amour qui a rempli son âme et fait d’elle un Ange de Lumière coule dans l’âme de Leslie"
+description: "Mary Kennedy, reçu par James Padgett : « Vous n’êtes pas sérieux lorsque vous posez une telle question, ou vous avez oublié qu’il existe un esprit dans le … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

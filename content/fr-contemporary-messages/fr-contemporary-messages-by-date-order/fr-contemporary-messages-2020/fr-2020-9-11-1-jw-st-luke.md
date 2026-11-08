@@ -1,7 +1,7 @@
 ---
 title: "Choisissez ce qui touche votre âme"
 menu_title: ""
-description: "Choisissez ce qui touche votre âme"
+description: "St Luc, reçu par Jimbeau Walsh : « Je souhaite m’adresser au jeune Michaël. Alors que tu explores les nombreuses facettes du chemin de l’Amour Divin, les … »"
 date: 2022-06-01 06:00:01+00:1248
 draft: False
 hidden: True

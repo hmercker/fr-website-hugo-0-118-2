@@ -1,7 +1,7 @@
 ---
 title: "Ce don ne s'obtient que par la demande"
 menu_title: ""
-description: "Ce don ne s'obtient que par la demande"
+description: "André, reçu par Albert Fike : « Ce don de l'Amour du Père, Son Essence, l'Essence de Son Âme, est offert par le désir, le désir de le recevoir, le désir … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

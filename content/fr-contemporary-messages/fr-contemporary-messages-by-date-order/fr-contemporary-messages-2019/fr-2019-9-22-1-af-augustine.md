@@ -1,7 +1,7 @@
 ---
 title: "Consacrer votre temps à la voie spirituelle"
 menu_title: ""
-description: "Consacrer votre temps à la voie spirituelle"
+description: "Augustin, reçu par Al Fike : « Vous continuez à vous embarquer dans vos voyages, âmes bien-aimées. Vous avez le désir et l’inclination de le faire dans le … »"
 date: 2022-06-01 06:00:01+00:860
 draft: False
 hidden: True

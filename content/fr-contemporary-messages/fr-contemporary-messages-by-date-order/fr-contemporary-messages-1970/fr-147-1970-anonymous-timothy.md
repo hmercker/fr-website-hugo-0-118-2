@@ -1,7 +1,7 @@
 ---
 title: "Ressentez la réponse à vos prières"
 menu_title: ""
-description: "Ressentez la réponse à vos prières"
+description: "Timothée : « Je souhaite moi aussi prier Dieu de vous bénir. Il y a une grande paix et tant d'amour ici, et à vous tous qui vous êtes rapprochés de nos … »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Parle sérieusement de ce qui est nécessaire pour s’engager"
 menu_title: ""
-description: "Parle sérieusement de ce qui est nécessaire pour s’engager"
+description: "St Matthieu, reçu par Al Fike : « Nous voyons de grandes promesses dans vos efforts, car voir un groupe d’individus s’unir dans leur désir d’apporter la … »"
 date: 2022-06-01 06:00:01+00:1606
 draft: False
 hidden: True

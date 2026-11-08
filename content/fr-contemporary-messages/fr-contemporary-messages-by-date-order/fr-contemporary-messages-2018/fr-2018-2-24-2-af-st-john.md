@@ -1,7 +1,7 @@
 ---
 title: "Cherchez l'amour qui vous portera à travers les changements"
 menu_title: ""
-description: "Cherchez l'amour qui vous portera à travers les changements"
+description: "St Jean, reçu par Al Fike : « Car il y a de grands changements à venir dans ce monde et il y a des moments où vous aurez besoin les uns des autres, et … »"
 date: 2022-06-01 06:00:01+00:329
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène se réfère aux écrits de Jean, Paul et Salomon"
 menu_title: ""
-description: "Hélène se réfère aux écrits de Jean, Paul et Salomon"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien chéri, tu es fatigué et tu ne dois pas écrire beaucoup ce soir, car tu te sentiras mal à l’aise. »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

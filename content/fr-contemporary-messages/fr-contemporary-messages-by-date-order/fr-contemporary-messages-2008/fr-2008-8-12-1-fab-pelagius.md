@@ -1,7 +1,7 @@
 ---
 title: "Pélage possède la Nouvelle Naissance"
 menu_title: ""
-description: "Pélage possède la Nouvelle Naissance"
+description: "Pelage, reçu par FAB : « Dans ma canalisation du 24 août 2006, je me suis exprimé ainsi : Je ne vois aucune preuve du péché originel ici, tout comme je … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

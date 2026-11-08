@@ -1,7 +1,7 @@
 ---
 title: "Aaron était un homme très puissant sur terre"
 menu_title: ""
-description: "Aaron était un homme très puissant sur terre"
+description: "Aaron, reçu par James Padgett : « Je fus prophète, frère de Moïse et prêtre du tabernacle. J’étais un homme très puissant sur terre et j’ai enseigné aux … »"
 date: 2022-06-01 06:00:01+00:194
 draft: False
 hidden: True

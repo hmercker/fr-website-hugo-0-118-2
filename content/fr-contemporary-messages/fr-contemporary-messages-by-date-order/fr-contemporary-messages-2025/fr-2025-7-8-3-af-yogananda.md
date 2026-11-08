@@ -1,7 +1,7 @@
 ---
 title: "Le Yoga d'Amour"
 menu_title: ""
-description: "Le Yoga d'Amour"
+description: "Yogananda, reçu par Albert Fike : « Ma chère (Tina), vous suivez mes enseignements. Vous en voulez toujours plus. »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

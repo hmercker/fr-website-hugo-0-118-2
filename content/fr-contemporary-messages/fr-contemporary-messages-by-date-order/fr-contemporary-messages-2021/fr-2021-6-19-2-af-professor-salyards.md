@@ -1,7 +1,7 @@
 ---
 title: "C'est un engagement de toute une vie"
 menu_title: ""
-description: "C'est un engagement de toute une vie"
+description: "Professeur Salyards, reçu par Al Fike : « Vous serez surpris des portails, des portes et des opportunités qui s’ouvriront à vous à mesure que vous … »"
 date: 2022-06-01 06:00:01+00:1548
 draft: False
 hidden: True

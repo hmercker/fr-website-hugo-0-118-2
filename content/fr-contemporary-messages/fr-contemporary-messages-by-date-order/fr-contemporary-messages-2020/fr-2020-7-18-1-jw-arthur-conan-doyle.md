@@ -1,7 +1,7 @@
 ---
 title: "Deux spiritualistes britanniques sont sur le chemin de l’Amour Divin"
 menu_title: ""
-description: "Deux spiritualistes britanniques sont sur le chemin de l’Amour Divin"
+description: "Arthur Conan Doyle, reçu par Jimbeau Walsh : « Alors que nous progressons dans le monde des esprits jusqu’à la fontaine de l’Amour de Dieu, nous … »"
 date: 2022-06-01 06:00:01+00:1190
 draft: False
 hidden: True

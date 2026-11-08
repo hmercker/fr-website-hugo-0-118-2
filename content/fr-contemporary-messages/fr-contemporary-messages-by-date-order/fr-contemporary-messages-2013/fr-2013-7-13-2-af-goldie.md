@@ -1,7 +1,7 @@
 ---
 title: "Sachez que Dieu vous aime tellement"
 menu_title: ""
-description: "Sachez que Dieu vous aime tellement"
+description: "Goldie, reçu par Albert Fike : « Sachez que Dieu vous aime énormément et que vous êtes précieux à Ses yeux, tout comme vous l’êtes à nos yeux. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

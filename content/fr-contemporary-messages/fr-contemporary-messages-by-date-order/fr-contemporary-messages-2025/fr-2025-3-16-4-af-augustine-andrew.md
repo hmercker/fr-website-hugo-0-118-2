@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour votre voyage en Europe"
 menu_title: ""
-description: "Conseils pour votre voyage en Europe"
+description: "Augustin et André, reçu par Albert Fike : « Augustin : C’est votre enseignant, Augustine. Nous sommes heureux des progrès que vous avez accomplis jusqu’à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

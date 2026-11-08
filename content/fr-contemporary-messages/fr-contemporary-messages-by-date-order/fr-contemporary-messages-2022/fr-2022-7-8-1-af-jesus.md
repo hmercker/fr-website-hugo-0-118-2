@@ -1,7 +1,7 @@
 ---
 title: "Leçon 8 : Réflexion sur les obstacles collectifs à la conscience de l’âme dans la condition humaine"
 menu_title: ""
-description: "Leçon 8 : Réflexion sur les obstacles collectifs à la conscience de l’âme dans la condition humaine"
+description: "Jésus, reçu par Al Fike : « L’humanité est la création la plus glorieuse de Dieu sur cette planète. C’est la création la plus glorieuse de Dieu parce que … »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

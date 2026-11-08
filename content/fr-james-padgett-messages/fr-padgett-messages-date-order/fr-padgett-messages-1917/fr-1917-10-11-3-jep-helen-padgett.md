@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le message de George Whitefield"
 menu_title: ""
-description: "Hélène commente le message de George Whitefield"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu as eu une soirée très heureuse; Il ne faut pas s’en étonner car il y avait … »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

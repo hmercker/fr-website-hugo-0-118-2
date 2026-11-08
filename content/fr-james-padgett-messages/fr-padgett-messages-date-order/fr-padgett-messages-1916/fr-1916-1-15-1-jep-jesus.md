@@ -1,7 +1,7 @@
 ---
 title: "La relation de l’homme à la création du monde et l’origine de vie"
 menu_title: ""
-description: "La relation de l’homme à la création du monde et l’origine de vie"
+description: "Jésus, reçu par James Padgett : « Votre rapport avec nous est donc nettement meilleur. Je sens donc que je dois vous écrire un message sur un sujet … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

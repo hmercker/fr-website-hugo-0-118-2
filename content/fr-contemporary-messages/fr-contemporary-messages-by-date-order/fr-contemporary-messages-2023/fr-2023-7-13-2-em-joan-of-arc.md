@@ -1,7 +1,7 @@
 ---
 title: "La réponse de Dieu aux demandes de guérison"
 menu_title: ""
-description: "La réponse de Dieu aux demandes de guérison"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Car la force est ce dont vous aurez besoin à mesure que vous avancez dans votre progression. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Beethoven a toujours fait confiance à Dieu"
 menu_title: ""
-description: "Beethoven a toujours fait confiance à Dieu"
+description: "Ludwig van Beethoven, reçu par FAB : « J’apprécie cette merveilleuse occasion de prendre contact avec la vie terrestre. Il y a quelque chose que je … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

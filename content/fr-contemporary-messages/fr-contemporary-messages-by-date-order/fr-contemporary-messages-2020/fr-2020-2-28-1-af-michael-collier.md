@@ -1,7 +1,7 @@
 ---
 title: "Encouragement à apporter la vérité de l'Amour de Dieu aux autres"
 menu_title: ""
-description: "Encouragement à apporter la vérité de l'Amour de Dieu aux autres"
+description: "Michaël Collier, reçu par Al Fike : « Merci pour votre rassemblement, mes chers et précieux amis sur le plan terrestre. Je n’ai rien fait dans ma vie qui … »"
 date: 2022-06-01 06:00:01+00:1006
 draft: False
 hidden: True

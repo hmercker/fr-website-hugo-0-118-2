@@ -1,7 +1,7 @@
 ---
 title: "Circonstances inhabituelles"
 menu_title: ""
-description: "Circonstances inhabituelles"
+description: "Jésus, reçu par FAB : « Laisse-moi vous transmettre mes pensées, car vous avez besoin d'encouragement. Vous êtes en train de lire le Trilatéralisme . »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

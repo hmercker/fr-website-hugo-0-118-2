@@ -1,7 +1,7 @@
 ---
 title: "Lazare dit qu’il n’était pas mort lorsqu’il fut ressuscité par Jésus. Confirme que Jésus écrit à travers M. Padgett"
 menu_title: ""
-description: "Lazare dit qu’il n’était pas mort lorsqu’il fut ressuscité par Jésus. Confirme que Jésus écrit à travers M. Padgett"
+description: "Lazare, reçu par James Padgett : « J’étais celui que Jésus a appelé de la tombe. Je veux simplement dire que je n’étais pas mort lorsque je fus … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

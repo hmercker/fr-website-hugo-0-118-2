@@ -1,7 +1,7 @@
 ---
 title: "Dons de médiumnité"
 menu_title: ""
-description: "Dons de médiumnité"
+description: "Seretta Kem, reçu par Al Fike : « Chacun d’entre vous possède le don de médiumnité qui peut être exprimé, pas nécessairement de la manière dont je vous … »"
 date: 2022-06-01 06:00:01+00:1663
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous avez fait quelque chose de magnifique"
 menu_title: ""
-description: "Vous avez fait quelque chose de magnifique"
+description: "Faith, reçu par Albert Fike : « C’est une lueur d’espoir pour ces belles îles. C’est le début de la transformation, de la lumière touchant la lumière, de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

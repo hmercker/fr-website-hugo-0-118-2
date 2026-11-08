@@ -1,7 +1,7 @@
 ---
 title: "Saint Luc mentionne aussi que même Jésus dans ses écrits peut épuiser son pouvoir selon les lois spirituelles"
 menu_title: ""
-description: "Saint Luc mentionne aussi que même Jésus dans ses écrits peut épuiser son pouvoir selon les lois spirituelles"
+description: "St Luc, reçu par James Padgett : « Je veux simplement ajouter mon témoignage à celui de Jean et vous dire que vous ne devez pas douter que le Maître vous … »"
 date: 2022-06-01 06:00:01+00:211
 draft: False
 hidden: True

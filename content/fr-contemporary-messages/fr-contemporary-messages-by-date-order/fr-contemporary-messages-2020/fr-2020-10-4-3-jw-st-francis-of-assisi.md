@@ -1,7 +1,7 @@
 ---
 title: "Le secret"
 menu_title: ""
-description: "Le secret"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Je vous remercie de vous être réunis pour recevoir l’Amour de notre Créateur et pour m’honorer, moi et le … »"
 date: 2022-06-01 06:00:01+00:1266
 draft: False
 hidden: True

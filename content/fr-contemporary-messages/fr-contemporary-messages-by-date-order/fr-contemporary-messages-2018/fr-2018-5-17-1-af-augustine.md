@@ -1,7 +1,7 @@
 ---
 title: "60/40 Défi de l’esprit d’âme_2ème partie"
 menu_title: ""
-description: "60/40 Défi de l’esprit d’âme_2ème partie"
+description: "Augustin, reçu par Al Fike : « Avant tout, je tiens à dire que je n’indique pas que 60 % de votre journée doit se dérouler dans votre âme et 40 % dans … »"
 date: 2022-06-01 06:00:01+00:393
 draft: False
 hidden: True

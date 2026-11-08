@@ -1,7 +1,7 @@
 ---
 title: "Les politiciens dans le monde des esprits - 4"
 menu_title: ""
-description: "Les politiciens dans le monde des esprits - 4"
+description: "William Howard Taft, reçu par FAB : « Je vois que mon commentaire concernant les politiciens vous a dérangé, mais vous avez quand même permis à ma pensée … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

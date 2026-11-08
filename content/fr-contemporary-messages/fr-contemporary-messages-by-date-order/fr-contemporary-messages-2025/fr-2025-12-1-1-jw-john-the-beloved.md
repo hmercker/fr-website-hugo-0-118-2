@@ -1,7 +1,7 @@
 ---
 title: "Les Dons de l'Esprit"
 menu_title: ""
-description: "Les Dons de l'Esprit"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Nous sommes tous aimés de Dieu. Dans cette prière, nous recevons tous non seulement la grandeur du Père … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

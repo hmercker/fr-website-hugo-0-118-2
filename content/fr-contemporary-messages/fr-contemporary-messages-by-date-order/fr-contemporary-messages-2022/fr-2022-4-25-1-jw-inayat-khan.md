@@ -1,7 +1,7 @@
 ---
 title: "Gardez un chant dans votre cœur"
 menu_title: ""
-description: "Gardez un chant dans votre cœur"
+description: "Inayat Khan, reçu par Jimbeau Walsh : « Je souhaite que vous considériez le son de votre voix, la vibration qu’elle transporte, l’endroit d’où elle émane … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

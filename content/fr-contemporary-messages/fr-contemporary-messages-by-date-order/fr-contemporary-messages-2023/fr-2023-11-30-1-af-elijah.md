@@ -1,7 +1,7 @@
 ---
 title: "Les vents du changement"
 menu_title: ""
-description: "Les vents du changement"
+description: "Élie, reçu par Albert Fike : « Le vent du changement souffle dans vos âmes. Vous ressentez son appel tempéré, vous poussant à vous ouvrir à Dieu, vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

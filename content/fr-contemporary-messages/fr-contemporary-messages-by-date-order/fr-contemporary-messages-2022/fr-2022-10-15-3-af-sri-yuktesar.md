@@ -1,7 +1,7 @@
 ---
 title: "L'instrumentalité de Lorraine se manifeste"
 menu_title: ""
-description: "L'instrumentalité de Lorraine se manifeste"
+description: "Sri Yuktesar, reçu par Al Fike : « Fille bien-aimée, vous avez répondu à l’appel et entendu les conseils et affirmé pour vous-même lorsque vous priez pour … »"
 date: 2023-09-01 06:00:01+00:52
 draft: False
 hidden: True

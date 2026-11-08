@@ -1,7 +1,7 @@
 ---
 title: "Guidance pour le rassemblement mondial de la célébration de l'Amour Divin"
 menu_title: ""
-description: "Guidance pour le rassemblement mondial de la célébration de l'Amour Divin"
+description: "Professeur Salyards, reçu par Al Fike : « J'applaudis vos efforts pour planifier et continuer à prendre en compte les variables et les situations que vous … »"
 date: 2023-09-01 06:00:01+00:98
 draft: False
 hidden: True

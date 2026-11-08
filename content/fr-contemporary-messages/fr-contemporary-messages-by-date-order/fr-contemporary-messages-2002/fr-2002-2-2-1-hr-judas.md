@@ -1,7 +1,7 @@
 ---
 title: "Nathanaël, le premier disciple"
 menu_title: ""
-description: "Nathanaël, le premier disciple"
+description: "Judas, reçu par H : « Ce fut intéressant d’observer tes deux chiens. Dès que tu caresses l’un d’eux, l’autre arrive rapidement, s’immisçant et réclamant … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

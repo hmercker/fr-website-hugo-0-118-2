@@ -1,7 +1,7 @@
 ---
 title: "Communion de l'âme avec Dieu"
 menu_title: ""
-description: "Communion de l'âme avec Dieu"
+description: "Flavius Josèphe, reçu par Al Fike : « Je crois que vous comprenez tous que pour connaître vraiment Dieu et connaître votre vrai moi, votre âme, il faut … »"
 date: 2022-06-01 06:00:01+00:1018
 draft: False
 hidden: True

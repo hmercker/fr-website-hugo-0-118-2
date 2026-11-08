@@ -1,7 +1,7 @@
 ---
 title: "Votre chemin se rétrécit dans la simplicité et la joie !"
 menu_title: ""
-description: "Votre chemin se rétrécit dans la simplicité et la joie !"
+description: "Orion, reçu par Albert Fike : « Le chemin se rétrécit pour vous tous, mes amis. L’intensité de votre développement et votre concentration continuent de se … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

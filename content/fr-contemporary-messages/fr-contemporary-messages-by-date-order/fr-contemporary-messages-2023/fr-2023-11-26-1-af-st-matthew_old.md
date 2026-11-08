@@ -1,7 +1,7 @@
 ---
 title: "Vient renforcer les aspirations de vos âmes"
 menu_title: ""
-description: "Vient renforcer les aspirations de vos âmes"
+description: "Matthieu, reçu par Albert Fike : « L’Amour de Dieu se déverse sur vous en cet instant même, âmes bien-aimées. Car combien de fois avez-vous l’occasion de … »"
 date: 2026-09-15 06:00:01+00:01
 draft: False
 hidden: True

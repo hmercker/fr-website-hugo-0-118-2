@@ -1,7 +1,7 @@
 ---
 title: "Pas à pas, vous apprenez bien vos leçons"
 menu_title: ""
-description: "Pas à pas, vous apprenez bien vos leçons"
+description: "St Jean, reçu par Kathryn Stokes : « Je prie pour un grand afflux de Ton Amour Divin en ce moment. Je prie pour être capable de mettre de côté mes … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

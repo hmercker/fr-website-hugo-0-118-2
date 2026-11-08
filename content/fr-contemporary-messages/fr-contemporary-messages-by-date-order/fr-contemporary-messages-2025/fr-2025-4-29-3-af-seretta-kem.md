@@ -1,7 +1,7 @@
 ---
 title: "Exprime sa joie face à la progression de notre âme"
 menu_title: ""
-description: "Exprime sa joie face à la progression de notre âme"
+description: "Seretta Kem, reçu par Albert Fike : « En effet, combien de fois avons-nous cette occasion de le faire ? Quelle chance de bénéficier des dons et des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

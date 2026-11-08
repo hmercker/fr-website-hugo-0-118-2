@@ -1,7 +1,7 @@
 ---
 title: "Leçon 16 : La décision la plus importante de votre vie"
 menu_title: ""
-description: "Leçon 16 : La décision la plus importante de votre vie"
+description: "Jésus, reçu par Al Fike : « Que l’Amour de notre Père Céleste continue à s’infiltrer dans vos âmes et à réveiller tout ce qui est en vous en transformant … »"
 date: 2022-06-01 06:00:01+00:1380
 draft: False
 hidden: True

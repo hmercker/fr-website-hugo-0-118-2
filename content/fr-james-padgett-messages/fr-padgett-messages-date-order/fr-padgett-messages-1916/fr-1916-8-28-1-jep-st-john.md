@@ -1,7 +1,7 @@
 ---
 title: "Jean donne les raisons pour lesquelles des corrections doivent être effectuées dans le Nouveau Testament et que Jacques est le vrai frère de Jésus"
 menu_title: ""
-description: "Jean donne les raisons pour lesquelles des corrections doivent être effectuées dans le Nouveau Testament et que Jacques est le vrai frère de Jésus"
+description: "St Jean, reçu par James Padgett : « Je veux simplement vous dire que vous serez bientôt en bonne condition et en état de recevoir certains de nos messages … »"
 date: 2022-06-01 06:00:01+00:265
 draft: False
 hidden: True

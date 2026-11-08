@@ -1,7 +1,7 @@
 ---
 title: "Ce qui apporte l'harmonie dans ce monde continue"
 menu_title: ""
-description: "Ce qui apporte l'harmonie dans ce monde continue"
+description: "Martin Luther, reçu par Al Fike : « J'ai mentionné que toute la vie dans la Création de Dieu et dans l'univers obéit à des cycles, des rythmes et des … »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

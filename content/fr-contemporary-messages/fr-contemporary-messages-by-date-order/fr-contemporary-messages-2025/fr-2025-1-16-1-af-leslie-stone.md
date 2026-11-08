@@ -1,7 +1,7 @@
 ---
 title: "Nous encourage à poursuivre le travail de James Padgett"
 menu_title: ""
-description: "	Nous encourage à poursuivre le travail de James Padgett"
+description: "Leslie Stone, reçu par Albert Fike : « Car l’humanité a besoin de connaître cette vérité et il est important que chacun d’entre vous la fasse connaître. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

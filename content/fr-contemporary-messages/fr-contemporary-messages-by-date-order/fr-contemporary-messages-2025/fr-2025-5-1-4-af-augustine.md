@@ -1,7 +1,7 @@
 ---
 title: "Faites vos preuves, mes beaux et chers étudiants"
 menu_title: ""
-description: "Faites vos preuves, mes beaux et chers étudiants"
+description: "Augustin, reçu par Albert Fike : « Avez-vous une idée des efforts qui ont été déployés pour vous aider à grandir et à vous développer dans la Vérité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

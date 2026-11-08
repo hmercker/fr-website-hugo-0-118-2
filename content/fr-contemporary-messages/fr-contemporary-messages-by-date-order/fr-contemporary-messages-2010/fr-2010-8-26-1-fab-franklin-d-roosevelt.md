@@ -1,7 +1,7 @@
 ---
 title: "Franklin D. Roosevelt sur les complexités d'un président"
 menu_title: ""
-description: "Franklin D. Roosevelt sur les complexités d'un président"
+description: "Franklin D Roosevelt, reçu par FAB : « Je vois que vous ne savez pas encore très bien quelle est votre position sur mon New Deal, s'il était bon ou mauvais. »"
 date: 2022-06-01 06:00:01+00:150
 draft: False
 hidden: True

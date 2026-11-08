@@ -1,7 +1,7 @@
 ---
 title: "Surmonter les réticences et la peur dans l’exercice du leadership et au service de Dieu"
 menu_title: ""
-description: "Surmonter les réticences et la peur dans l’exercice du leadership et au service de Dieu"
+description: "Alec Guant, reçu par Albert Fike : « Note : Il s’agissait d’un message personnel, mais il a été partagé avec l’ensemble de la communauté, avec l’accord … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

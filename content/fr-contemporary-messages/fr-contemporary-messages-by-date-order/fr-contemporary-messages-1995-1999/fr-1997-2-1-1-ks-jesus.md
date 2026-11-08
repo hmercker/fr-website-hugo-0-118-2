@@ -1,7 +1,7 @@
 ---
 title: "Conseils sur la guérison... Commentaires sur les livres censés être écrits par Dieu"
 menu_title: ""
-description: "Conseils sur la guérison... Commentaires sur les livres censés être écrits par Dieu"
+description: "Jésus, reçu par Kathryn Stokes : « veut être rassuré sur le fait qu'il y a un chemin pour sortir de la fosse de douleur solitaire dans laquelle il se … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

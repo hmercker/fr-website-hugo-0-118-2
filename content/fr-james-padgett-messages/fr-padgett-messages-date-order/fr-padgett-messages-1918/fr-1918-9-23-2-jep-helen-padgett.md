@@ -1,7 +1,7 @@
 ---
 title: "Exhorte M. Padgett à tout mettre en œuvre pour retrouver la condition comme Jean l’a écrit"
 menu_title: ""
-description: "Exhorte M. Padgett à tout mettre en œuvre pour retrouver la condition comme Jean l’a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Si seulement tu pouvais réaliser ce que tout cela signifie, tu ferais tous les efforts possibles pour te mettre … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le voyage de l’éveil de l’âme"
 menu_title: ""
-description: "Le voyage de l’éveil de l’âme"
+description: "Augustin, reçu par Al Fike : « Il y a quelque chose qui s’agite au fond de vous, un nouvel éveil, une ouverture de ces parties de votre âme qui ont … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

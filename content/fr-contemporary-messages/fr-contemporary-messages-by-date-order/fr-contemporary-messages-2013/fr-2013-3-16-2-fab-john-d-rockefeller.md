@@ -1,7 +1,7 @@
 ---
 title: "Le regard de Dieu"
 menu_title: ""
-description: "Le regard de Dieu"
+description: "John D Rockefeller, reçu par FAB : « J’ai déclaré dans mon message du 11 Mars 2013 que mes dons étaient en harmonie avec les enseignements de mon église. »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

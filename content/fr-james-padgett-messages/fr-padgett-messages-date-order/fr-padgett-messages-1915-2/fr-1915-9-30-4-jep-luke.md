@@ -1,7 +1,7 @@
 ---
 title: "St. Luc assure que M. Padgett sera bientôt soulagé"
 menu_title: ""
-description: "St. Luc assure que M. Padgett sera bientôt soulagé"
+description: "St Luc, reçu par James Padgett : « Mais vous retrouverez prochainement l’espoir ainsi qu’un soulagement qui vous fera réaliser que le Monde Céleste est … »"
 date: 2022-06-01 06:00:01+00:283
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un écrivain de l’époque trouve l'Amour Divin"
 menu_title: ""
-description: "Un écrivain de l’époque trouve l'Amour Divin"
+description: "Jack Kerouac, reçu par FAB : « Je vous ai dit dans ma canalisation du 18 Avril 2008 que j'ai suivi le conseil d'un Ange et accepté, par conséquent, la … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

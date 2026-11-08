@@ -1,7 +1,7 @@
 ---
 title: "L'Amour du Père"
 menu_title: ""
-description: "L'Amour du Père"
+description: "Le Père Céleste, reçu par Helge Mercker : « Ne vacille pas jusqu’aux profondeurs de la construction de ton esprit matériel, vautre-toi dans l’amour de ton … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

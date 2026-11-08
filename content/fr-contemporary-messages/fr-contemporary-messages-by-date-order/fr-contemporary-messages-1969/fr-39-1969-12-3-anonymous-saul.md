@@ -1,7 +1,7 @@
 ---
 title: "Sur l'élévation des vibrations"
 menu_title: ""
-description: "Sur l'élévation des vibrations"
+description: "Saul : « C'est par le pouvoir de l'Amour Divin de Dieu que nous pouvons venir et votre compréhension sera accrue et alors je pourrai vous parler de choses … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

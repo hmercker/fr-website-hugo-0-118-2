@@ -1,7 +1,7 @@
 ---
 title: "Prier pour l’Amour Divin sans avoir l’impression d’être un imposteur - Quand reçoit-on l’immortalité ?"
 menu_title: ""
-description: "Prier pour l’Amour Divin sans avoir l’impression d’être un imposteur - Quand reçoit-on l’immortalité ?"
+description: "Joseph, reçu par Kathryn Stokes : « Comment peut-on prier pour l’Amour Divin sans se sentir faux ? Est-ce qu’on devient immortel lorsque'on reçoit de … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez ouvert au contact de Dieu"
 menu_title: ""
-description: "Soyez ouvert au contact de Dieu"
+description: "Augustin, reçu par Al Fike : « C’est si bon de voir tant de personnes qui sont venues de différentes perspectives, compréhensions et qui pourtant ont un … »"
 date: 2022-06-01 06:00:01+00:260
 draft: False
 hidden: True

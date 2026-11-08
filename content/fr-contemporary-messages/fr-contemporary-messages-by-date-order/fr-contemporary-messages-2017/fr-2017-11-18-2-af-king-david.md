@@ -1,7 +1,7 @@
 ---
 title: "David, roi des Juifs"
 menu_title: ""
-description: "David, roi des Juifs"
+description: "Roi David, reçu par Al Fike : « Je souhaite apparaître devant mon peuple afin qu'il puisse entendre ce que j'ai à dire en tant que leur grand roi qui est … »"
 date: 2022-06-01 06:00:01+00:216
 draft: False
 hidden: True

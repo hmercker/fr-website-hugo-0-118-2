@@ -1,7 +1,7 @@
 ---
 title: "Hélène, Mme Padgett, répond à un appel de rêve de M. Padgett"
 menu_title: ""
-description: "Hélène, Mme Padgett, répond à un appel de rêve de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « J’avais seulement l’air un peu triste et j’ai montré que je voulais ta sympathie et ton amour. »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

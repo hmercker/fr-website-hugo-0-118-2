@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett, un Esprit Céleste, lui assure également que c’est vraiment Jésus des Écritures qui lui a parlé et écrit le samedi"
 menu_title: ""
-description: "La grand-mère de M. Padgett, un Esprit Céleste, lui assure également que c’est vraiment Jésus des Écritures qui lui a parlé et écrit le samedi"
+description: "Anne Rollins, reçu par James Padgett : « C’est le vrai fils de Dieu que j’ai trouvé dans ma vie ici. Il n’est pas le sauveur d’un simple ecclésiastique … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

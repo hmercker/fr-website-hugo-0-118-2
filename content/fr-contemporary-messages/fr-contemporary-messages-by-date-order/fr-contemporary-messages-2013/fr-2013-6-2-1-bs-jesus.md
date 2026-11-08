@@ -1,7 +1,7 @@
 ---
 title: "N’ayez pas peur de marcher sur le chemin"
 menu_title: ""
-description: "N’ayez pas peur de marcher sur le chemin"
+description: "Jésus, reçu par Bright Soul : « À tous ceux qui lisent ce message : Je vous aime. S’il vous plaît, écoutez, car mes paroles sont des réponses à vos prières. »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Votre état spirituel et son effet sur les cercles de lumière"
 menu_title: ""
-description: "Votre état spirituel et son effet sur les cercles de lumière"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Je vous salue avec mon amour et mes bénédictions de guérison. Continuez à recevoir de plus en plus de cet … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

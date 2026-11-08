@@ -1,7 +1,7 @@
 ---
 title: "Attendez-vous à la ruée vers l’Or"
 menu_title: ""
-description: "Attendez-vous à la ruée vers l’Or"
+description: "Seretta Kem, reçu par Al Fike : « Bientôt, vous serez appelés à entrer en action pour accomplir vos buts et vos destinées en tant que groupe et … »"
 date: 2022-06-01 06:00:01+00:1736
 draft: False
 hidden: True

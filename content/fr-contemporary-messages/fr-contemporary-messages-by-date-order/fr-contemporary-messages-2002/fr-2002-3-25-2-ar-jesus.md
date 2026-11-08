@@ -1,7 +1,7 @@
 ---
 title: "Transformez votre espoir en foi"
 menu_title: ""
-description: "Transformez votre espoir en foi"
+description: "Jésus, reçu par Amada Reza : « J'ai été avec toi ce matin, t'aidant à sentir ma présence, et il y avait d'autres personnes, aussi, pour aider à canaliser … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

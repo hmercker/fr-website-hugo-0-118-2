@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez votre âme au don de l'Amour Divin"
 menu_title: ""
-description: "Ouvrez votre âme au don de l'Amour Divin"
+description: "Jésus, reçu par Albert Fike : « Bénis soient les enfants qui cherchent la Vérité de Dieu, afin que leurs âmes puissent s'ouvrir et recevoir cette grande … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

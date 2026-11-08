@@ -1,7 +1,7 @@
 ---
 title: "Nous ne pouvons pas interférer avec le libre arbitre de l'humanité"
 menu_title: ""
-description: "Nous ne pouvons pas interférer avec le libre arbitre de l'humanité"
+description: "André, reçu par Al Fike : « S'il vous plaît, ne blâmez pas Dieu pour cette issue décevante, car c'est le résultat de la condition humaine. »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

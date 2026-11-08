@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes des anges sur Terre accomplissant l'œuvre de Dieu pour l'éternité"
 menu_title: ""
-description: "Vous êtes des anges sur Terre accomplissant l'œuvre de Dieu pour l'éternité"
+description: "Augustin, reçu par Albert Fike : « Car sans vos efforts sur terre, qui reprendra le flambeau ? Qui fera entendre ces affirmations et ces déclarations de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

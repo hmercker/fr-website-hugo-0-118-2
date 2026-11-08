@@ -1,7 +1,7 @@
 ---
 title: "Apprenez à lancer des pensées d'amour"
 menu_title: ""
-description: "Apprenez à lancer des pensées d'amour"
+description: "Nuage Blanc : « Je vous amène de nombreux amis indiens ce soir ainsi qu'un merveilleux pouvoir de guérison parmi vous, mes amis. »"
 date: 2022-06-01 06:00:01+00:143
 draft: False
 hidden: True

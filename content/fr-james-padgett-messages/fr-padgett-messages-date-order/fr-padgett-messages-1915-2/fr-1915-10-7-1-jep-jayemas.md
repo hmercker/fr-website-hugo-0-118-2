@@ -1,7 +1,7 @@
 ---
 title: "Un professeur d’arts et de sciences, écrit sur son continent perdu et la haute intelligence qu’il possédait"
 menu_title: ""
-description: "Un professeur d’arts et de sciences, écrit sur son continent perdu et la haute intelligence qu’il possédait"
+description: "Jayemas, reçu par James Padgett : « Je fus, lors de mon séjour sur terre, professeur d’arts et de sciences, ainsi que de philosophie de la vie. »"
 date: 2022-06-01 06:00:01+00:301
 draft: False
 hidden: True

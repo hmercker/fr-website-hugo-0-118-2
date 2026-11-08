@@ -1,7 +1,7 @@
 ---
 title: "Priant pour nous à genoux"
 menu_title: ""
-description: "Priant pour nous à genoux"
+description: "Jésus, reçu par Al Fike : « Tous ces enfants sur la Terre qui viennent prier pour être avec Dieu, pour recevoir Son Amour sont mes frères et sœurs … »"
 date: 2022-06-01 06:00:01+00:1524
 draft: False
 hidden: True

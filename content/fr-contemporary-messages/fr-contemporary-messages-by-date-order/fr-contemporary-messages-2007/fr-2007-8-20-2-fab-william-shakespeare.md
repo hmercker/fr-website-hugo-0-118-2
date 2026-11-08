@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - Amour Divin et progression"
 menu_title: ""
-description: "Shakespeare - Amour Divin et progression"
+description: "William Shakespeare, reçu par FAB : « Je réponds à la demande de J de connaître mes pensées sur l'Amour Divin, et de connaître ma progression. »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

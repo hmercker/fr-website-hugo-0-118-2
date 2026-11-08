@@ -1,7 +1,7 @@
 ---
 title: "Le plus grand guérisseur de tous est notre créateur, Dieu"
 menu_title: ""
-description: "Le plus grand guérisseur de tous est notre créateur, Dieu"
+description: "Abdullah Latif : « Il y en a peu qui ont la paix ou la liberté de la peur et lorsque l'esprit de l'homme est obscurci par des pensées de peur et … »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

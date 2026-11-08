@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit au sujet de son progrès de la Troisième à la Cinquième Sphère d’Esprit"
 menu_title: ""
-description: "Hélène écrit au sujet de son progrès de la Troisième à la Cinquième Sphère d’Esprit"
+description: "Hélène Padgett, reçu par James Padgett : « Tu ne dois donc pas t’étonner si tu entends ma voix ou si tu me vois sous la forme d’un esprit matérialisé. »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tolkien a remarqué que je lisais son livre"
 menu_title: ""
-description: "Tolkien a remarqué que je lisais son livre"
+description: "Tolkien, reçu par PJR : « Tu t’assieds moins pour ces messages en raison de toutes les autres choses qui se passent dans ta vie. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

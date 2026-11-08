@@ -1,7 +1,7 @@
 ---
 title: "Permettre aux âmes de venir sans se soucier de leurs croyances"
 menu_title: ""
-description: "Permettre aux âmes de venir sans se soucier de leurs croyances"
+description: "Michaël Collier, reçu par Al Fike : « Votre travail a été accompli ici, mes amis. Vous nous avez permis, dans le Royaume Céleste, de parler à travers vous … »"
 date: 2022-06-01 06:00:01+00:925
 draft: False
 hidden: True

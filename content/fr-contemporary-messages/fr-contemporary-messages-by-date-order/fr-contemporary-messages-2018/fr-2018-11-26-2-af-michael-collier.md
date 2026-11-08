@@ -1,7 +1,7 @@
 ---
 title: "Apporter une plus grande vie à l’humanité en tant que canaux d’Amour de Dieu"
 menu_title: ""
-description: "Apporter une plus grande vie à l’humanité en tant que canaux d’Amour de Dieu"
+description: "Michael Collier, reçu par Al Fike : « J’étais un simple employé de bureau dans la ville animée de Londres et j’ai vécu une vie humble sur cette terre qui … »"
 date: 2022-06-01 06:00:01+00:579
 draft: False
 hidden: True

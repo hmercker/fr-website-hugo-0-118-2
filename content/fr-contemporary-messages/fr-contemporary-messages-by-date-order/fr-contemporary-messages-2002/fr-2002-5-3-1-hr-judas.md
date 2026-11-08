@@ -1,7 +1,7 @@
 ---
 title: "Le bon Samaritain"
 menu_title: ""
-description: "Le bon Samaritain"
+description: "Judas, reçu par H : « Après mon bombardement avec des messages historiques, qui sembleront certainement peu intéressants pour beaucoup, mais qui sont … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

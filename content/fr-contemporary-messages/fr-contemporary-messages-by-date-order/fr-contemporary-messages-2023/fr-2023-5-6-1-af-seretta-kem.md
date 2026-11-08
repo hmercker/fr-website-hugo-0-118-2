@@ -1,7 +1,7 @@
 ---
 title: "Orientations pour la poursuite du développement de la Voix Directe"
 menu_title: ""
-description: "Orientations pour la poursuite du développement de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Maintenant que vous avez pris vos décisions et vos engagements, nous allons commencer par nous engager à vous aider à … »"
 date: 2023-09-01 06:00:01+00:17
 draft: False
 hidden: True

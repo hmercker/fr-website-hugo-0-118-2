@@ -1,7 +1,7 @@
 ---
 title: "Concentrez-vous sur l'Amour du Père"
 menu_title: ""
-description: "Concentrez-vous sur l'Amour du Père"
+description: "Jean le Baptiste, reçu par Elizabeth Mack : « Car c’est l’amour qui, lorsqu’il est partagé et exprimé, fait grandir la joie parmi ceux qui vous entourent. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

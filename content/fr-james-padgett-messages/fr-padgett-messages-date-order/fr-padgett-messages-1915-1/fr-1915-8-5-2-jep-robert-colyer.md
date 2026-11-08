@@ -1,7 +1,7 @@
 ---
 title: "Colyer le prédicateur partage ses croyances, rejette la trinité"
 menu_title: ""
-description: "Colyer le prédicateur partage ses croyances, rejette la trinité"
+description: "Robert Colyer, reçu par James Padgett : « Je fus un pasteur et un prédicateur. Je ne fus pas un pasteur orthodoxe, mais quelqu’un qui croyait en Dieu et … »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous continuez à construire le treillis de lumière dans votre monde"
 menu_title: ""
-description: "Vous continuez à construire le treillis de lumière dans votre monde"
+description: "Seretta Kem, reçu par Al Fike : « C’est Seretta Kem qui vous parle. Oui vous avez tous été engagés dans de nombreux voyages et activités, prières … »"
 date: 2022-06-01 06:00:01+00:587
 draft: False
 hidden: True

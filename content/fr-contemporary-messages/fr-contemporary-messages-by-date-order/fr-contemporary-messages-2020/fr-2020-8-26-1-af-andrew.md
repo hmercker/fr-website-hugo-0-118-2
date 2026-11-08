@@ -1,7 +1,7 @@
 ---
 title: "La prière est la clé du travail spirituel"
 menu_title: ""
-description: "La prière est la clé du travail spirituel"
+description: "André, reçu par Al Fike : « La prière est la clé du travail spirituel car lorsque vous engagez Dieu dans la prière, vous ouvrez les portes de la lumière … »"
 date: 2022-06-01 06:00:01+00:1232
 draft: False
 hidden: True

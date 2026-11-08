@@ -1,7 +1,7 @@
 ---
 title: "S’élever au-dessus du mal"
 menu_title: ""
-description: "S’élever au-dessus du mal"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « La raison pour laquelle je dis « nous » est que nous venons rarement seuls pour écrire, pour plusieurs … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

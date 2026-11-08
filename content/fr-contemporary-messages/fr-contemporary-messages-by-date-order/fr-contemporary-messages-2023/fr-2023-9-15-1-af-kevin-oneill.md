@@ -1,7 +1,7 @@
 ---
 title: "Je suis libre !!"
 menu_title: ""
-description: "Je suis libre !!"
+description: "Kevin O'Neill, reçu par Albert Fike : « Car j’ai toujours eu envie d’y aller et une curiosité quant à ce qu’est ce monde. Et maintenant, mes yeux se sont … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

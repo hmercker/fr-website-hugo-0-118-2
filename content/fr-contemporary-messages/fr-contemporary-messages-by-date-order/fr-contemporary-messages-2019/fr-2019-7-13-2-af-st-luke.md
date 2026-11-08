@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Une explication de l’âme"
 menu_title: ""
-description: "Q&R : Une explication de l’âme"
+description: "St Luc, reçu par Al Fike : « Quelle est votre essence ? Votre essence est votre âme. »"
 date: 2022-06-01 06:00:01+00:786
 draft: False
 hidden: True

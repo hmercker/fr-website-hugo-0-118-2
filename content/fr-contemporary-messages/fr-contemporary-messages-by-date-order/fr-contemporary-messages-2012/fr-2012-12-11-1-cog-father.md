@@ -1,7 +1,7 @@
 ---
 title: "Retrouve ton innocence"
 menu_title: ""
-description: "Retrouve ton innocence"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Le deuil se déplace par vagues. Des opportunités de guérir tes blessures te sont constamment présentées. »"
 date: 2022-06-01 06:00:01+00:305
 draft: False
 hidden: True

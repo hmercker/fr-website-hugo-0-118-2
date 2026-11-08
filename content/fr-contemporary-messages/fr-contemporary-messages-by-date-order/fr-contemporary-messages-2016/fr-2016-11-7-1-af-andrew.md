@@ -1,7 +1,7 @@
 ---
 title: "L’amour est la clé"
 menu_title: ""
-description: "L’amour est la clé"
+description: "André, reçu par Al Fike : « Chacun d’entre vous est aimé, chacun d’entre vous est aimé par Dieu et chacun d’entre vous est aimé par beaucoup, mais pour … »"
 date: 2022-06-01 06:00:01+00:263
 draft: False
 hidden: True

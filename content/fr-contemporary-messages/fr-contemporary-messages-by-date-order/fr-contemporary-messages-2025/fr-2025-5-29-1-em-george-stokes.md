@@ -1,7 +1,7 @@
 ---
 title: "L'épanouissement de votre âme est la chose la plus importante que vous puissiez faire sur Terre"
 menu_title: ""
-description: "L'épanouissement de votre âme est la chose la plus importante que vous puissiez faire sur Terre"
+description: "George Stokes, reçu par Elizabeth Mack : « Je vis dans les Cieux avec nombre de mes frères et sœurs, dont certains que j’ai connus sur Terre. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit que Forrest prie sincèrement pour l’Amour Divin et qu’il progresse, et qu’il était si impatient d’écrire"
 menu_title: ""
-description: "Hélène écrit que Forrest prie sincèrement pour l’Amour Divin et qu’il progresse, et qu’il était si impatient d’écrire"
+description: "Hélène Padgett, reçu par James Padgett : « J’ai pensé qu’il valait mieux laisser Forrest t’écrire parce qu’il était si anxieux et qu’il semble prendre … »"
 date: 2022-06-01 06:00:01+00:296
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène et Mary écrivent conjointement un message pour permettre à Mary de partager un secret avec son âme sœur"
 menu_title: ""
-description: "Hélène et Mary écrivent conjointement un message pour permettre à Mary de partager un secret avec son âme sœur"
+description: "Hélène Padgett & Mary Kennedy, reçu par James Padgett : « Je suppose donc que je dois la laisser le dire. Eh bien, docteur, ne savez-vous pas de qui … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

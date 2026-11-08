@@ -1,7 +1,7 @@
 ---
 title: "Écoutez votre âme et non les illusions de votre esprit"
 menu_title: ""
-description: "Écoutez votre âme et non les illusions de votre esprit"
+description: "Augustin, reçu par Al Fike : « Alors que l’Amour du Père continue d’être infusé dans votre âme, il y a des changements, des guérisons et des éveils … »"
 date: 2022-06-01 06:00:01+00:538
 draft: False
 hidden: True

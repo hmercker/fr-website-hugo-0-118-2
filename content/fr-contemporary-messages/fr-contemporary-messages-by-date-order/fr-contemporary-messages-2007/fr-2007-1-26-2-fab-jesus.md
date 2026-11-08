@@ -1,7 +1,7 @@
 ---
 title: "Indignation vertueuse"
 menu_title: ""
-description: "Indignation vertueuse"
+description: "Jésus, reçu par FAB : « Maintenant, cette émotion est différente de la colère car il y a une différence de but. Lorsque les prophètes Hébreux fulminaient … »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

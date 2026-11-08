@@ -1,7 +1,7 @@
 ---
 title: "L'amour suscite des changements"
 menu_title: ""
-description: "L'amour suscite des changements"
+description: "Jérémie et Salomon, reçu par CC : « Il est bon pour toi de t'exercer à prendre des messages et à communier avec nous, à chaque occasion. »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

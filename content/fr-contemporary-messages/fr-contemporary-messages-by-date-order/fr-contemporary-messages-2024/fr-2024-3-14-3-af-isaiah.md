@@ -1,7 +1,7 @@
 ---
 title: "Imprégnez-vous de la gloire de Dieu"
 menu_title: ""
-description: "Imprégnez-vous de la gloire de Dieu"
+description: "Isaïe, reçu par Albert Fike : « À quelle fréquence recherchez-vous la présence de Dieu ? À quelle fréquence vos âmes se réjouissent-elles du don de Ssa … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

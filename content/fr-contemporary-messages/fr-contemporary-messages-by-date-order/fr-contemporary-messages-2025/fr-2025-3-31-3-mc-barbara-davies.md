@@ -1,7 +1,7 @@
 ---
 title: "Message aux participants de « Faites-vous des amis avec G.R.A.C.E. »"
 menu_title: ""
-description: "Message aux participants de « Faites-vous des amis avec G.R.A.C.E. »"
+description: "Barbara Davies, reçu par Maureen Cardoso : « Eh bien, mes chers, vous avez surmonté cette épreuve, n’est-ce pas ? Quel bonheur de vous accompagner dans ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

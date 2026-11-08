@@ -1,7 +1,7 @@
 ---
 title: "S'exprimer en tant qu'enseignant"
 menu_title: ""
-description: "S'exprimer en tant qu'enseignant"
+description: "Goldie : « J'ai été avec Alec pendant de nombreuses années et je l'ai observé alors qu'il travaillait avec de nombreuses personnes, à travers de … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

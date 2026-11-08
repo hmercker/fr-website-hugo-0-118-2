@@ -1,7 +1,7 @@
 ---
 title: "Soyez remplis de joie"
 menu_title: ""
-description: "Soyez remplis de joie"
+description: "Goldie, reçu par Al Fike : « Oh, vous êtes tous si sérieux. Vous travaillez si dur, vous êtes si assidus dans vos efforts. »"
 date: 2022-06-01 06:00:01+00:244
 draft: False
 hidden: True

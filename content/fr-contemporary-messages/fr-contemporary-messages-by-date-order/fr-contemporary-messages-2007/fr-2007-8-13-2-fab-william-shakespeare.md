@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - Enfance et adolescence"
 menu_title: ""
-description: "Shakespeare - Enfance et adolescence"
+description: "William Shakespeare, reçu par FAB : « Mon enfance a été privilégiée car mes parents avaient un statut dans la communauté de Stratford où j'ai grandi. »"
 date: 2022-06-01 06:00:01+00:143
 draft: False
 hidden: True

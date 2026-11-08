@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l’amour a de nombreux aspects"
 menu_title: ""
-description: "Le pouvoir de l’amour a de nombreux aspects"
+description: "Jésus, reçu par Al Fike : « Vous êtes de belles âmes, brillantes dans l’amour du Père, alors vos engagements les uns envers les autres sont importants et … »"
 date: 2022-06-01 06:00:01+00:1382
 draft: False
 hidden: True

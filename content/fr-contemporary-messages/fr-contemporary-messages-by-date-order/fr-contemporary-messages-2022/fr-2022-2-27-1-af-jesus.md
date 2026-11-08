@@ -1,7 +1,7 @@
 ---
 title: "Ne craignez rien, l’amour prévaudra et apportera la paix"
 menu_title: ""
-description: "Ne craignez rien, l’amour prévaudra et apportera la paix"
+description: "Jésus, reçu par Al Fike : « Les actions des hommes continuent de jouer un rôle dans le déroulement de la vie de votre Terre. »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "John Wesley prend part au service dédié à la fille de M. Padgett (Nita). Le Maître partageait son amour et influence sur la famille et les proches"
 menu_title: ""
-description: "John Wesley prend part au service dédié à la fille de M. Padgett (Nita). Le Maître partageait son amour et influence sur la famille et les proches"
+description: "John Wesley, reçu par James Padgett : « Laissez-moi écrire une ligne. J’étais présent ce soir lors du service funèbre de votre fille, et j’ai vu quelle … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

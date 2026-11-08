@@ -1,7 +1,7 @@
 ---
 title: "Au fond de mon cœur"
 menu_title: ""
-description: "Au fond de mon cœur"
+description: "Ourson Véloce, reçu par Alfredo : « Dans mon cœur, j’observe l’ironie de l’humanité, de mes frères et sœurs, et je souffre pour eux. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

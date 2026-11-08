@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett confirme que la mère du prédicateur était très heureuse car son fils avait mis de côté es croyances dogmatiques"
 menu_title: ""
-description: "Hélène Padgett confirme que la mère du prédicateur était très heureuse car son fils avait mis de côté es croyances dogmatiques"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu un message de la mère du prédicateur (Mme Mitchell) qui était si impatiente d’écrire. »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

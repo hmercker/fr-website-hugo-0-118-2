@@ -1,7 +1,7 @@
 ---
 title: "Fondateur de la foi Mormone"
 menu_title: ""
-description: "Fondateur de la foi Mormone"
+description: "Joseph Smith : « Continuez votre travail, vous êtes sur le bon chemin. Un jour, je pourrai peut-être vous aider. »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

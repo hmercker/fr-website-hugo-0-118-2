@@ -1,7 +1,7 @@
 ---
 title: "Encouragez-nous au service de Dieu"
 menu_title: ""
-description: "Encouragez-nous au service de Dieu"
+description: "Barbara Davies, reçu par Albert Fike : « Que l’Amour de Dieu déborde votre âme. J’ai souvent prié avec vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

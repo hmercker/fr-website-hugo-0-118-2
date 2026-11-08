@@ -1,7 +1,7 @@
 ---
 title: "L'état d'âme de François d'Assise"
 menu_title: ""
-description: "L'état d'âme de François d'Assise"
+description: "St François d'Assise, reçu par FAB : « Après une longue connaissance du monde des esprits, j'ai dû admettre que beaucoup de mes conceptions théologiques … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

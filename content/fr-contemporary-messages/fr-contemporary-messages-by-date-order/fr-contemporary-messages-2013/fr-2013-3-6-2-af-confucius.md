@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez les yeux et soyez aimants dans ce monde"
 menu_title: ""
-description: "Ouvrez les yeux et soyez aimants dans ce monde"
+description: "Confucius, reçu par Albert Fike : « Vous devez reconnaître votre propre force : malgré ces conditions terribles, ces distractions et ces fardeaux, vous … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

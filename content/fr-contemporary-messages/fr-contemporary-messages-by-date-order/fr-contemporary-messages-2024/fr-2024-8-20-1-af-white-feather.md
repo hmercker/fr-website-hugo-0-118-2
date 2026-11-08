@@ -1,7 +1,7 @@
 ---
 title: "Combien il est important de réveiller vos frères et sœurs"
 menu_title: ""
-description: "Combien il est important de réveiller vos frères et sœurs"
+description: "Plume Blanche, reçu par Albert Fike : « Soyez bénis, chers compagnons de route sur le Chemin Divin. Car chaque fois que vous dites une prière pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

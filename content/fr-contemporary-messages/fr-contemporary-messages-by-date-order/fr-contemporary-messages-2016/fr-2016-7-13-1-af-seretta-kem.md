@@ -1,7 +1,7 @@
 ---
 title: "Expiation et purification de l’âme"
 menu_title: ""
-description: "Expiation et purification de l’âme"
+description: "Seretta Kem, reçu par Al Fike : « Lorsque vous vous efforcez de vous rapprocher de Dieu, lorsque vous vous efforcez de vous élever et de devenir meilleur … »"
 date: 2022-06-01 06:00:01+00:222
 draft: False
 hidden: True

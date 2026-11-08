@@ -1,7 +1,7 @@
 ---
 title: "Soyez Un avec Dieu"
 menu_title: ""
-description: "Soyez Un avec Dieu"
+description: "Keea atta Kem, reçu par Albert Fike : « Vous vous rassemblez avec des cœurs purs, des esprits sincères emplis du désir d’être avec Dieu, d’ouvrir vos âmes … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

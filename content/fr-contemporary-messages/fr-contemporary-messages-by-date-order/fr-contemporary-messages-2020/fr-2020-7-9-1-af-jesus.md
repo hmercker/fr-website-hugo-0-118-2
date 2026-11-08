@@ -1,7 +1,7 @@
 ---
 title: "Les Cieux Célestes et l’Amour Divin sont encore disponibles"
 menu_title: ""
-description: "Les Cieux Célestes et l’Amour Divin sont encore disponibles"
+description: "Jésus, reçu par Al Fike : « Cette affirmation n’est pas un fait. En effet, le Royaume Céleste reste ouvert à toutes les âmes qui prient diligemment pour … »"
 date: 2022-06-01 06:00:01+00:1180
 draft: False
 hidden: True

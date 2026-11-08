@@ -1,7 +1,7 @@
 ---
 title: "Soyez joyeux le dernier jour de la retraite"
 menu_title: ""
-description: "Soyez joyeux le dernier jour de la retraite"
+description: "Goldie, reçu par Jesper Sorensen : « C’est merveilleux d’être ensemble comme ça. Il y a une grande joie au ciel après tous ces efforts que vous avez faits … »"
 date: 2022-06-01 06:00:01+00:468
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La culpabilité de George Washington"
 menu_title: ""
-description: "La culpabilité de George Washington"
+description: "George Washington, reçu par FAB : « J'avais ordonné l'exécution de quelques soldats qui s'étaient mutinés. Je me suis rendu compte qu'ils s'étaient … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

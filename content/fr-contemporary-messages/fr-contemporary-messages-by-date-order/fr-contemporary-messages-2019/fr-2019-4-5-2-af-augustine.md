@@ -2,8 +2,7 @@
 title: "Médiumnité, dons et être un canal d'amour
 Et comment traiter les différences d'approche entre les adeptes de l'Amour Divin"
 menu_title: ""
-description: "Médiumnité, dons et être un canal d'amour
-Et comment traiter les différences d'approche entre les adeptes de l'Amour Divin"
+description: "Augustin, reçu par Al Fike : « Cet instrument n'a pas à s'inquiéter de l'exactitude des messages qui sont reçus par son intermédiaire. »"
 date: 2022-06-01 06:00:01+00:696
 draft: False
 hidden: True

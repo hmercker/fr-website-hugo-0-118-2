@@ -1,7 +1,7 @@
 ---
 title: "L'environnement - 2"
 menu_title: ""
-description: "L'environnement - 2"
+description: "Jésus, reçu par FAB : « Permets-moi d'ajouter à ma précédente canalisation concernant l'environnement, datée du 29 Octobre 2006. »"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leslie Stone est très haut dans les Cieux"
 menu_title: ""
-description: "Leslie Stone est très haut dans les Cieux"
+description: "Leslie Stone, reçu par FAB : « Je réside dans une Sphère Céleste sans nombre, tant mes progrès ont été grands jusqu'ici. Ce miracle s'est produit parce … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ann Rollins. Qui et qu’est ce que Dieu ?"
 menu_title: ""
-description: "Ann Rollins. Qui et qu’est ce que Dieu ?"
+description: "Anne Rollins, reçu par James Padgett : « Je sais maintenant, plus que jamais, qu’il est un véritable Dieu d’Amour, de Puissance et Sagesse, et, que la … »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

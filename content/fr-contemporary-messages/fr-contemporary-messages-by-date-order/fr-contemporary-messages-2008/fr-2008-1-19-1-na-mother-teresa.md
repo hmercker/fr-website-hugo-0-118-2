@@ -1,7 +1,7 @@
 ---
 title: "Servir dans l’Amour"
 menu_title: ""
-description: "Servir dans l’Amour"
+description: "Mère Teresa, reçu par NA : « L’amour était ma vie et ma vie était le service… au service de l’amour. Comme j’aimais, je savais car je sentais que Dieu « … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

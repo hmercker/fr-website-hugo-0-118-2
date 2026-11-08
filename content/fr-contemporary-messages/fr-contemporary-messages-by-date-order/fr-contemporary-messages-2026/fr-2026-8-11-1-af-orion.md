@@ -1,7 +1,7 @@
 ---
 title: "Prenez conscience de vos obstacles réflexes et inconscients"
 menu_title: ""
-description: "Prenez conscience de vos obstacles réflexes et inconscients"
+description: "Orion, reçu par Albert Fike : « L'éveil de votre âme est un acte de foi. Votre âme désire connaître Dieu manifesté dans la conscience. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

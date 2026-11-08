@@ -1,7 +1,7 @@
 ---
 title: "La Loi de l’Amour"
 menu_title: ""
-description: "La Loi de l’Amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Il serait sage de s’asseoir pendant une heure chaque jour pour donner du temps à Dieu. Du temps pour nourrir … »"
 date: 2022-06-01 06:00:01+00:221
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Il y aura beaucoup de cercles de prière comme ceux-ci"
 menu_title: ""
-description: "Il y aura beaucoup de cercles de prière comme ceux-ci"
+description: "Keea Atta Kem, reçu par Al Fike : « Je vois qu’à l’avenir, il y aura de nombreux cercles comme ceux-ci dans le monde. En vous réunissant, vous établissez … »"
 date: 2022-06-01 06:00:01+00:1215
 draft: False
 hidden: True

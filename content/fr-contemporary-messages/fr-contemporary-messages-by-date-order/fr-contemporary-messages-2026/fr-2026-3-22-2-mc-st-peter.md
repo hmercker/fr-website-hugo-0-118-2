@@ -1,7 +1,7 @@
 ---
 title: "Vous développez votre capacité à exprimer la conscience de l'âme"
 menu_title: ""
-description: "Vous développez votre capacité à exprimer la conscience de l'âme"
+description: "Pierre, reçu par Maureen Cardoso : « Je ne me suis pas encore exprimé par l’intermédiaire de cet instrument. Je vous salue tous avec une bénédiction … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Choisissez judicieusement"
 menu_title: ""
-description: "Choisissez judicieusement"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Vous pouvez voir combien il est important d’élever vos pensées au-dessus des préoccupations du monde. »"
 date: 2022-06-01 06:00:01+00:1200
 draft: False
 hidden: True

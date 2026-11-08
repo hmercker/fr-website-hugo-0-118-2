@@ -1,7 +1,7 @@
 ---
 title: "L'isolement social est une bénédiction"
 menu_title: ""
-description: "L'isolement social est une bénédiction"
+description: "Augustin, reçu par Al Fike : « Vous vivez actuellement de nombreuses bénédictions car vous vous êtes isolés des nombreuses conditions que vous avez … »"
 date: 2022-06-01 06:00:01+00:1065
 draft: False
 hidden: True

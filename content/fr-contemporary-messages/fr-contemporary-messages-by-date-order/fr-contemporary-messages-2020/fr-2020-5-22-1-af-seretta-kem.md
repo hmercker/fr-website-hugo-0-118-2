@@ -1,7 +1,7 @@
 ---
 title: "Accueillir la libération de ce qui n'est pas en Harmonie"
 menu_title: ""
-description: "Accueillir la libération de ce qui n'est pas en Harmonie"
+description: "Seretta Kem, reçu par Al Fike : « Âmes bien-aimées, puisse l’Amour du Père trouver un afflux dans vos âmes, éveillant toutes les facultés et les beaux … »"
 date: 2022-06-01 06:00:01+00:1113
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les eaux de guérison"
 menu_title: ""
-description: "Les eaux de guérison"
+description: "Bernadette de Lourdes, reçu par Jimbeau Walsh : « Cette communion d’âmes qui a attiré tellement plus de personnes que vous ne pouvez pas l’imaginer. »"
 date: 2022-06-01 06:00:01+00:1186
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Barnabé dit que M. Padgett est le favori du Maître sur terre"
 menu_title: ""
-description: "Barnabé dit que M. Padgett est le favori du Maître sur terre"
+description: "St Barnabé, reçu par James Padgett : « Telles sont les pensées des hommes quand les problèmes surgissent : je ne peux rien faire de moi-même, mais je vais … »"
 date: 2022-06-01 06:00:01+00:282
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Exprimez-vous avec intégrité, équilibre, équité et amour ; alors, tout vous sera fourni"
 menu_title: ""
-description: "Exprimez-vous avec intégrité, équilibre, équité et amour ; alors, tout vous sera fourni"
+description: "Augustin, reçu par Al Fike : « J’ai entendu les échanges entre mes étudiants concernant le soutien qu’ils souhaitent obtenir pour accomplir l’œuvre de Dieu. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

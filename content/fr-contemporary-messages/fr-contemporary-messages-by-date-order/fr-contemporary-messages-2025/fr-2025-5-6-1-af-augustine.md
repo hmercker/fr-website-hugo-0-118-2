@@ -1,7 +1,7 @@
 ---
 title: "La profondeur et l'étendue de l'Amour de Dieu pour vous"
 menu_title: ""
-description: "La profondeur et l'étendue de l'Amour de Dieu pour vous"
+description: "Augustin, reçu par Albert Fike : « Il est compréhensible que dans votre monde, il existe une résistance à la prière, à Dieu et à la religion telle que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Prier pour recevoir la Sainte Essence de Dieu"
 menu_title: ""
-description: "Prier pour recevoir la Sainte Essence de Dieu"
+description: "Jésus, reçu par Al Fike : « Que Sa Lumière, Sa Paix et Son Amour descendent sur vous, vous enveloppent et vous portent alors que vous vous aventurez dans … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le monde est enveloppé de brume et de nuances de gris"
 menu_title: ""
-description: "Le monde est enveloppé de brume et de nuances de gris"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant, Augustin. Le monde est enveloppé d’une brume avec des nuances de gris, certaines sombres, d’autres … »"
 date: 2022-06-01 06:00:01+00:976
 draft: False
 hidden: True

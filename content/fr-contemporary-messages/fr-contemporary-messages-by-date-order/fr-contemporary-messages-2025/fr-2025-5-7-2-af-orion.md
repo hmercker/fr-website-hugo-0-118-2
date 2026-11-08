@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est accessible à chaque être dans l'Univers et sauvera l'humanité"
 menu_title: ""
-description: "L'Amour de Dieu est accessible à chaque être dans l'Univers et sauvera l'humanité"
+description: "Orion, reçu par Albert Fike : « Notre désir est que chacun sur votre planète puisse également suivre notre exemple et vivre de cette manière où l’harmonie … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

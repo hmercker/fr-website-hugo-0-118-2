@@ -1,7 +1,7 @@
 ---
 title: "72ème Sermon – Aggée insuffle le courage et la foi dans la reconstruction du Temple"
 menu_title: ""
-description: "72ème Sermon – Aggée insuffle le courage et la foi dans la reconstruction du Temple"
+description: "Jésus, reçu par Dr Samuels : « Les Chrétiens traditionnels, pendant de très nombreux siècles, ont permis à leur religion de se matérialiser dans des … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

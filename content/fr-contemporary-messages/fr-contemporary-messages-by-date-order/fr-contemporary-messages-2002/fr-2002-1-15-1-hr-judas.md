@@ -1,7 +1,7 @@
 ---
 title: "La Foi (suite)"
 menu_title: ""
-description: "La Foi (suite)"
+description: "Judas, reçu par H : « Pouvons-nous revenir au sujet de la foi ? Très bien, si tu te sens en état de recevoir le message, nous allons essayer. »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

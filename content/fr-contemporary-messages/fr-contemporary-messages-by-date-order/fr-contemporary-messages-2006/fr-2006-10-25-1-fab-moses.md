@@ -1,7 +1,7 @@
 ---
 title: "Moïse et le Pharaon"
 menu_title: ""
-description: "Moïse et le Pharaon"
+description: "Moïse, reçu par FAB : « Dans ce message, je veux décrire ma relation avec le Pharaon, l’homme que j’appelais autrefois frère. »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

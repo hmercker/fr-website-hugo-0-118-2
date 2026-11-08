@@ -1,7 +1,7 @@
 ---
 title: "Laissez votre crise vous propulser vers une vie en Dieu"
 menu_title: ""
-description: "Laissez votre crise vous propulser vers une vie en Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Il existe de nombreuses versions de l’histoire de ma vie, et elles contiennent toutes des éléments de vérité. »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

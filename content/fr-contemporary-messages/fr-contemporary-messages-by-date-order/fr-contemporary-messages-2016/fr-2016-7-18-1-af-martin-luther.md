@@ -1,7 +1,7 @@
 ---
 title: "A la poursuite de la vérité"
 menu_title: ""
-description: "A la poursuite de la vérité"
+description: "Martin Luther, reçu par Al Fike : « Cela change toutes les perceptions et, les compréhensions de la vérité. Vous avez une perspective du voyage que vous … »"
 date: 2022-06-01 06:00:01+00:223
 draft: False
 hidden: True

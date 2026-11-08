@@ -1,7 +1,7 @@
 ---
 title: "Robert Kennedy dans le monde des esprits"
 menu_title: ""
-description: "Robert Kennedy dans le monde des esprits"
+description: "Robert Kennedy, reçu par FAB : « Ma pugnacité, ma tendance à affronter les gens, m'est revenue, et j'ai été surpris de constater que mes voisins avaient … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

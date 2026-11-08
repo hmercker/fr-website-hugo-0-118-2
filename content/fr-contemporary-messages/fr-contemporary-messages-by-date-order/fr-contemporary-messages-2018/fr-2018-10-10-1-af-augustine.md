@@ -1,7 +1,7 @@
 ---
 title: "Un appel à une plus grande responsabilité"
 menu_title: ""
-description: "Un appel à une plus grande responsabilité"
+description: "Augustin, reçu par Al Fike : « Je tiens à vous assurer qu’il n’y a pas eu de tromperie de notre part. Si vous deviez parcourir les chroniques des messages … »"
 date: 2022-06-01 06:00:01+00:507
 draft: False
 hidden: True

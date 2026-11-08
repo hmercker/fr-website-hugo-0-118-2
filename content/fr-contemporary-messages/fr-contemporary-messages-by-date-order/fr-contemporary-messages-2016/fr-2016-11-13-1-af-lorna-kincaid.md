@@ -1,7 +1,7 @@
 ---
 title: "Donnez aux autres, aimez les autres"
 menu_title: ""
-description: "Donnez aux autres, aimez les autres"
+description: "Lorna Kincaid Scott, reçu par Al Fike : « Et dans vos vies quotidiennes, je vois maintenant combien il est important de donner en prière et en amour à … »"
 date: 2022-06-01 06:00:01+00:264
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène parle sur la mort de sa fille et qu’il y avait des esprits Célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi"
 menu_title: ""
-description: "Hélène parle sur la mort de sa fille et qu’il y avait des esprits Célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi"
+description: "Hélène Padgett, reçu par James Padgett : « Mon cher mari, comme j’ai été heureuse ce soir que toi et les autres vous soyez réunis autour du cercueil de … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Quel est le plan de Dieu pour le salut de l'humanité ?"
 menu_title: ""
-description: "Quel est le plan de Dieu pour le salut de l'humanité ?"
+description: "Flavius Josèphe, reçu par Al Fike : « Les origines du plan de Dieu pour le salut de l’humanité viennent de sa grande âme. Les manifestations et les … »"
 date: 2022-06-01 06:00:01+00:974
 draft: False
 hidden: True

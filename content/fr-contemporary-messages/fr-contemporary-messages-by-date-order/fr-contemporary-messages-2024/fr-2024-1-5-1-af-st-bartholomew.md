@@ -1,7 +1,7 @@
 ---
 title: "Le plan de Dieu pour unifier les Caraïbes"
 menu_title: ""
-description: "Le plan de Dieu pour unifier les Caraïbes"
+description: "St Barthélémy, reçu par Al Fike : « Vos efforts porteront des fruits qui contribueront à apporter la paix, l’harmonie et l’amour, non seulement dans votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

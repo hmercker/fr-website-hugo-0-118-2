@@ -1,7 +1,7 @@
 ---
 title: "Se présente pour nous aider dans notre développement spirituel"
 menu_title: ""
-description: "Se présente pour nous aider dans notre développement spirituel"
+description: "Timothée, reçu par Elizabeth Mack : « Sachez que notre Père est le même que votre Père. Sachez que nous venons et que nous marchons parmi vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

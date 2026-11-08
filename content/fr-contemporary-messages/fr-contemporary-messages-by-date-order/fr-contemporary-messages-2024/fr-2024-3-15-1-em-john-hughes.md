@@ -1,7 +1,7 @@
 ---
 title: "Il s'agit d'amour"
 menu_title: ""
-description: "Il s'agit d'amour"
+description: "John Hughes, reçu par Jimbeau Walsh : « C’est une question d’amour, n’est-ce pas ? Combien d’expressions d’amour peut-il y avoir ? »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

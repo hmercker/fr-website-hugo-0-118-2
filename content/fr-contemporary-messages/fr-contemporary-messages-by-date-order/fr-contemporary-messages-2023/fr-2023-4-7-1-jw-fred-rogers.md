@@ -1,7 +1,7 @@
 ---
 title: "Habitudes, Dépendances  et Guérisson (Suite)"
 menu_title: ""
-description: "Habitudes, Dépendances  et Guérisson (Suite)"
+description: "Fred Rogers, reçu par Jimbeau Walsh : « Nombreux sont ceux qui s’occupent de ces questions avec leur famille et leurs amis et qui constatent de première … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

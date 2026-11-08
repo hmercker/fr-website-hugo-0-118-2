@@ -1,7 +1,7 @@
 ---
 title: "Nous marcherons parmi vous comme des mortels"
 menu_title: ""
-description: "Nous marcherons parmi vous comme des mortels"
+description: "Jésus, reçu par Al Fike : « Je me réjouis de voir qu’il y a des personnes qui forment des groupes et des sous-groupes au sein de la communauté plus large … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

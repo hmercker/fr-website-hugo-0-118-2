@@ -1,7 +1,7 @@
 ---
 title: "Un théologien Néerlandais découvre la vérité"
 menu_title: ""
-description: "Un théologien Néerlandais découvre la vérité"
+description: "Jacobus Arminius, reçu par FAB : « Comment les gens peuvent-ils croire à de telles absurdités est un mystère pour moi, et en fait, pour mes collègues … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ne rejetez pas ceux qui désirent la vérité"
 menu_title: ""
-description: "Ne rejetez pas ceux qui désirent la vérité"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Mon cher frère, ma chère sœur. Lorsque cela vous servira de vous retirer du monde pour être avec Dieu, je … »"
 date: 2022-06-01 06:00:01+00:1101
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Abaisser les défenses au nom de l'Amour"
 menu_title: ""
-description: "Abaisser les défenses au nom de l'Amour"
+description: "St Pierre, reçu par Kathryn Stokes : « Tout ce que nous pouvons faire est la même chose que n'importe quel enfant de Dieu peut faire à n'importe quel … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

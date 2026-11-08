@@ -1,7 +1,7 @@
 ---
 title: "Considérez avec patience et flexibilité les différents niveaux d'accompagnement dans vos efforts de planification"
 menu_title: ""
-description: "Considérez avec patience et flexibilité les différents niveaux d'accompagnement dans vos efforts de planification"
+description: "St Matthieu, reçu par Albert Fike : « Je souhaite aborder la nature de l’accompagnement. En effet, le niveau le plus concret et le plus élémentaire … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

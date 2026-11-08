@@ -1,7 +1,7 @@
 ---
 title: "Votre vrai moi reconnu"
 menu_title: ""
-description: "Votre vrai moi reconnu"
+description: "Augustin, reçu par Albert Fike : « Vous entrez dans quelque chose d’extraordinaire. Car la composition de votre cercle et de votre groupe est composée … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

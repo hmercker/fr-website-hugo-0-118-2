@@ -1,7 +1,7 @@
 ---
 title: "Volonté et Libre Arbitre et le sens de 666"
 menu_title: ""
-description: "Volonté et Libre Arbitre et le sens de 666"
+description: "St Jean, reçu par WV : « Tu savais, au moment où nous avons commencé à expliquer la notion de « libre arbitre », que (certaines) personnes ne seraient pas … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

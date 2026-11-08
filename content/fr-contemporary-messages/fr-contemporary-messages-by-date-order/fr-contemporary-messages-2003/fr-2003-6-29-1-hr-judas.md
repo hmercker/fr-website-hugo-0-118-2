@@ -1,7 +1,7 @@
 ---
 title: "Le monde d’un enfant"
 menu_title: ""
-description: "Le monde d’un enfant"
+description: "Judas, reçu par H : « « Je me souviens aussi qu’une fois, alors que je cherchais des petits objets et les êtres minuscules de mon monde à l’arrière de ma … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conseils et instructions pour la Voix Directe"
 menu_title: ""
-description: "Conseils et instructions pour la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Je vois que vous êtes tous venus vous engager les uns envers les autres, envers ce but et envers ces efforts, afin que … »"
 date: 2022-06-01 06:00:01+00:1539
 draft: False
 hidden: True

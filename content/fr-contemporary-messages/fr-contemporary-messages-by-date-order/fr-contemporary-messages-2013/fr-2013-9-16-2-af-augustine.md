@@ -1,7 +1,7 @@
 ---
 title: "Là où se manifeste la Volonté de Dieu, il y aura harmonie, éveil joyeux et transformation merveilleuse"
 menu_title: ""
-description: "Là où se manifeste la Volonté de Dieu, il y aura harmonie, éveil joyeux et transformation merveilleuse"
+description: "Augustin, reçu par Albert Fike : « C’est votre enseignant Augustin qui vous parle. Il n’y aura pas de faux pas, mes enfants. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

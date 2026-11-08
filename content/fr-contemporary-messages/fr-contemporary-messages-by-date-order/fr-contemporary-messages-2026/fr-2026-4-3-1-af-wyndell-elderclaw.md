@@ -1,7 +1,7 @@
 ---
 title: "Honorer la Terre-Mère : une voie vers un éveil spirituel plus profond"
 menu_title: ""
-description: "Honorer la Terre-Mère : une voie vers un éveil spirituel plus profond"
+description: "Wyndell Elderclaw, reçu par Al Fike : « Je m’appelle Wyndell Elderclaw. J’aime et j’ai aimé la Terre. »"
 date: 2026-09-22 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Connaître la paix de l'Amour de Dieu"
 menu_title: ""
-description: "Connaître la paix de l'Amour de Dieu"
+description: "André, reçu par Al Fike : « Dieu vous élève vers la lumière. Alors que vous continuez à prier dans ce sanctuaire et à bénéficier de ce portail de lumière … »"
 date: 2022-06-01 06:00:01+00:599
 draft: False
 hidden: True

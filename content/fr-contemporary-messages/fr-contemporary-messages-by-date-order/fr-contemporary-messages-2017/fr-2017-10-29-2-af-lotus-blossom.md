@@ -1,7 +1,7 @@
 ---
 title: "Les lumières de diamant de votre être"
 menu_title: ""
-description: "Les lumières de diamant de votre être"
+description: "Fleur de Lotus, reçu par Al Fike : « Je souhaite parler de vos corps physique et spirituel et comment il y a une telle interaction entre les deux causée … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

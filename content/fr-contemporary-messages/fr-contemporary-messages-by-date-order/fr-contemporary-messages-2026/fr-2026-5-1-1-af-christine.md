@@ -1,7 +1,7 @@
 ---
 title: "Guérir le monde grâce au pouvoir et à la simplicité de l'amour"
 menu_title: ""
-description: "Guérir le monde grâce au pouvoir et à la simplicité de l'amour"
+description: "Christine, reçu par Al Fike : « Je ne viens pas de votre monde. Car nombreux sont ceux, autour de votre planète, qui s’impliquent, se préoccupent et se … »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

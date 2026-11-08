@@ -1,7 +1,7 @@
 ---
 title: "Message de Victor Summers"
 menu_title: ""
-description: "Message de Victor Summers"
+description: "Victor Summers, reçu par FAB : « Je veux vous écrire un message. Je ne peux que penser maintenant à cet endroit magnifique, plus beau que je ne l’ai … »"
 date: 2022-06-01 06:00:01+00:206
 draft: False
 hidden: True

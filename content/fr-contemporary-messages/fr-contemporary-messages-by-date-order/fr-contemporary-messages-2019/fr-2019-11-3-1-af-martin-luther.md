@@ -1,7 +1,7 @@
 ---
 title: "Vous devez avoir une rencontre avec votre mental"
 menu_title: ""
-description: "Vous devez avoir une rencontre avec votre mental"
+description: "Martin Luther, reçu par Al Fike : « Dieu a besoin d’âmes fortes qui s’engagent réellement à servir Dieu, à connaître Sa volonté et à exécuter Son plan du … »"
 date: 2022-06-01 06:00:01+00:894
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Une courte note du père de M. Padgett"
 menu_title: ""
-description: "Une courte note du père de M. Padgett"
+description: "John Padgett, reçu par James Padgett : « Il était avec toi et tu apprendras bientôt beaucoup plus de lui parce qu’il dit qu’il t’enseignera la Vérité, la … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

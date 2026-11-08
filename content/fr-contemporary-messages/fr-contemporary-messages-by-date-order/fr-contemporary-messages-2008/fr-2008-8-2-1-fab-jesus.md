@@ -1,7 +1,7 @@
 ---
 title: "Le péché et les intentions"
 menu_title: ""
-description: "Le péché et les intentions"
+description: "Jésus, reçu par FAB : « Le péché a beaucoup à voir avec les intentions de chacun. Il est souvent arrivé que des personnes fassent ou disent quelque chose … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

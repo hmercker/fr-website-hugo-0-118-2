@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin à l'intérieur de l'homme est la seule chose qui peut rendre l'homme libre de la peur"
 menu_title: ""
-description: "L'Amour Divin à l'intérieur de l'homme est la seule chose qui peut rendre l'homme libre de la peur"
+description: "Abdulla : « Le plus grand cadeau et le plus grand bonheur que l'homme puisse avoir est la conscience de l'Amour Divin de Dieu dans son âme. »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

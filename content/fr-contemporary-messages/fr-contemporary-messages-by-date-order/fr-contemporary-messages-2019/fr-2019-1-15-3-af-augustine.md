@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans le monde comme un canal de lumière"
 menu_title: ""
-description: "Marcher dans le monde comme un canal de lumière"
+description: "Augustin, reçu par Al Fike : « Dieu continuera à vous rassembler, âmes bien-aimées. Il continue à vous envelopper et à vous serrer contre Son cœur pour … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

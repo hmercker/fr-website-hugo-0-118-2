@@ -1,7 +1,7 @@
 ---
 title: "La tolérance dans la diversité vient avec l'amour"
 menu_title: ""
-description: "La tolérance dans la diversité vient avec l'amour"
+description: "Augustin, reçu par Al Fike : « Je vois devant moi un tableau de nombreux visages différents, de nombreuses âmes uniques. Chaque âme aborde ces vérités … »"
 date: 2023-09-01 06:00:01+00:104
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’Amour (deuxième partie)"
 menu_title: ""
-description: "L’Amour (deuxième partie)"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Car vous êtes vraiment mes frères et sœurs, et ceux d’entre vous qui cherchent l’Amour de notre Père … »"
 date: 2022-06-01 06:00:01+00:1233
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Beaucoup sont avec vous dans vos efforts"
 menu_title: ""
-description: "Beaucoup sont avec vous dans vos efforts"
+description: "St François d'Assise, reçu par Al Fike : « Vous avez réalisé un bon rassemblement (A Francfort) car vous avez planté des graines au sein des âmes qui y … »"
 date: 2022-06-01 06:00:01+00:246
 draft: False
 hidden: True

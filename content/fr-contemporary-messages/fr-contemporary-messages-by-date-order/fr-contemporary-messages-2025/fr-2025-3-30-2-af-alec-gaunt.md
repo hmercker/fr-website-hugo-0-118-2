@@ -1,7 +1,7 @@
 ---
 title: "Son rêve pour FUSC s'est réalisé"
 menu_title: ""
-description: "Son rêve pour FUSC s'est réalisé"
+description: "Alec Gaunt, reçu par Albert Fike : « J’ai un jour parcouru les couloirs de cette église. C’est un rêve devenu réalité. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

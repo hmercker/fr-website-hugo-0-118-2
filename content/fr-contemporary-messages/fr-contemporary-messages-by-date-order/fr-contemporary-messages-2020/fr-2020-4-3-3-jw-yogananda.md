@@ -1,7 +1,7 @@
 ---
 title: "Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit"
 menu_title: ""
-description: "Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit"
+description: "Yogananda, reçu par Jimbeau Walsh : « Aigle Blanc va, à un moment donné, vous parler du rassemblement des tribus et de sa véritable signification. »"
 date: 2022-06-01 06:00:01+00:1050
 draft: False
 hidden: True

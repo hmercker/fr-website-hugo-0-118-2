@@ -1,7 +1,7 @@
 ---
 title: "Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »"
 menu_title: ""
-description: "Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »"
+description: "Augustin, reçu par Albert Fike : « Puissiez-vous continuer à vous ouvrir aux conseils et aux directions de Dieu, sa volonté se manifestant dans votre vie. »"
 date: 2023-09-01 06:00:01+00:70
 draft: False
 hidden: True

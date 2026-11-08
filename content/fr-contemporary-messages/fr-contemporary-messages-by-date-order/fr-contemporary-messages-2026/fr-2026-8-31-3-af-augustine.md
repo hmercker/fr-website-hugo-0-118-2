@@ -1,7 +1,7 @@
 ---
 title: "Lorsque vous priez ensemble, chacun de vous apporte une dimension unique que nul autre ne peut offrir"
 menu_title: ""
-description: "Lorsque vous priez ensemble, chacun de vous apporte une dimension unique que nul autre ne peut offrir"
+description: "Augustin, reçu par Albert Fike : « C’est Augustin, votre enseignant. Il est bon que vous preniez le temps de prier ensemble, en personne. »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

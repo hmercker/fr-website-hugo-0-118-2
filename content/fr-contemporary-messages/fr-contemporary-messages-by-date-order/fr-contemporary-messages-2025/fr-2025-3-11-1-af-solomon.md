@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour vivre votre vie !"
 menu_title: ""
-description: "Conseils pour vivre votre vie !"
+description: "Salomon, reçu par Albert Fike : « En grandissant dans l’Amour du Père, vous progressez vers l’unité avec Dieu et, finalement, vers l’habitation du Royaume … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

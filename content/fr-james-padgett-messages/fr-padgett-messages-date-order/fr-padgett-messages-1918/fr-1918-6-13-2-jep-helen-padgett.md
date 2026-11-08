@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme le message de Mme Eddy Bakker"
 menu_title: ""
-description: "Hélène confirme le message de Mme Eddy Bakker"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, j’ai passé la soirée avec toi et j’ai apprécié ta conversation. Tu peux croire que la … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

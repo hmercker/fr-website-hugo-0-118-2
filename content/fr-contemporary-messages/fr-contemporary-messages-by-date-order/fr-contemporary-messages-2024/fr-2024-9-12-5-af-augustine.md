@@ -1,7 +1,7 @@
 ---
 title: "Les solutions à vos problèmes viennent avec la foi"
 menu_title: ""
-description: "Les solutions à vos problèmes viennent avec la foi"
+description: "Augustin, reçu par Albert Fike : « Les choses dont vous parlez sont des défis de foi. Ces choses qui, selon vous, vous empêchent d’accéder à Dieu sont … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

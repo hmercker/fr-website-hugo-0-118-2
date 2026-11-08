@@ -1,7 +1,7 @@
 ---
 title: "Bill Reilly vient en esprit"
 menu_title: ""
-description: "Bill Reilly vient en esprit"
+description: "Bill Reilly, reçu par Révérend Dave Lampron : « Je me suis dit que Bill avait eu suffisamment de temps pour s’adapter à son nouvel environnement et à sa … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

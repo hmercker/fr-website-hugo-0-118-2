@@ -1,7 +1,7 @@
 ---
 title: "Hélène exhorte M. Padgett à rester dans un état d’Amour pour le travail à faire"
 menu_title: ""
-description: "Hélène exhorte M. Padgett à rester dans un état d’Amour pour le travail à faire"
+description: "Hélène Padgett, reçu par James Padgett : « Je ne peux pas te dire combien j’ai plaidé pour toi, et comme j’ai prié le Père pour qu’il répande Son Esprit … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

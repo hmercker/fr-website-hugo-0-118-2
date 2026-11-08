@@ -1,7 +1,7 @@
 ---
 title: "Vous grandissez dans la lumière en tant qu’émissaires de Dieu"
 menu_title: ""
-description: "Vous grandissez dans la lumière en tant qu’émissaires de Dieu"
+description: "Augustin, reçu par Albert Fike : « Les conditions de votre Terre sont remplies de pensées et d’intentions diverses, d’énergies et de conditions qui sont … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

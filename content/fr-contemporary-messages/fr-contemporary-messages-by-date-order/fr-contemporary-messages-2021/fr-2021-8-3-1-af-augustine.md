@@ -1,7 +1,7 @@
 ---
 title: "Encouragement à parler de l'Amour de Dieu à ses amis et à sa famille"
 menu_title: ""
-description: "Encouragement à parler de l'Amour de Dieu à ses amis et à sa famille"
+description: "Augustin, reçu par Al Fike : « J’entends vos prières pour vos familles, vos êtres chers, ceux qui sont proches dans votre vie, et comme nous l’avons dit à … »"
 date: 2022-06-01 06:00:01+00:1589
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Communiquez d'âme à âme"
 menu_title: ""
-description: "Communiquez d'âme à âme"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « IL y a une croissance instrumentale en chacun de vous, l’expansion de vos âmes qui fusionnent avec votre mental. »"
 date: 2022-06-01 06:00:01+00:502
 draft: False
 hidden: True

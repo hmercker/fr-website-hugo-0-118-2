@@ -1,7 +1,7 @@
 ---
 title: "Restaurer l'harmonie de la création"
 menu_title: ""
-description: "Restaurer l'harmonie de la création"
+description: "St Paul, reçu par Al Fike : « En effet, les vents du changement soufflent sur votre monde. Beaucoup de choses changent. »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

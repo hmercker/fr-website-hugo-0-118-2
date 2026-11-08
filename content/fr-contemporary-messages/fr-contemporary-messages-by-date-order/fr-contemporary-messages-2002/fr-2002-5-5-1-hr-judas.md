@@ -1,7 +1,7 @@
 ---
 title: "Les dix tribus perdues d’Israël"
 menu_title: ""
-description: "Les dix tribus perdues d’Israël"
+description: "Judas, reçu par H : « Comme je l’ai promis, je veux délivrer un message final, à ce stade, sur « les Samaritains », ou plutôt sur les tribus d’Israël qui … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

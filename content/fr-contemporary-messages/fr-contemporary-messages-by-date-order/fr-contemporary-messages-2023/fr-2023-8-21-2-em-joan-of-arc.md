@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin comme moyen de communication/Faites confiance à Dieu/Bénédiction"
 menu_title: ""
-description: "L'Amour Divin comme moyen de communication/Faites confiance à Dieu/Bénédiction"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Vous pouvez m’entendre clairement. Je peux également parler à ceux dont les âmes ont l’Amour Divin en elles … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Engagement de l'Âme avec Dieu"
 menu_title: ""
-description: "L'Engagement de l'Âme avec Dieu"
+description: "Care Darby Walsh, reçu par reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur nous et en nous. Dans votre cheminement sur terre, dans votre désir de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

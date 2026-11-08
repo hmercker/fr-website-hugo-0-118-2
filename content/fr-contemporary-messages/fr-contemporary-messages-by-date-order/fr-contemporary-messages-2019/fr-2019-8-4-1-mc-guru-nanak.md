@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme parcourt son propre chemin"
 menu_title: ""
-description: "Chaque âme parcourt son propre chemin"
+description: "Guru Nanak, reçu par Maureen Cardoso : « Oui ma fille, merci de partager l’expérience de la chère âme qui a trouvé le jardin qui porte mon nom. »"
 date: 2022-06-01 06:00:01+00:802
 draft: False
 hidden: True

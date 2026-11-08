@@ -1,7 +1,7 @@
 ---
 title: "Le but de la Voix Directe"
 menu_title: ""
-description: "Le but de la Voix Directe"
+description: "St Matthieu, reçu par Al Fike : « Je souhaite vous aider à comprendre pourquoi ce don est important, comment cela influencera les autres afin qu'ils … »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

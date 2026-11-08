@@ -1,7 +1,7 @@
 ---
 title: "Appétits physiques"
 menu_title: ""
-description: "Appétits physiques"
+description: "Joseph (AT), reçu par FAB : « Nous allons vous aider dans votre désir de comprendre le rôle des appétits physiques dans la progression spirituelle. »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture de la retraite de Fontainebleau"
 menu_title: ""
-description: "Message de clôture de la retraite de Fontainebleau"
+description: "Anonyme, reçu par Emmanuel Sternitsky : « Nous leur en sommes reconnaissants. Leur travail accompli durant ces journées est un grand don pour eux, pour la … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

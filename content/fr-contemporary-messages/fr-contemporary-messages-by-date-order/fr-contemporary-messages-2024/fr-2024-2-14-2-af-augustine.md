@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour chaque participant à la retraite de la médiumnité d’Amour Divin "
 menu_title: ""
-description: "Conseils pour chaque participant à la retraite de la médiumnité d’Amour Divin"
+description: "Augustin, reçu par Albert Fike : « Nous sommes très heureux qu’un certain nombre de personnes soient prêtes à prendre le temps et les efforts pour se … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

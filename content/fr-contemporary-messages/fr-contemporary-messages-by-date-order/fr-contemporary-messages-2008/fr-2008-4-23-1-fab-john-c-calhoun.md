@@ -1,7 +1,7 @@
 ---
 title: "Le racisme est contre Dieu"
 menu_title: ""
-description: "Le racisme est contre Dieu"
+description: "John C. Calhoun, reçu par FAB : « Aucun système injuste ne peut durer longtemps. J'ai découvert que les esclaves que je méprisais étaient soumis aux mêmes … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

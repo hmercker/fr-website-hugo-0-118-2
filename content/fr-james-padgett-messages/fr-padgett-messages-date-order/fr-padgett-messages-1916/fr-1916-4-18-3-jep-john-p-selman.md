@@ -1,7 +1,7 @@
 ---
 title: "John P. Selman a trouvé l’Amour Divin"
 menu_title: ""
-description: "John P. Selman a trouvé l’Amour Divin"
+description: "John P Selman, reçu par James Padgett : « Ta femme m’a dit que je pourrais écrire et ton guide indien m’a dit d’essayer. J’ai commencé à voir la lumière … »"
 date: 2022-06-01 06:00:01+00:207
 draft: False
 hidden: True

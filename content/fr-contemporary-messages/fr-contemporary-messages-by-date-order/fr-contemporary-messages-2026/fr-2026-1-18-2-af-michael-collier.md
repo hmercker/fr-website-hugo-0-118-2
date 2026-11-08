@@ -1,7 +1,7 @@
 ---
 title: "Questions-Réponses "
 menu_title: ""
-description: "Questions-Réponses "
+description: "Michael Collier, reçu par Albert Fike : « Michael : … sur le plan terrestre. La vérité se révèle par étapes, par fragments, comme des souffles divins sur … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

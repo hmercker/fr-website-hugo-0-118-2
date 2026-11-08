@@ -1,7 +1,7 @@
 ---
 title: "Réussit à faire entrer son âme-sœur, Leslie, dans la troisième sphère, bien qu’à son retour il ne se souvienne pas du voyage qu’il a fait dans le monde des esprits"
 menu_title: ""
-description: "Réussit à faire entrer son âme-sœur, Leslie, dans la troisième sphère, bien qu’à son retour il ne se souvienne pas du voyage qu’il a fait dans le monde des esprits"
+description: "Mary Kennedy, reçu par James Padgett : « Laissez-moi juste écrire une ligne et je me sentirai mieux, car j’ai tellement hâte de dire au Docteur qu’il est … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

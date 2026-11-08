@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction puissante et réassurance pour la tournée d'éveil de l'âme"
 menu_title: ""
-description: "Bénédiction puissante et réassurance pour la tournée d'éveil de l'âme"
+description: "Jésus, reçu par Al Fike : « Tout comme vous apportez lumière et réconfort à de nombreuses personnes, Dieu se sert de vous pour allumer et soutenir les … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

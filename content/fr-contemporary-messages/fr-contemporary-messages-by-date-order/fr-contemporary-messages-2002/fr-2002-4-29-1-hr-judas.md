@@ -1,7 +1,7 @@
 ---
 title: "L’Antéchrist"
 menu_title: ""
-description: "L’Antéchrist"
+description: "Judas, reçu par H : « Mon cher frère, au début de ce message, il est nécessaire de définir ce que signifie le mot « Christ ». »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

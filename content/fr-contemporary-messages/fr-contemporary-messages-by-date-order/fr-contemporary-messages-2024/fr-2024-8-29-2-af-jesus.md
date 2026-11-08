@@ -1,7 +1,7 @@
 ---
 title: "Approuve et encourage les efforts déployés par le Cercle de Lumière d’Estonie"
 menu_title: ""
-description: "Approuve et encourage les efforts déployés par le Cercle de Lumière d’Estonie"
+description: "Jésus, reçu par Albert Fike : « Que la vérité de l’Amour du Père réside dans votre cœur, dans votre âme, dans votre esprit. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Goutte à goutte, l'amour a rempli mon âme"
 menu_title: ""
-description: "Goutte à goutte, l'amour a rempli mon âme"
+description: "Kathryn Stokes, reçu par Al Fike : « Jeanne remercie Kathryn d’être venue. Et je ne porte pas et n’ai pas porté beaucoup de bagages avec moi lorsque j’ai … »"
 date: 2022-06-01 06:00:01+00:312
 draft: False
 hidden: True

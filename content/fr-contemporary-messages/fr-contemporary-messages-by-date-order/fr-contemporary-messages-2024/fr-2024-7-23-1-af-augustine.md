@@ -1,7 +1,7 @@
 ---
 title: "Vivez une vie de prière"
 menu_title: ""
-description: "Vivez une vie de prière"
+description: "Augustin, reçu par Albert Fike : « Il est bon que vous vous réunissiez pour prier comme vous le faites, pour prendre le temps dans votre journée pour être … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

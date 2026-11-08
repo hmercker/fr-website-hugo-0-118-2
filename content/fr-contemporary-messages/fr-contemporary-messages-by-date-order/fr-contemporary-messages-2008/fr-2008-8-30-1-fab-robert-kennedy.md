@@ -1,7 +1,7 @@
 ---
 title: "Guidance divine d'un Kennedy - 2"
 menu_title: ""
-description: "Guidance divine d'un Kennedy - 2"
+description: "Robert Kennedy, reçu par FAB : « Mais dans cette souffrance pour mes méfaits, j'ai été soutenu par un but plus élevé. L'assassinat de mon frère John a eu … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

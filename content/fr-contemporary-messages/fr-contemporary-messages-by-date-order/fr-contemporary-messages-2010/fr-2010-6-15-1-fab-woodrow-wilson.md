@@ -1,7 +1,7 @@
 ---
 title: "Woodrow Wilson et le traité de Versailles"
 menu_title: ""
-description: "Woodrow Wilson et le traité de Versailles"
+description: "Woodrow Wilson, reçu par FAB : « Vous vous demandez comment je me suis comporté par rapport au règlement de la guerre à Versailles. »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirmant que Jésus a écrit et a montré sa gloire"
 menu_title: ""
-description: "Hélène affirmant que Jésus a écrit et a montré sa gloire"
+description: "Hélène Padgett, reçu par James Padgett : « Quel merveilleux message, tu as reçu du Maître, et comme il était sérieux alors qu’il t’écrivait. »"
 date: 2022-06-01 06:00:01+00:316
 draft: False
 hidden: True

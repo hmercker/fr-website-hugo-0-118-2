@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez grand vos âmes pour recevoir l’Amour de Dieu"
 menu_title: ""
-description: "Ouvrez grand vos âmes pour recevoir l’Amour de Dieu"
+description: "Jeanna d'Arc, reçu par Elizabeth Mack : « Vous ressentez la présence de Dieu sur vos âmes, la douceur de Ses bénédictions qui se déversent sur vous en ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

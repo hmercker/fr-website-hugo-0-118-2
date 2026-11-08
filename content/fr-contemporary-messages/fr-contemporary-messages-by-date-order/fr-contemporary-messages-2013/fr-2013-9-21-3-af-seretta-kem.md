@@ -1,7 +1,7 @@
 ---
 title: "Cultivez des pensées positives, divines et empreintes d’amour"
 menu_title: ""
-description: "Cultivez des pensées positives, divines et empreintes d’amour"
+description: "Seretta Kem, reçu par Albert Fike : « Les jours qui précèdent votre départ pour ce voyage sont très importants pour votre préparation, mes enfants. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

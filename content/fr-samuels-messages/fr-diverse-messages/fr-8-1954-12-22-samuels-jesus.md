@@ -1,7 +1,7 @@
 ---
 title: "Il est dit au Dr Samuels que son travail actuel aboutira à un Évangile nouveau et corrigé pour l'humanité"
 menu_title: ""
-description: "Il est dit au Dr Samuels que son travail actuel aboutira à un Évangile nouveau et corrigé pour l'humanité"
+description: "Jésus, reçu par Dr Samuels : « Je vous ai dit cet après-midi que je viendrais ce soir pour vous écrire, à vous et au docteur, un message d'Amour, de foi … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

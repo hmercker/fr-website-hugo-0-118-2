@@ -1,7 +1,7 @@
 ---
 title: "Que votre Amour soit un baume de guérison"
 menu_title: ""
-description: "Que votre Amour soit un baume de guérison"
+description: "Kahlil Gibran, reçu par Jimbeau Walsh : « Car je vivais comme entre deux mondes, une existence très humaine, très terrestre et pourtant mon âme était sur … »"
 date: 2022-06-01 06:00:01+00:1400
 draft: False
 hidden: True

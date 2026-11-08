@@ -1,7 +1,7 @@
 ---
 title: "20ème Sermon – Le deuxième psaume de David ne fait aucune allusion à Jésus"
 menu_title: ""
-description: "20ème Sermon – Le deuxième psaume de David ne fait aucune allusion à Jésus"
+description: "Jésus, reçu par Dr Samuels : « Dans le dernier sermon, j’ai considéré les Psaumes de David dans la perspective d’une approche intime de l’homme au Père … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que Joe Shellington a écrit"
 menu_title: ""
-description: "Hélène confirme que Joe Shellington a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Il progresse maintenant et prie le Père, et il a un peu de foi. Comme il l’a dit, j’ai essayé de l’aider, et il … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

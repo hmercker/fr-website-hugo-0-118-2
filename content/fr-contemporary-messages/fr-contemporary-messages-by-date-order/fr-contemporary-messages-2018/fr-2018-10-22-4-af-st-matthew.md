@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de faire de plus grands efforts pour grandir dans la prière"
 menu_title: ""
-description: "Il est temps de faire de plus grands efforts pour grandir dans la prière"
+description: "St Matthieu, reçu par Al Fike : « Oui vous entamez la dernière étape de votre voyage ensemble, pour le réveil de vos âmes. Il y a une différence … »"
 date: 2022-06-01 06:00:01+00:531
 draft: False
 hidden: True

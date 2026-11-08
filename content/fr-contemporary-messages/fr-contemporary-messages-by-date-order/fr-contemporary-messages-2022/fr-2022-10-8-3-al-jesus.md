@@ -1,7 +1,7 @@
 ---
 title: "Bénis et encouragés"
 menu_title: ""
-description: "Bénis et encouragés"
+description: "Jésus, reçu par Al Fike : « Car avec cette bénédiction et cette connaissance, toutes les choses de bien, de lumière et d’harmonie suivront à sa place. »"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

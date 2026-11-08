@@ -1,7 +1,7 @@
 ---
 title: "Renforcez la lumière et l'amour en vous"
 menu_title: ""
-description: "Renforcez la lumière et l'amour en vous"
+description: "Orion, reçu par Albert Fike : « Comme nous souhaitons que votre monde soit en harmonie. Chaque monde dans l’univers de Dieu est destiné à être en harmonie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

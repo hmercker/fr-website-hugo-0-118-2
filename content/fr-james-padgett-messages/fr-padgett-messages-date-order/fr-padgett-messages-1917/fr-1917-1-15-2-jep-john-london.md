@@ -1,7 +1,7 @@
 ---
 title: "La vérité sur l’enfer et le purgatoire"
 menu_title: ""
-description: "La vérité sur l’enfer et le purgatoire"
+description: "John B London, reçu par James Padgett : « Laissez-moi dire un mot, et je me sentirai mieux après l’avoir fait. Ces plans sont de divers degrés … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

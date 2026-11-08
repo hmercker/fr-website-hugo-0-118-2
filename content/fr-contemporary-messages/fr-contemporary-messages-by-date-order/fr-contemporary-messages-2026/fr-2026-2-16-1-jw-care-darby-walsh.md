@@ -1,7 +1,7 @@
 ---
 title: "Maîtriser le service (Rayonner la lumière"
 menu_title: ""
-description: "Maîtriser le service (Rayonner la lumière)"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Ce soir, je vous invite à méditer sur ce que j'appellerai la contemplation spirituelle. Le monde regorge de … »"
 date: 2026-02-22 16:00:01+00:01
 draft: False
 hidden: True

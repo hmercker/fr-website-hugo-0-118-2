@@ -1,7 +1,7 @@
 ---
 title: "Agissez avec votre âme "
 menu_title: ""
-description: "Agissez avec votre âme "
+description: "Joseph, reçu par Al Fike : « Comprenez-vous vraiment la puissance de votre propre âme ? Car la puissance de l’âme est grande, une fois que cette âme a été … »"
 date: 2022-06-01 06:00:01+00:1128
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "De nombreuses occasions de joie, de service et d’amour"
 menu_title: ""
-description: "De nombreuses occasions de joie, de service et d’amour"
+description: "Goldie, reçu par Albert Fike : « Et vous devriez être heureux ! Car Dieu vous a tant comblés. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

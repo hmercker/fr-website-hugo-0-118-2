@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett commente sur l’esprit qui a juste écrit et est allé avec le Professeur Salyards"
 menu_title: ""
-description: "Hélène Padgett commente sur l’esprit qui a juste écrit et est allé avec le Professeur Salyards"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, j’ai eu quelques difficultés à cause des esprits qui voulaient et essayaient d’écrire, mais … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

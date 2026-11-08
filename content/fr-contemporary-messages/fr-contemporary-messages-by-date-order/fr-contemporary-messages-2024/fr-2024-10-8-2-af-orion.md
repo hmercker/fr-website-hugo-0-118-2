@@ -1,7 +1,7 @@
 ---
 title: "Que l’Amour Universel de Dieu remplisse chaque âme"
 menu_title: ""
-description: "Que l’Amour Universel de Dieu remplisse chaque âme"
+description: "Orion, reçu par Albert Fike : « En effet, que cet Amour Universel, l’amour qui vient de la Grande Âme, Celle qui nous a tous créés, remplisse votre âme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Des empreintes dans le sable"
 menu_title: ""
-description: "Des empreintes dans le sable"
+description: "Judas, reçu par H : « … et tu as marché toute la journée avec ces mots dans ta tête, tu es allé jusqu’à télécharger le texte depuis Internet. »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

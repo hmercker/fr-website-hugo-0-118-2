@@ -1,7 +1,7 @@
 ---
 title: "Mon amour va guérir tes blessures"
 menu_title: ""
-description: "Mon amour va guérir tes blessures"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Ressens Mon réconfort et ouvre ton âme à Mon amour. Mon Amour va guérir tes blessures. »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

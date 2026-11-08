@@ -1,7 +1,7 @@
 ---
 title: "Surmonter les difficultés qui nous attendent"
 menu_title: ""
-description: "Surmonter les difficultés qui nous attendent"
+description: "St Pierre, reçu par Révérend Dave Lampron : « Comme Jean, mon prédécesseur, je n’ai pas été très actif dans mon rôle d’ange guide pour vous, sauf pour … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

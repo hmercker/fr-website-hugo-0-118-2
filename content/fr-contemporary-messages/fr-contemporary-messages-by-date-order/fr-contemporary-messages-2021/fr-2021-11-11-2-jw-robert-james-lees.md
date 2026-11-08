@@ -1,7 +1,7 @@
 ---
 title: "Tous sont dignes de l'Amour de Dieu"
 menu_title: ""
-description: "Tous sont dignes de l'Amour de Dieu"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « Tous ceux qui marchent sur le chemin de l’Amour de Dieu sont sur le pont dont vous parlez et qui relie la … »"
 date: 2022-06-01 06:00:01+00:1713
 draft: False
 hidden: True

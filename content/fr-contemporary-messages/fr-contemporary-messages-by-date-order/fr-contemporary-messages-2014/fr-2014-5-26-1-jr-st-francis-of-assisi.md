@@ -1,7 +1,7 @@
 ---
 title: "« S’aimer les uns les autres »"
 menu_title: ""
-description: "« S’aimer les uns les autres »"
+description: "St François d'Assise, reçu par James Reid : « Le travail que vous avez tous investi dans le Rassemblement porte beaucoup de fruits et continuera à le … »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

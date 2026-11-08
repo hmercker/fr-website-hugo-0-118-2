@@ -1,7 +1,7 @@
 ---
 title: "Soyez les pourvoyeurs de la joie"
 menu_title: ""
-description: "Soyez les pourvoyeurs de la joie"
+description: "André, reçu par Al Fike : « Combien il est important de ressentir la joie dans vos vies, dans vos êtres, dans vos âmes, car la joie est un marqueur. »"
 date: 2022-06-01 06:00:01+00:194
 draft: False
 hidden: True

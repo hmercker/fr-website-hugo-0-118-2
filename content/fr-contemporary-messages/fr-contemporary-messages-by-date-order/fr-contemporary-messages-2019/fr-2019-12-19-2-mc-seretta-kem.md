@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour que le Cercle des Sept se réunisse en personne"
 menu_title: ""
-description: "Conseils pour que le Cercle des Sept se réunisse en personne"
+description: "Seretta Kem, reçu par Maureen Cardoso : « C’est une grande bénédiction de vous voir tous les trois réunis une fois de plus et que la Lumière et l’Amour … »"
 date: 2022-06-01 06:00:01+00:965
 draft: False
 hidden: True

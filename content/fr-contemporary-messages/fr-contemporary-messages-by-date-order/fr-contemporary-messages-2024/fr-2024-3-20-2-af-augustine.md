@@ -1,7 +1,7 @@
 ---
 title: "Décrit le but des messages Célestes"
 menu_title: ""
-description: "Décrit le but des messages Célestes"
+description: "Augustin, reçu par Albert Fike : « Je souhaite commenter la manière dont nous transmettons nos messages et les raisons qui les motivent. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

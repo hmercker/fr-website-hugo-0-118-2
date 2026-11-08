@@ -1,7 +1,7 @@
 ---
 title: "Vous marchez sur la route la plus élevée"
 menu_title: ""
-description: "Vous marchez sur la route la plus élevée"
+description: "St Matthieu, reçu par Al Fike : « Vous avez beaucoup appris ces derniers jours en compagnie de vos amis, mais rappelez-vous que vous marchez sur la route … »"
 date: 2022-06-01 06:00:01+00:658
 draft: False
 hidden: True

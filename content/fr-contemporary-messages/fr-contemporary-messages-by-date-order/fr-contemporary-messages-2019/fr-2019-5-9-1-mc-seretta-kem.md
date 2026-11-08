@@ -1,7 +1,7 @@
 ---
 title: "Engagement"
 menu_title: ""
-description: "Engagement"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Il est bon de vous entendre partager ces pratiques que vous mettez en œuvre dans votre vie et qui vous aident à … »"
 date: 2022-06-01 06:00:01+00:727
 draft: False
 hidden: True

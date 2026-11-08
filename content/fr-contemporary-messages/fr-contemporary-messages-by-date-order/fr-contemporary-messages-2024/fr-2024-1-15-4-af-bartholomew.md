@@ -1,7 +1,7 @@
 ---
 title: "L’Esprit Saint touche profondément vos âmes"
 menu_title: ""
-description: "L’Esprit Saint touche profondément vos âmes"
+description: "Bartholomée, reçu par Albert Fike : « Le don de l’amour est sur vous, mes amis. C’est à vous de vous ouvrir et de le recevoir avec gratitude et joie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

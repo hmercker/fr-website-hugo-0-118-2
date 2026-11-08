@@ -1,7 +1,7 @@
 ---
 title: "En ce moment, vous êtes dans le ventre de Dieu"
 menu_title: ""
-description: "En ce moment, vous êtes dans le ventre de Dieu"
+description: "Augustin, reçu par Al Fike : « Je vous souhaite la bienvenue dans ce cercle de Lumière et pour ce temps que vous allez passer ensemble, en prière et en … »"
 date: 2022-06-01 06:00:01+00:405
 draft: False
 hidden: True

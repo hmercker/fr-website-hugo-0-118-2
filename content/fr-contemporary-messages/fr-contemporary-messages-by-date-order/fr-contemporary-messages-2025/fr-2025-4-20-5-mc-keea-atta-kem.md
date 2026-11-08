@@ -1,7 +1,7 @@
 ---
 title: "La Véritable Rédemption de l'Âme"
 menu_title: ""
-description: "La Véritable Rédemption de l'Âme"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Vous parlez de la grande résurrection, de l’incompréhension de la vérité de la résurrection et de votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La loi de compensation – le chemin naturel comparé au chemin Divin"
 menu_title: ""
-description: "La loi de compensation – le chemin naturel comparé au chemin Divin"
+description: "St Luc, reçu par Al Fike : « Je souhaite m’exprimer sur la loi de compensation, car vos amis ont discuté de cette loi et de son incidence sur l’humanité. »"
 date: 2022-06-01 06:00:01+00:390
 draft: False
 hidden: True

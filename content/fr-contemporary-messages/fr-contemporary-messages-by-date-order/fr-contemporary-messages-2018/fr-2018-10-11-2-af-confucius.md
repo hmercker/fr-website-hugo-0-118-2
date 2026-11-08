@@ -1,7 +1,7 @@
 ---
 title: "Nourrissez vos âmes dans la prière et le service"
 menu_title: ""
-description: "Nourrissez vos âmes dans la prière et le service"
+description: "Confucius, reçu par Al Fike : « Alors mes petits oiseaux souhaitent voler et voler vous devez, voler vous devez petits oiseaux et voler vous le ferez … »"
 date: 2022-06-01 06:00:01+00:510
 draft: False
 hidden: True

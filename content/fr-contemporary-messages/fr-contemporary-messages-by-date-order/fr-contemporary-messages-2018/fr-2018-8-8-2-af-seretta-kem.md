@@ -1,7 +1,7 @@
 ---
 title: "Apportez vos désirs de servir à Dieu"
 menu_title: ""
-description: "Apportez vos désirs de servir à Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Il est agréable de vous voir tous les quatre à nouveau réunis dans la prière. Je vous encourage à le faire autant que … »"
 date: 2022-06-01 06:00:01+00:442
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes unis par l’Amour de Dieu"
 menu_title: ""
-description: "Nous sommes unis par l’Amour de Dieu"
+description: "Marie, reçu par Al Fike : « Peu importe où vous êtes dans le monde, vous êtes liés en ce moment par la Grâce de l’Amour de Dieu qui vous élève et vous … »"
 date: 2022-06-01 06:00:01+00:1435
 draft: False
 hidden: True

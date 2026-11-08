@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon"
 menu_title: ""
-description: "L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon"
+description: "Salomon : « Je vous aime, je souhaite renforcer le lien d'amour entre vous tous. Je désire que vous ne fassiez qu'un dans votre âme, votre esprit et votre … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

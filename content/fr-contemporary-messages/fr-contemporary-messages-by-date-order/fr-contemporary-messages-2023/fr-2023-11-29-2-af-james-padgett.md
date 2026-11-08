@@ -1,7 +1,7 @@
 ---
 title: "L'impact considérable qu'une petite décision peut avoir"
 menu_title: ""
-description: "L'impact considérable qu'une petite décision peut avoir"
+description: "James Padgett, reçu par Albert Fike : « Je m’appelle James Padgett. Vous avez parlé de moi, de mon travail, de ma vie et vous m’avez donc attiré dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

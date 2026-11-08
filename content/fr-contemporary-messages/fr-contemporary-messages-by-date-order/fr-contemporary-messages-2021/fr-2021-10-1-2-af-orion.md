@@ -1,7 +1,7 @@
 ---
 title: "Orion se présente à l'OCL - Ils sont ici pour aider la Terre"
 menu_title: ""
-description: "Orion Se présente à l'OCL - Ils sont ici pour aider la Terre"
+description: "Orion, reçu par Al Fike : « Dans le flux de Son Amour vient cette lumière et cette grâce, vient tout ce qui est bon, tout ce qui est en harmonie avec Sa … »"
 date: 2022-06-01 06:00:01+00:1666
 draft: False
 hidden: True

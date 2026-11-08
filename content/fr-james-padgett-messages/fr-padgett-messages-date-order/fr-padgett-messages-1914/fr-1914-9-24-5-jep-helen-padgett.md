@@ -1,7 +1,7 @@
 ---
 title: "Et d’Hélène"
 menu_title: ""
-description: "Et d’Hélène"
+description: "Hélène Padgett, reçu par James Padgett : « Bonne nuit, je t’aime, Hélène. »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

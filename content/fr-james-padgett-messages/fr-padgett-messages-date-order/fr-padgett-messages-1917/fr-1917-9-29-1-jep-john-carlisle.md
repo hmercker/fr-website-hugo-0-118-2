@@ -1,7 +1,7 @@
 ---
 title: "Carlisle a progressé dans la lumière au cours de la dernière année avec l’aide de M. Padgett et de ses Esprits Célestes"
 menu_title: ""
-description: "Carlisle a progressé dans la lumière au cours de la dernière année avec l’aide de M. Padgett et de ses Esprits Célestes"
+description: "John G Carlisle, reçu par James Padgett : « J’ai également été présent lorsque vous et vos amis avez parlé de choses spirituelles et que vous avez écouté … »"
 date: 2022-06-01 06:00:01+00:178
 draft: False
 hidden: True

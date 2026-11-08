@@ -1,7 +1,7 @@
 ---
 title: "Plus vous donnez de l'amour et de la compréhension aux autres, plus vous recevez l'Amour de Dieu"
 menu_title: ""
-description: "Plus vous donnez de l'amour et de la compréhension aux autres, plus vous recevez l'Amour de Dieu"
+description: "Keea Atta Kem : « Je souhaite la bienvenue à tous ceux qui s'assoient pour la première fois avec ce groupe. C'est le seul moment où vous pouvez vraiment … »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

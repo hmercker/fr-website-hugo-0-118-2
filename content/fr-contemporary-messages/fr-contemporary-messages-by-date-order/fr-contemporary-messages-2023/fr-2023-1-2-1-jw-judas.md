@@ -1,7 +1,7 @@
 ---
 title: "La foi au delà de la peur"
 menu_title: ""
-description: "La foi au delà de la peur"
+description: "Judas, reçu par Jimbeau Walsh : « Que ce temps qui vous attend tous sur la Terre soit un rassemblement, non seulement dans la communion de l’Amour de … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

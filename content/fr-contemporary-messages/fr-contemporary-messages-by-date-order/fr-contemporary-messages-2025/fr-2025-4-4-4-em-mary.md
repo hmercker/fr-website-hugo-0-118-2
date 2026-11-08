@@ -1,7 +1,7 @@
 ---
 title: "La Terre est bénie par de nombreuses nouvelles créations du Père"
 menu_title: ""
-description: "La Terre est bénie par de nombreuses nouvelles créations du Père"
+description: "Marie, reçu par Elizabeth Mack : « Vous connaissez votre Père, qui vous bénit constamment, toujours de multiples façons, et qui vous regarde avec le plus … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Transition de Victor Summers"
 menu_title: ""
-description: "Transition de Victor Summers"
+description: "Victor Summers, reçu par FAB : « J’étais submergé par l’émotion, alors Jésus et les autres Anges ont fait une pause pour me permettre de retrouver mon calme. »"
 date: 2022-06-01 06:00:01+00:208
 draft: False
 hidden: True

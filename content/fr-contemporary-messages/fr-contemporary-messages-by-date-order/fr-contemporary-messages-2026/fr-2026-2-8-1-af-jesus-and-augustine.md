@@ -1,7 +1,7 @@
 ---
 title: "Foi et Âme 1 : Avancez avec foi pour accomplir votre destinée"
 menu_title: ""
-description: "Foi et Âme 1 : Avancez avec foi pour accomplir votre destinée"
+description: "Jésus et Augustin, reçu par Albert Fike : « Car ces cercles sont précieux et rares dans votre monde, mais la puissance de l'Amour que vous cherchez à … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

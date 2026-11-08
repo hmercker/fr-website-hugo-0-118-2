@@ -1,7 +1,7 @@
 ---
 title: "Comprendre les lois de l'amour et la régénération de nos âmes"
 menu_title: ""
-description: "Comprendre les lois de l'amour et la régénération de nos âmes"
+description: "Martin Luther, reçu par Al Fike : « J'ai écouté votre conversation de ce soir. Je vois que vous êtes arrivé à un endroit où vous voyez qu'il y a des … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

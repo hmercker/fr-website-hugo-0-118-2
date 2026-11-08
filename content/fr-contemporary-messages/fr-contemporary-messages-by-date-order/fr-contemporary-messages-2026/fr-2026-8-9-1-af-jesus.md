@@ -1,7 +1,7 @@
 ---
 title: "Le chemin éternel de l'éveil de l'âme"
 menu_title: ""
-description: "Le chemin éternel de l'éveil de l'âme"
+description: "Jésus, reçu par Albert Fike : « Il n'existe qu'un seul chemin où l'âme peut véritablement s'épanouir pour l'éternité. Tous les autres chemins ne sont que … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

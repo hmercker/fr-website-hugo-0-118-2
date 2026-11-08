@@ -1,7 +1,7 @@
 ---
 title: "Combattre les Ténèbres par la Lumière"
 menu_title: ""
-description: "Combattre les Ténèbres par la Lumière"
+description: "Orion, reçu par Albert Fike : « Nous déployons de grands efforts pour vous soutenir et vous aider à neutraliser ce que vous pourriez considérer comme des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

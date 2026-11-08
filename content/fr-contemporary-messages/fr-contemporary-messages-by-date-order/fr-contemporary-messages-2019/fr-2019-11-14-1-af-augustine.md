@@ -1,7 +1,7 @@
 ---
 title: "Le plus grand pouvoir de transformation est en vous"
 menu_title: ""
-description: "Le plus grand pouvoir de transformation est en vous"
+description: "Augustin, reçu par Al Fike : « Alors que nous arrivons sur votre plan, ce plan terrestre, ce qui se présente à nous est une grande souffrance, de grands … »"
 date: 2022-06-01 06:00:01+00:909
 draft: False
 hidden: True

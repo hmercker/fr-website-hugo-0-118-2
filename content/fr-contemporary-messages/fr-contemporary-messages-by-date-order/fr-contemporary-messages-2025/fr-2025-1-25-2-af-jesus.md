@@ -1,7 +1,7 @@
 ---
 title: "Il est important de se préparer aux changements à venir dans le monde"
 menu_title: ""
-description: "Il est important de se préparer aux changements à venir dans le monde"
+description: "Jésus, reçu par Albert Fike : « Il est important que vous soyez préparés et dotés de la force de l’âme pour vous aider à les gérer et à vous épanouir dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

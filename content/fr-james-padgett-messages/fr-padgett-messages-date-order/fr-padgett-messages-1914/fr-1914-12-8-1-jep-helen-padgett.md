@@ -1,7 +1,7 @@
 ---
 title: "Décrit la méthode utilisée pour communiquer ses pensées par l’entremise de M. Padgett"
 menu_title: ""
-description: "Décrit la méthode utilisée pour communiquer ses pensées par l’entremise de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Padgett, épouse de James Padgett.). Laisse-moi te dire que tu te rends seulement malheureux en essayant de tout … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

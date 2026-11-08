@@ -1,7 +1,7 @@
 ---
 title: "L'environnement - 3"
 menu_title: ""
-description: "L'environnement - 3"
+description: "Jésus, reçu par FAB : « Et la solution est de rectifier ce déséquilibre spirituel par la sagesse des anciennes traditions spirituelles, en particulier des … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

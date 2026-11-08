@@ -1,7 +1,7 @@
 ---
 title: "Affirme que Jésus écrit par l’intermédiaire de M. Padgett, et non d’un imposteur"
 menu_title: ""
-description: "Affirme que Jésus écrit par l’intermédiaire de M. Padgett, et non d’un imposteur"
+description: "Anne Rollins, reçu par James Padgett : « Tu as eu plus ou moins douté que nous sommes vraiment les personnes que nous prétendons être, et tu t’es demandé … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

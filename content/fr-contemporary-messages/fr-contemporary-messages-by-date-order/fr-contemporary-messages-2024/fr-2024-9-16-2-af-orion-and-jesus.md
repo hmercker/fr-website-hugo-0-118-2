@@ -1,7 +1,7 @@
 ---
 title: "Vous Atteignez les Âmes et non les Esprits"
 menu_title: ""
-description: "Vous Atteignez les Âmes et non les Esprits"
+description: "Orion et jésus, reçu par Albert Fike : « Âmes bien-aimées, je vous encourage à faire des efforts pour vous connecter avec chaque âme qui se trouve sur … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'emplacement de Dieu"
 menu_title: ""
-description: "L'emplacement de Dieu"
+description: "Jésus, reçu par FAB : « Vous avez lu, dans mon deuxième message officiel à M. Padgett, ce qui suit : « Il [Dieu] n'est pas dans un lieu particulier, ni … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

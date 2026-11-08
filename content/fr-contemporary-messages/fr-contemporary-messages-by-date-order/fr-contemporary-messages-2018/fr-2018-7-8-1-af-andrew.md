@@ -1,7 +1,7 @@
 ---
 title: "Choisissez d'éveiller votre âme par la prière pour l'Amour Divin"
 menu_title: ""
-description: "Choisissez d'éveiller votre âme par la prière pour l'Amour Divin"
+description: "André, reçu par Al Fike : « Cette substance ne vient dans votre âme que par invitation, avec un désir à Dieu, une prière pour ouvrir les vannes pour … »"
 date: 2022-06-01 06:00:01+00:422
 draft: False
 hidden: True

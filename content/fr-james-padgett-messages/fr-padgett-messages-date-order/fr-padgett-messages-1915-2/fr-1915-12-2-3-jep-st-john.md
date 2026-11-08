@@ -1,7 +1,7 @@
 ---
 title: "Saint-Jean a dit que le Maître avait écrit et montré sa grande puissance et gloire"
 menu_title: ""
-description: "Saint-Jean a dit que le Maître avait écrit et montré sa grande puissance et gloire"
+description: "St Jean, reçu par James Padgett : « Laissez moi vous dire que le Maître vient d’écrire, et, en écrivant il a, encore une fois, affiché sa grande puissance … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

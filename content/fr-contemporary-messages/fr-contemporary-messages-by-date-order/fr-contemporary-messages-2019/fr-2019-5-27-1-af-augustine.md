@@ -1,7 +1,7 @@
 ---
 title: "Choisir de boire la subsistance de la vie de l'âme"
 menu_title: ""
-description: "Choisir de boire la subsistance de la vie de l'âme"
+description: "Augustin, reçu par Al Fike : « Il y a tant de choses que vous devez apprendre à connaître, tant de choses que vous devez exprimer. »"
 date: 2022-06-01 06:00:01+00:735
 draft: False
 hidden: True

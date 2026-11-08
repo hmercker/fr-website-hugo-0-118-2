@@ -1,7 +1,7 @@
 ---
 title: "Progression spirituelle au-delà des réticences et de la religion"
 menu_title: ""
-description: "Progression spirituelle au-delà des réticences et de la religion"
+description: "George Vale Owen, reçu par Jimbeau Walsh : « Les messages que j’ai reçus quelques années seulement avant que James Padgett ne commence sa médiumnité … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

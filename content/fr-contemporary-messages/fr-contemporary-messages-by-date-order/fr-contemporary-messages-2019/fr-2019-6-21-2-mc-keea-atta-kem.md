@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes attirés par votre soutien"
 menu_title: ""
-description: "Nous sommes attirés par votre soutien"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « En ce moment même, votre lieu de guérison est plein, plein d'anges. Ressentez-vous cette présence ? »"
 date: 2022-06-01 06:00:01+00:752
 draft: False
 hidden: True

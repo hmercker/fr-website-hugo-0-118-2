@@ -1,7 +1,7 @@
 ---
 title: "Quelques autres réflexions de FDR"
 menu_title: ""
-description: "Quelques autres réflexions de FDR"
+description: "Franklin D Roosevelt, reçu par FAB : « Vous lisez que j’en savais plus sur ces choses conspiratrices cachées que ce qui est généralement reconnu, et c’est … »"
 date: 2022-06-01 06:00:01+00:278
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dites la Vérité"
 menu_title: ""
-description: "Dites la Vérité"
+description: "Nuage Blanc, reçu par Al Fike : « Le temps est venu pour vous tous de vous lever et de dire la Vérité. Vous ne pouvez pas continuer à permettre à ceux qui … »"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True

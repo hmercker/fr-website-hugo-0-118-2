@@ -1,7 +1,7 @@
 ---
 title: "Soyez reconnaissants pour la vie !"
 menu_title: ""
-description: "Soyez reconnaissants pour la vie !"
+description: "Flavius Josèphe, reçu par Albert Fike : « Que les profondes bénédictions de l’Esprit Saint touchent votre âme. Chaque âme sur ce monde n’est pas … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

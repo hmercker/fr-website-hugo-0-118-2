@@ -1,7 +1,7 @@
 ---
 title: "Un président s’explique"
 menu_title: ""
-description: "Un président s’explique"
+description: "Woodrow Wilson, reçu par FAB : « J’avais un certain idéalisme. Pourquoi me suis-je excusé auprès du peuple américain pour avoir signé le Federal Reserve Act ? »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Encouragement de nos efforts et notre auto-compassion dans le développement de la Voix Directe"
 menu_title: ""
-description: "Encouragement de nos efforts et notre auto-compassion dans le développement de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Que l’Amour continue à s’éveiller. Que vos cœurs continuent à grandir de Son Amour et que cet Amour s’exprime dans le … »"
 date: 2022-06-01 06:00:01+00:1569
 draft: False
 hidden: True

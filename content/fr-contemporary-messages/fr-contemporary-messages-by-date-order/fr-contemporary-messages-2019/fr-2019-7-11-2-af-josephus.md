@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Méditation guidée et prière"
 menu_title: ""
-description: "Q&R : Méditation guidée et prière"
+description: "Flavius Josèphe, reçu par Al Fike : « Je sais que notre frère Confucius souhaite que vous entriez dans votre âme pour trouver les réponses et c’est une … »"
 date: 2022-06-01 06:00:01+00:778
 draft: False
 hidden: True

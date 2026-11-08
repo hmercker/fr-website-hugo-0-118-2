@@ -1,7 +1,7 @@
 ---
 title: "Paroles d’encouragement"
 menu_title: ""
-description: "Paroles d’encouragement"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu n’as pas tellement envie d’écrire ce soir, je ne dirai donc que quelques mots. »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

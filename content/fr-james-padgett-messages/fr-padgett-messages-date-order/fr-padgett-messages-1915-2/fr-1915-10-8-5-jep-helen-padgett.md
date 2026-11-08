@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit au sujet de la scène d’amour entre le Docteur et son âme sœur, Mary"
 menu_title: ""
-description: "Hélène écrit au sujet de la scène d’amour entre le Docteur et son âme sœur, Mary"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, nous avons eu une scène d’amour entre Mary et le Docteur, et elle était si heureuse de pouvoir lui … »"
 date: 2022-06-01 06:00:01+00:302
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon 14 : La loi du désir"
 menu_title: ""
-description: "Leçon 14 : La loi du désir"
+description: "Jésus, reçu par Al Fike : « Tant de concepts et d’idées de la vérité donnés par les enseignants spirituels d’aujourd’hui sont compliqués et remplis de … »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

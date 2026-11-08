@@ -1,7 +1,7 @@
 ---
 title: "Orion décrit le processus de réception de l'Amour Divin sur sa planète et exprime son admiration pour notre ténacité"
 menu_title: ""
-description: "Orion décrit le processus de réception de l'Amour Divin sur sa planète et exprime son admiration pour notre ténacité"
+description: "Orion, reçu par Al Fike : « J’ai déjà dit que sur ma planète, il n’est pas nécessaire de mettre de côté la prière formelle pour recevoir ce don d’Amour … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

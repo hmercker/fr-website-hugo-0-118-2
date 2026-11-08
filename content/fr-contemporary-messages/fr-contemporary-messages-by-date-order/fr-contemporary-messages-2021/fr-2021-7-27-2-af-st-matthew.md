@@ -1,7 +1,7 @@
 ---
 title: "La prière est le levier pour ouvrir la porte à Dieu"
 menu_title: ""
-description: "La prière est le levier pour ouvrir la porte à Dieu"
+description: "St Matthieu, reçu par Al Fike : « Le pouvoir de la prière est le grand levier qui ouvre la porte à Dieu. Combien il est crucial d’exprimer vos pensées et … »"
 date: 2022-06-01 06:00:01+00:1582
 draft: False
 hidden: True

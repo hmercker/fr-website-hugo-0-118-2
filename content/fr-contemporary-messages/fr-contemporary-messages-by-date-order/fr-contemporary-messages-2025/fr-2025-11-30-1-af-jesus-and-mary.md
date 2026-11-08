@@ -1,7 +1,7 @@
 ---
 title: "Vous faites partie du plan de Dieu pour la guérison du monde"
 menu_title: ""
-description: "Vous faites partie du plan de Dieu pour la guérison du monde"
+description: "Jésus et Marie, reçu par Albert Fike : « Jésus : Le monde attend la guérison et la rédemption. Nous sommes tous liés à votre monde, que nous vivions dans … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction d'Éveil de l'Âme et de Paix Divine"
 menu_title: ""
-description: "Bénédiction d'Éveil de l'Âme et de Paix Divin"
+description: "Confucius, reçu par Albert Fike : « Puissiez-vous être entourée de papillons, ma chère fille, et rêver de toute la beauté de la création. »"
 date: 2026-01-21 06:00:01+00:01
 draft: False
 hidden: True

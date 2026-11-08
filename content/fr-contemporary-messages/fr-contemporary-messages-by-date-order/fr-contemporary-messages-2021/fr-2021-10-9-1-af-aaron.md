@@ -1,7 +1,7 @@
 ---
 title: "Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos difficultés (2021 Groupe des douze)"
 menu_title: ""
-description: "Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos difficultés (2021 Groupe des douze)"
+description: "Aaron, reçu par Al Fike : « Votre prière était poignante, chère fille, et sincère en effet. Vous n’êtes pas égaux, âmes bien-aimées, car chacune de vous … »"
 date: 2022-06-01 06:00:01+00:1673
 draft: False
 hidden: True

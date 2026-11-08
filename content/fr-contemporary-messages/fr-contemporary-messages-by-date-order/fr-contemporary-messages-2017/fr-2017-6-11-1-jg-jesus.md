@@ -1,7 +1,7 @@
 ---
 title: "Vivre le chemin de l’amour"
 menu_title: ""
-description: "Vivre le chemin de l’amour"
+description: "Jésus, reçu par Jane Gartshore : « Il y a deux raisons à cela. Premièrement, cela renforce l’harmonie de l’ensemble. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Comment la vérité émerge dans l'âme"
 menu_title: ""
-description: "Comment la vérité émerge dans l'âme"
+description: "Keea Atta Kem, reçu par Al Fike : « J'ai vécu à l'époque de Ramsès le Second en Égypte. J'étais l'une de ses filles. »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

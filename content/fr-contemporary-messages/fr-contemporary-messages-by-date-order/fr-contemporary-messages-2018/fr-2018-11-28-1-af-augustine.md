@@ -1,7 +1,7 @@
 ---
 title: "Toute vérité vient de l'âme"
 menu_title: ""
-description: "Toute vérité vient de l'âme"
+description: "Augustin, reçu par Al Fike : « Je vois que vous avez eu une discussion animée ce matin. Une discussion plutôt controversée par nature. »"
 date: 2022-06-01 06:00:01+00:581
 draft: False
 hidden: True

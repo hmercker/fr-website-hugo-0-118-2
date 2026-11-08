@@ -1,7 +1,7 @@
 ---
 title: "Nos enseignements sont simples"
 menu_title: ""
-description: "Nos enseignements sont simples"
+description: "Moïse : « Nous sommes vraiment bénis ce soir, et il m'a été demandé de venir vous parler pendant un court moment. »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

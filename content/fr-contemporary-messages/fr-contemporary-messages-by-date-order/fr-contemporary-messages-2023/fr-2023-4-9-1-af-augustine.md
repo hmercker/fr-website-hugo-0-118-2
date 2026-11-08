@@ -1,7 +1,7 @@
 ---
 title: "Vous avez choisi la bataille pour la lumière"
 menu_title: ""
-description: "Vous avez choisi la bataille pour la lumière"
+description: "Augustin, reçu par Al Fike : « Je souhaite affirmer que chacun d’entre vous est une lumière, que même si vous avez vos défis, vos batailles, alors que … »"
 date: 2023-09-01 06:00:01+00:113
 draft: False
 hidden: True

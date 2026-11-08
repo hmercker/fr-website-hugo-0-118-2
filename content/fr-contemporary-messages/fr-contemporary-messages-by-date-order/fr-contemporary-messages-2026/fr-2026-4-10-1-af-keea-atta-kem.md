@@ -1,7 +1,7 @@
 ---
 title: "Cercles de Lumière : Comment ils nous unissent dans l'Amour Divin au-delà de la présence physique"
 menu_title: ""
-description: "Cercles de Lumière : Comment ils nous unissent dans l'Amour Divin au-delà de la présence physique"
+description: "Keea atta Kem, reçu par Al Fike : « Cet instrument a évoqué le Réseau de Lumière. En effet, vous êtes tous connectés. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

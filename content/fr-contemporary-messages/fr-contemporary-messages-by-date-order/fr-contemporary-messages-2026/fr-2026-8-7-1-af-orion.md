@@ -1,7 +1,7 @@
 ---
 title: "Être un véritable instrument exige courage et foi"
 menu_title: ""
-description: "Être un véritable instrument exige courage et foi"
+description: "Orion, reçu par Albert Fike : « Nous sommes étonnés de voir à quel point l'humanité occulte son âme vis-à-vis de sa conscience. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

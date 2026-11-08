@@ -1,7 +1,7 @@
 ---
 title: "Le plan des Pharisiens pour se débarrasser de Jésus"
 menu_title: ""
-description: "Le plan des Pharisiens pour se débarrasser de Jésus"
+description: "Judas, reçu par H : « Oh, Jérusalem, Jérusalem ! Toi qui tues les prophètes et qui lapides ceux qui te sont envoyés, combien de fois ai-je voulu … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Chacun de vous a un rôle à jouer"
 menu_title: ""
-description: "Chacun de vous a un rôle à jouer"
+description: "Jésus, reçu par Albert Fike : « Chacun de vous joue un rôle, mes enfants ; chacun de vous a un rôle à jouer. Car certains d’entre vous doutent, éprouvent … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

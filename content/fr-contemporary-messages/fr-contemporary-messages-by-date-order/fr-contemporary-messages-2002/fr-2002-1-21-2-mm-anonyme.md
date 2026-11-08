@@ -1,7 +1,7 @@
 ---
 title: "Rentrer à la maison avec confiance"
 menu_title: ""
-description: "Rentrer à la maison avec confiance"
+description: "Anonyme, reçu par MM : « Bénis Tes enfants, donne-nous Ta Lumière. Accorde-nous Tes Merveilles, nous qui, éloignés de Toi, sommes dans les ténèbres et … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

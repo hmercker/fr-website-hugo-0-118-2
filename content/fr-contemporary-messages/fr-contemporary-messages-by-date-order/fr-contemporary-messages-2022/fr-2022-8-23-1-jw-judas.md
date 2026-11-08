@@ -1,7 +1,7 @@
 ---
 title: "Chaque crise est une opportunité"
 menu_title: ""
-description: "Chaque crise est une opportunité"
+description: "Judas, reçu par Jimbeau Walsh : « Mon frère ici, alors que vous discutiez de la fermeture des Cieux Célestes et qu’il proclamait pourquoi il s’étonne que … »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

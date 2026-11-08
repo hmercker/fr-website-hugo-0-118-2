@@ -1,7 +1,7 @@
 ---
 title: "Poèmes de Haffiz"
 menu_title: ""
-description: "Poèmes de Haffiz"
+description: "Hafiz, reçu par Jimbeau Walsh : « Et si un ange venait dans votre maison Pensez-vous que vous auriez besoin de tous ces meubles Qui encombrent votre … »"
 date: 2022-06-01 06:00:01+00:1555
 draft: False
 hidden: True

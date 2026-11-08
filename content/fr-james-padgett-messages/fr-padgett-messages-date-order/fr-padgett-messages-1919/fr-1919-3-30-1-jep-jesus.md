@@ -1,7 +1,7 @@
 ---
 title: "Écrit au sujet d’une visite faite par M. Padgett à un médium spirite et lui conseille de l’aider à découvrir l’Amour Divin du Père qui lui est maintenant dû à juste titre puisqu’elle cherche l’Amour supérieur depuis sa tendre enfance"
 menu_title: ""
-description: "Écrit au sujet d’une visite faite par M. Padgett à un médium spirite et lui conseille de l’aider à découvrir l’Amour Divin du Père qui lui est maintenant dû à juste titre puisqu’elle cherche l’Amour supérieur depuis sa tendre enfance"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, car j’ai hâte de vous dire que vous n’avez pas été en bonne compagnie … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

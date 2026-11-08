@@ -1,7 +1,7 @@
 ---
 title: "La bénédiction de Dieu par Jésus"
 menu_title: ""
-description: "La bénédiction de Dieu par Jésus"
+description: "Jésus, reçu par Al Fike : « Dieu vous bénit, âmes bien-aimées. La main de Dieu est sur vous, âmes bien-aimées. »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

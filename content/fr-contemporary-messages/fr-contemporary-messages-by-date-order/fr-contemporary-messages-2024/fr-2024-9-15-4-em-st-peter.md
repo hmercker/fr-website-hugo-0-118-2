@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction"
 menu_title: ""
-description: "Bénédiction"
+description: "St Pierre, reçu par Elizabeth Mack : « Ceci est votre insigne d’honneur. Emportez-le avec vous en quittant ce lieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

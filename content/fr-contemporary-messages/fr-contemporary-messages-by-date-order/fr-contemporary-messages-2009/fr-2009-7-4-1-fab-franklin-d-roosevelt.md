@@ -1,7 +1,7 @@
 ---
 title: "La candeur d'un Président"
 menu_title: ""
-description: "La candeur d'un Président"
+description: "Franklin D Roosevelt, reçu par FAB : « En lisant mes déclarations, vous êtes frappés par ma connaissance de l'histoire et par ma foi en ce que l'on … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

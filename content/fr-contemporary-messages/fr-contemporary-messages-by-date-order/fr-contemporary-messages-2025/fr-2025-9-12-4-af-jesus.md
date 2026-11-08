@@ -1,7 +1,7 @@
 ---
 title: "Une disposition spéciale pour la guérison"
 menu_title: ""
-description: "Une disposition spéciale pour la guérison"
+description: "Jésus, reçu par Al Fike : « Pour cette belle âme (Al) qui me sert si bien, une grâce spéciale de guérison lui a été accordée, grâce que vous avez … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

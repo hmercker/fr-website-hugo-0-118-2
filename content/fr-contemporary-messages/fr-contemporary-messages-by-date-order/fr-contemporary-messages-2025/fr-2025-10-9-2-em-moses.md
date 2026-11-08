@@ -1,7 +1,7 @@
 ---
 title: "Possession de l'Amour Divin"
 menu_title: ""
-description: "Possession de l'Amour Divin"
+description: "Moïse, reçu par Elizabeth Mack : « J'apporte avec moi la force de mes convictions, la Vérité de l'Amour de Dieu au plus profond de mon âme, pour vous … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

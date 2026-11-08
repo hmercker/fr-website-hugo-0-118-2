@@ -1,7 +1,7 @@
 ---
 title: "Efficacité de la planète"
 menu_title: ""
-description: "Efficacité de la planète"
+description: "Soigneur, reçu par George Barnard : « Soigneur : Sur votre monde, beaucoup de choses sont mal comprises au sujet des sept mondes de Mansionia, et en … »"
 date: 2022-06-01 06:00:01+00:205
 draft: False
 hidden: True

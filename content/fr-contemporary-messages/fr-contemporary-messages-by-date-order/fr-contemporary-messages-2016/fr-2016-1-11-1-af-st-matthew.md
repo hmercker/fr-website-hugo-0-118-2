@@ -1,7 +1,7 @@
 ---
 title: "L'année à venir"
 menu_title: ""
-description: "L'année à venir"
+description: "St Matthieu, reçu par Al Fike : « En effet, vos yeux commencent à s’ouvrir, vous commencez à fleurir dans la chaleur du bel Amour de Dieu. »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

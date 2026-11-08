@@ -1,7 +1,7 @@
 ---
 title: "Sainte Communion Sainte Communauté"
 menu_title: ""
-description: "Sainte Communion Sainte Communauté"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Les mots sainte communion signifient être en communion avec Dieu. Dans ces beaux cercles que vous avez … »"
 date: 2022-06-01 06:00:01+00:1036
 draft: False
 hidden: True

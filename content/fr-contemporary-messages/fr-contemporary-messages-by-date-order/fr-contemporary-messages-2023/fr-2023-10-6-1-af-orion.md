@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour le groupe des douze à Laurelville"
 menu_title: ""
-description: "Conseils pour le groupe des douze à Laurelville"
+description: "Orion, reçu par Albert Fike : « Le moment approche, mes amis, pour que vous démontriez votre développement spirituel et émouvant auprès de vos frères et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

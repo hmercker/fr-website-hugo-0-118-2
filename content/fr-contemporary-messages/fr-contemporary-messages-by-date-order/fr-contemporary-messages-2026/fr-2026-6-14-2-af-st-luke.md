@@ -1,7 +1,7 @@
 ---
 title: "Cherchez à connaître les vérités de Dieu depuis votre âme"
 menu_title: ""
-description: "Cherchez à connaître les vérités de Dieu depuis votre âme"
+description: "Luc, reçu par Albert Fike : « Je me joins à mes compagnons chercheurs d'Amour en ce moment de prière, où vous ouvrez vos âmes et demandez à Dieu de vous … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les manifestations ne viendront pas tant que vous n'êtes pas préparés"
 menu_title: ""
-description: "Les manifestations ne viendront pas tant que vous n'êtes pas préparés"
+description: "Seretta Kem, reçu par Al Fike : « Beaucoup d’entre vous sont mis au défi par les conditions terrestres, et continuent de lutter contre l’équilibre qu’ils … »"
 date: 2022-06-01 06:00:01+00:1692
 draft: False
 hidden: True

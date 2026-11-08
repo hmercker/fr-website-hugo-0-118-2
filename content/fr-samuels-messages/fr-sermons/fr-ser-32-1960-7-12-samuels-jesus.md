@@ -1,7 +1,7 @@
 ---
 title: "32ème Sermon – Isaïe et la menace Assyrienne"
 menu_title: ""
-description: "32ème Sermon – Isaïe et la menace Assyrienne"
+description: "Jésus, reçu par Dr Samuels : « Dans mon dernier sermon, j’ai montré qu’Isaïe était un prophète de la paix, un homme qui défendit la cause du peuple contre … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

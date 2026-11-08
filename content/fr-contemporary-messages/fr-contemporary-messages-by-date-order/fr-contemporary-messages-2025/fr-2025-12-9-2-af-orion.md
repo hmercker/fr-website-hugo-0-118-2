@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes maintenus en place grâce aux efforts de nombreux êtres"
 menu_title: ""
-description: "Vous êtes maintenus en place grâce aux efforts de nombreux êtres"
+description: "Orion, reçu par Albert Fike : « Vous êtes maintenus en place et vous le resterez pour poursuivre cette œuvre. Cela signifie que Dieu déverse sur vous … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Plantez les graines de l'Amour de Dieu"
 menu_title: ""
-description: "Plantez les graines de l'Amour de Dieu"
+description: "André, reçu par Jimbeau Walsh : « Tout cela est bien documenté dans les écrits de James Padgett, et aussi dans ce merveilleux livre que vous étudiez. »"
 date: 2022-06-01 06:00:01+00:1235
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Héritage spirituel et ADN"
 menu_title: ""
-description: "Héritage spirituel et ADN"
+description: "Yogananda, reçu par Jimbeau Walsh : « Nous avons donc décidé que je devrais vous transmettre ce message à tous. Bien que chaque âme naisse avec une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

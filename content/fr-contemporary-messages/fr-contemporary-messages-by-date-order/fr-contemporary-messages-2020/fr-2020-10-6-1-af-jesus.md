@@ -1,7 +1,7 @@
 ---
 title: "Que l’Amour de Dieu se déverse sur vous"
 menu_title: ""
-description: "Que l’Amour de Dieu se déverse sur vous"
+description: "Jésus, reçu par Al Fike : « Dans Son grand effort et Son désir ardent que vous receviez ce grand don d’Amour, Dieu a ouvert un grand Portail d’Amour pour … »"
 date: 2022-06-01 06:00:01+00:1270
 draft: False
 hidden: True

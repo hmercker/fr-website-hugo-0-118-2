@@ -1,7 +1,7 @@
 ---
 title: "Un ennemi devient ami par l'Amour de Dieu"
 menu_title: ""
-description: "Un ennemi devient ami par l'Amour de Dieu"
+description: "François d'Assise, reçu par Jimbeau Walsh : « Chers frères et sœurs, c'est un honneur pour moi de me joindre à votre prière et je souhaite vous éclairer … »"
 date: 2026-02-07 16:00:01+00:01
 draft: False
 hidden: True

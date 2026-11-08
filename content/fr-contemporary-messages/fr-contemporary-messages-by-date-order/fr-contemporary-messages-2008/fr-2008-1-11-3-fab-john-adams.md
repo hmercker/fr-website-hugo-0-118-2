@@ -1,7 +1,7 @@
 ---
 title: "La crise de la liberté"
 menu_title: ""
-description: "La crise de la liberté"
+description: "John Adams, reçu par FAB : « La République était en danger pendant ma présidence avec la menace de guerre avec la France. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

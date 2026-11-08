@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes un don les uns pour les autres et pour Dieu"
 menu_title: ""
-description: "Vous êtes un don les uns pour les autres et pour Dieu"
+description: "Augustin, reçu par Al Fike : « Il y a beaucoup de choses en vous qui ont besoin d’être atténuées et mises en harmonie avec les lois de Dieu, avec votre … »"
 date: 2022-06-01 06:00:01+00:1168
 draft: False
 hidden: True

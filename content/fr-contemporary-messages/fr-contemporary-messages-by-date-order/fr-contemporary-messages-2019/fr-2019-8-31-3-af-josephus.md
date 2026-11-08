@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Qu'est-ce que la lumière spirituelle ?"
 menu_title: ""
-description: "Q&R : Qu'est-ce que la lumière spirituelle ?"
+description: "Flavius Josèphe, reçu par Al Fike : « Nous vous demandons d’apporter la lumière dans le monde, de rechercher la lumière, d’exprimer la lumière. »"
 date: 2022-06-01 06:00:01+00:825
 draft: False
 hidden: True

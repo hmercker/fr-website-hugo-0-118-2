@@ -1,7 +1,7 @@
 ---
 title: "Ne voyez pas d'étranger"
 menu_title: ""
-description: "Ne voyez pas d'étranger"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Je me joins à vous alors que vos âmes s'ouvrent au puissant flux des Eaux Vives, l'Amour de Dieu, tandis que … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

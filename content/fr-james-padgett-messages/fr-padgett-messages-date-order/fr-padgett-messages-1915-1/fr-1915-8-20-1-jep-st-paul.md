@@ -1,7 +1,7 @@
 ---
 title: "Rejette l’efficacité de l’expiation déléguée. Dieu ne fut jamais un Dieu de courroux mais toujours un Dieu d’Amour"
 menu_title: ""
-description: "Rejette l’efficacité de l’expiation déléguée. Dieu ne fut jamais un Dieu de courroux mais toujours un Dieu d’Amour"
+description: "St Paul, reçu par James Padgett : « Or, ce n’est pas vrai, je n’ai jamais écrit de telles déclarations prétendant être la vérité. »"
 date: 2022-06-01 06:00:01+00:203
 draft: False
 hidden: True

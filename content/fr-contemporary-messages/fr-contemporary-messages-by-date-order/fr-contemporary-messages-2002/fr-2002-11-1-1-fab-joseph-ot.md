@@ -1,7 +1,7 @@
 ---
 title: "Joseph en Égypte"
 menu_title: ""
-description: "Joseph en Égypte"
+description: "Joseph (AT), reçu par FAB : « Lorsque j’étais surveillant en Égypte, j’ai eu de nombreuses occasions de partager en privé mes convictions Hébraïques sur … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

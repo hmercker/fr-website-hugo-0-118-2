@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir des pensées"
 menu_title: ""
-description: "Le pouvoir des pensées"
+description: "Simon, reçu par Al Fike : « Votre monde est plein de pensées. Votre monde est plein d’informations, intellectuelles, conceptuelles, avec de nombreux … »"
 date: 2022-06-01 06:00:01+00:209
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Choisir l’Amour de Dieu / Jésus confirme Judas"
 menu_title: ""
-description: "Choisir l’Amour de Dieu / Jésus confirme Judas"
+description: "Jésus et Judas, reçu par Albert Fike : « Judas : Les aspirations de ton âme sont manifestes et la Vérité de l’Amour de Dieu rayonne, comme pour chacun de … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

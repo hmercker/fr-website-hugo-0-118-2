@@ -1,7 +1,7 @@
 ---
 title: "Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs"
 menu_title: ""
-description: "Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs"
+description: "Hélène Padgett & Mary Kennedy, reçu par James Padgett : « Tu as assez écrit pour ce soir, et je ne dirai que quelques mots et je m’arrêterai à moins que … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

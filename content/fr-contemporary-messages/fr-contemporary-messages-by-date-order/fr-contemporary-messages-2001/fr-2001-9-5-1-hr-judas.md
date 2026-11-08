@@ -1,7 +1,7 @@
 ---
 title: "La mort de Judas et son passage dans le monde des esprits"
 menu_title: ""
-description: "La mort de Judas et son passage dans le monde des esprits"
+description: "Judas, reçu par H : « Hier, nous n’avons pas pu nous rencontrer, il n’y a tout simplement eu aucune opportunité. »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

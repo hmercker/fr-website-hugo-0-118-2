@@ -1,7 +1,7 @@
 ---
 title: "Vous trouverez votre chemin vers Dieu"
 menu_title: ""
-description: "Vous trouverez votre chemin vers Dieu"
+description: "Jésus, reçu par Albert Fike : « Vos âmes aspirent à ce don de l’Amour du Père. Il est donné en réponse à votre désir, à votre aspiration à ne faire qu’un … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

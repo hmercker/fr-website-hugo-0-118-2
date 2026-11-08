@@ -1,7 +1,7 @@
 ---
 title: "Des encouragements pour enseigner la Vérité"
 menu_title: ""
-description: "Des encouragements pour enseigner la Vérité"
+description: "Jean-Baptiste, reçu par Jesper Sorensen : « Aimez votre prochain comme vous-même. Lorsque j’ai marché sur la terre, je l’ai fait avec une grande foi. »"
 date: 2022-06-01 06:00:01+00:469
 draft: False
 hidden: True

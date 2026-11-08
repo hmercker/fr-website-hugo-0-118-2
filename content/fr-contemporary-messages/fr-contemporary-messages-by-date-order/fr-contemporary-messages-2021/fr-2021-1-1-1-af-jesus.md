@@ -1,7 +1,7 @@
 ---
 title: "Vos chaînes ont été brisées"
 menu_title: ""
-description: "Vos chaînes ont été brisées"
+description: "Jésus, reçu par Al Fike : « La Lumière de la Vérité est sur chacun de vous, âmes bien-aimées. En vérité, vous parviendrez à connaître cette Vérité, de … »"
 date: 2022-06-01 06:00:01+00:1361
 draft: False
 hidden: True

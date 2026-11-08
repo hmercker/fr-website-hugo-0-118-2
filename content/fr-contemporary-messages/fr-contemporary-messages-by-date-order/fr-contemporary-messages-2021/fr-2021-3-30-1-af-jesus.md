@@ -1,7 +1,7 @@
 ---
 title: "Jésus visitera le plan terrestre à Pâques"
 menu_title: ""
-description: "Jésus visitera le plan terrestre à Pâques"
+description: "Jésus, reçu par Al Fike : « Comme vous le savez bien, c’est une erreur. J’ai parlé de ces choses il y a cent ans par l’intermédiaire de notre bien-aimé … »"
 date: 2022-06-01 06:00:01+00:1454
 draft: False
 hidden: True

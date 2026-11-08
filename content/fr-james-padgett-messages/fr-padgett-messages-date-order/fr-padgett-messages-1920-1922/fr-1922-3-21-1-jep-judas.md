@@ -1,7 +1,7 @@
 ---
 title: "Ce que les Hommes doivent faire pour voir Dieu et réaliser qu’il est un Dieu personnel, avec tous les attributs qui appartiennent à un être suprême, infini"
 menu_title: ""
-description: "Ce que les Hommes doivent faire pour voir Dieu et réaliser qu’il est un Dieu personnel, avec tous les attributs qui appartiennent à un être suprême, infini"
+description: "Judas, reçu par James Padgett : « Je ne vous ai pas écrit depuis longtemps et je sens que je dois le faire afin de déclarer une vérité qui est importante … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

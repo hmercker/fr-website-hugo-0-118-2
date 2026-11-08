@@ -1,7 +1,7 @@
 ---
 title: "Prière et protection contre les esprits inférieurs"
 menu_title: ""
-description: "Prière et protection contre les esprits inférieurs"
+description: "Jésus, reçu par Kathryn Stokes : « Je prie pour que je sois un canal clair pour tout ce que les anges souhaitent écrire. Je prie pour un afflux de Ton … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

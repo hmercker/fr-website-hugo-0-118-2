@@ -1,7 +1,7 @@
 ---
 title: "Orientations pour la session d'Octobre 2018 de Voix Directe"
 menu_title: ""
-description: "Orientations pour la session d'Octobre 2018 de Voix Directe"
+description: "Seretta Kem, reçu par Maureen Cardoso : « C’est Seretta Kem et je vous remercie d’avoir accepté de vous asseoir et de recevoir un message concernant le … »"
 date: 2022-06-01 06:00:01+00:481
 draft: False
 hidden: True

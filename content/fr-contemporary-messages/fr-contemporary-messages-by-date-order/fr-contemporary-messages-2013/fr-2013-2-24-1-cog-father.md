@@ -1,7 +1,7 @@
 ---
 title: "Accordez vos cordes à la fréquence de l'amour"
 menu_title: ""
-description: "Accordez vos cordes à la fréquence de l'amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Votre Père Céleste est là. Réveillez-vous, chacun de mes enfants. »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

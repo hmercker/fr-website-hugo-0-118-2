@@ -1,7 +1,7 @@
 ---
 title: "Pour le bien du monde, pour le bien de vos âmes"
 menu_title: ""
-description: "Pour le bien du monde, pour le bien de vos âmes"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Que la lumière de l’Amour de Dieu vous entoure et soit avec vous. Les temps ont changé, comme ils le font, et les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

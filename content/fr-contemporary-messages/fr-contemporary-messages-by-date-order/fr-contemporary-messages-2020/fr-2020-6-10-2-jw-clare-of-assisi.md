@@ -1,7 +1,7 @@
 ---
 title: "Trois souris bienveillantes"
 menu_title: ""
-description: "Trois souris bienveillantes"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Quelle chose glorieuse c’est. J’offre aussi tout mon amour à mes trois gentilles souris car vous m’êtes chères. »"
 date: 2022-06-01 06:00:01+00:1133
 draft: False
 hidden: True

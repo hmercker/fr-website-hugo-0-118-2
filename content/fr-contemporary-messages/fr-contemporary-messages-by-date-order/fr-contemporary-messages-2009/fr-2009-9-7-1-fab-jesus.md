@@ -1,7 +1,7 @@
 ---
 title: "Le fondamentalisme Chrétien"
 menu_title: ""
-description: "Le fondamentalisme Chrétien"
+description: "Jésus, reçu par FAB : « Je veux aujourd'hui transmettre un message sur le fondamentalisme Chrétien, car il est tellement pertinent pour la réalité de … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

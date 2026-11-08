@@ -1,7 +1,7 @@
 ---
 title: "Profitez des temps qui vous sont donnés (Atelier de médiumnité 2020)"
 menu_title: ""
-description: "Profitez des temps qui vous sont donnés (Atelier de médiumnité 2020)"
+description: "Augustin, reçu par Al Fike : « Vous avez une grande opportunité en ce moment dans vos vies de vous concentrer davantage sur vos communications et votre … »"
 date: 2022-06-01 06:00:01+00:1072
 draft: False
 hidden: True

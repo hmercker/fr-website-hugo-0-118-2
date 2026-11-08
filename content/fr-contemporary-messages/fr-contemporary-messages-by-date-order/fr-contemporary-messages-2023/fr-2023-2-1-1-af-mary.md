@@ -1,7 +1,7 @@
 ---
 title: "Marie vient sur les faisceaux de lumière de votre chant"
 menu_title: ""
-description: "Marie vient sur les faisceaux de lumière de votre chant"
+description: "Marie, reçu par Al Fike : « Ainsi, avec cette unité que vous créez, cette résonance de désir, Dieu est là, Son Esprit Saint-déversant l’amour dans votre âme. »"
 date: 2023-09-01 06:00:01+00:74
 draft: False
 hidden: True

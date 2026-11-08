@@ -1,7 +1,7 @@
 ---
 title: "Un grand musicien revient à la maison"
 menu_title: ""
-description: "Un grand musicien revient à la maison"
+description: "George Harrison, reçu par FAB : « C’est purement votre enfant intérieur. George Harrison MBE (25 Février 1943 – 29 Novembre 2001) était un guitariste … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

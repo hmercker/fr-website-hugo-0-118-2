@@ -1,7 +1,7 @@
 ---
 title: "Cette Attente, ce Désir"
 menu_title: ""
-description: "Cette Attente, ce Désir"
+description: "Hafiz, reçu par Jimbeau Walsh : « Vous vous tenez devant la porte Regardant par le trou de la serrure vers l’au-delà. La clé dans votre poche la main sur … »"
 date: 2022-06-01 06:00:01+00:1465
 draft: False
 hidden: True

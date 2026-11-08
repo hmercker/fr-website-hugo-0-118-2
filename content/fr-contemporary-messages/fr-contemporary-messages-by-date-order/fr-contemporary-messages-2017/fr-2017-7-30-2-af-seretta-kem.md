@@ -1,7 +1,7 @@
 ---
 title: "Dieu vous guidera vers les terres desséchées du monde"
 menu_title: ""
-description: "Dieu vous guidera vers les terres desséchées du monde"
+description: "Seretta Kem, reçu par Al Fike : « Une fois de plus, j'arrive à l'heure dite pour donner des conseils. J'étais avec vous lorsque vous avez prié ensemble … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

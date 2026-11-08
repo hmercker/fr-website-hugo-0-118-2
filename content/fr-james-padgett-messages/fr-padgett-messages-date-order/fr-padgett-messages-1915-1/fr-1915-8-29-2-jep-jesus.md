@@ -1,7 +1,7 @@
 ---
 title: "Jésus – Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett"
 menu_title: ""
-description: "Jésus – Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous ce soir et mon esprit était dans votre cœur au point de vous faire sentir sa présence et de vous faire … »"
 date: 2022-06-01 06:00:01+00:217
 draft: False
 hidden: True

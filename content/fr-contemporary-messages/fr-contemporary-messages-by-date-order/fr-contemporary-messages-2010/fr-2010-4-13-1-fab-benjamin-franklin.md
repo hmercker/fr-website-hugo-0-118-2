@@ -1,7 +1,7 @@
 ---
 title: "L'élitisme des Pères fondateurs - 2"
 menu_title: ""
-description: "L'élitisme des Pères fondateurs - 2"
+description: "Benjamin Franklin, reçu par FAB : « Je veux faire un commentaire sur le sujet de l'élitisme en ce qui concerne le gouvernement américain. »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

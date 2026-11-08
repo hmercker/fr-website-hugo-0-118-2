@@ -1,7 +1,7 @@
 ---
 title: "Invitation à développer plus de mediums"
 menu_title: ""
-description: "Invitation à développer plus de mediums"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Aujourd’hui, je souhaite parler du sujet de la médiumnité, car il y en a plusieurs dans cette salle qui ont le … »"
 date: 2023-09-01 06:00:01+00:66
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Message pour l'année à venir"
 menu_title: ""
-description: "Message pour l'année à venir"
+description: "Orion, reçu par Al Fike : « Cette année à venir vous apportera de grandes bénédictions, vous ouvrira des portes que vous n’avez pas encore expérimentées … »"
 date: 2023-09-01 06:00:01+00:63
 draft: False
 hidden: True

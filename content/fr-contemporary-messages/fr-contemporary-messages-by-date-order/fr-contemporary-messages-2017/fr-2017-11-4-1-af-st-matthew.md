@@ -1,7 +1,7 @@
 ---
 title: "Orientations concernant la prochaine phase de développement"
 menu_title: ""
-description: "Orientations concernant la prochaine phase de développement"
+description: "St Matthieu, reçu par Al Fike : « Ainsi, mes enfants souhaitent courir plutôt que de marcher ? Ils sont impatients de commencer et de manifester ce don de … »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

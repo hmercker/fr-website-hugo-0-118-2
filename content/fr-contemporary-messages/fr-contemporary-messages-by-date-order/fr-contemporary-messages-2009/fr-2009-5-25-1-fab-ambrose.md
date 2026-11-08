@@ -1,7 +1,7 @@
 ---
 title: "La vérité d'un père de l'Église"
 menu_title: ""
-description: "La vérité d'un père de l'Église"
+description: "Ambrose, reçu par FAB : « En effet, nous, les pères de l'église, nous nous sommes souciés de la vérité, et nous nous sommes aussi souciés de nourrir l'âme. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

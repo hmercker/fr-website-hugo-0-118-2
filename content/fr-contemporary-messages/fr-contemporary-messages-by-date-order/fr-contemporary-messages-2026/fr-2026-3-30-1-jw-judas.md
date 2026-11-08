@@ -1,7 +1,7 @@
 ---
 title: "Dieu étanchera la faim et la soif de chaque âme"
 menu_title: ""
-description: "Dieu étanchera la faim et la soif de chaque âme"
+description: "Judas, reçu par Jimbeau Walsh : « À plusieurs reprises, il vous a été demandé de partager avec le monde, sans crainte et avec tout l'amour dont vous êtes … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

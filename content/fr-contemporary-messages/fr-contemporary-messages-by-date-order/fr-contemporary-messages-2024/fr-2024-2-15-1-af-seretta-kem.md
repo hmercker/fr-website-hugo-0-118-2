@@ -1,7 +1,7 @@
 ---
 title: "Instructions pour développer la médiumnité"
 menu_title: ""
-description: "Instructions pour développer la médiumnité"
+description: "Seretta Kem, reçu par Albert Fike : « Nous sommes très heureux que vous envisagiez de nombreux aspects du don de la médiumnité, de la communication avec nous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

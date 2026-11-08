@@ -1,7 +1,7 @@
 ---
 title: "La Paix"
 menu_title: ""
-description: "La Paix"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Mon message de ce soir porte sur le thème de la paix. J’en ai déjà parlé dans des messages par le … »"
 date: 2022-06-01 06:00:01+00:1176
 draft: False
 hidden: True

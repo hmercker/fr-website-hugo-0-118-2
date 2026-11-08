@@ -1,7 +1,7 @@
 ---
 title: "Être ouvert à l’essence du créateur"
 menu_title: ""
-description: "Être ouvert à l’essence du créateur"
+description: "Faith, reçu par Maureen Cardoso : « Vous m’attirez vers vous alors que vous ouvrez vos âmes à l’afflux de l’Amour Divin, recevant l’essence et la … »"
 date: 2022-06-01 06:00:01+00:1274
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ayez foi et efforcez-vous d'établir cette vérité dans le monde"
 menu_title: ""
-description: "Ayez foi et efforcez-vous d'établir cette vérité dans le monde"
+description: "Pierre, Marie et Jésus, reçu par Al Fike : « Pierre : Que le don de l’amour du Père vous soit accordé, belles âmes en quête de vérité, âmes en quête de … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

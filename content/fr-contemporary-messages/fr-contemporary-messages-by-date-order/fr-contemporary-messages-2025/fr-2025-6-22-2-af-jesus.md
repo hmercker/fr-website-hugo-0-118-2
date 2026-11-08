@@ -1,7 +1,7 @@
 ---
 title: "Le don de la vie est précieux"
 menu_title: ""
-description: "Le don de la vie est précieux"
+description: "Jésus, reçu par Albert Fike : « Chaque instant est riche et rempli de grandes opportunités et d’expressions d’éveil de l’âme qui peuvent s’offrir à vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

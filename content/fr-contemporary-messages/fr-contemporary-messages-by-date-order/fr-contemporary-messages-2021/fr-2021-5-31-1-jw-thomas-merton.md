@@ -1,7 +1,7 @@
 ---
 title: "La simplicité de la prière"
 menu_title: ""
-description: "La simplicité de la prière"
+description: "Thomas Merton, reçu par Jimbeau Walsh : « Certains d’entre vous sont peut-être familiers avec ma vie, avec mon travail, plus familiers que celui que j’ai … »"
 date: 2022-06-01 06:00:01+00:1523
 draft: False
 hidden: True

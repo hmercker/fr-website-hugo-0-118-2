@@ -1,7 +1,7 @@
 ---
 title: "Leçon 20 : Il faut davantage d’âmes dévouées pour construire des portails et étendre le treillis de lumière"
 menu_title: ""
-description: "Leçon 20 : Il faut davantage d’âmes dévouées pour construire des portails et étendre le treillis de lumière"
+description: "Jésus, reçu par Al Fike : « Je souhaite parler aujourd’hui de la prolifération de la Vérité de l’Amour Divin dans le monde et de la manière dont nous … »"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True

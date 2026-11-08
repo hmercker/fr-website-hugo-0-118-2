@@ -1,7 +1,7 @@
 ---
 title: "La joie dans l'Amour de Dieu et le plaisir de servir"
 menu_title: ""
-description: "La joie dans l'Amour de Dieu et le plaisir de servir"
+description: "Jésus : « Je viens, et où sont les mots pour exprimer mon profond amour pour vous, mes enfants et tous ceux qui habitent sur la Terre. »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

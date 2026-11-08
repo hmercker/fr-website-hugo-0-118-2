@@ -1,7 +1,7 @@
 ---
 title: "L'importance du discernement de la vérité"
 menu_title: ""
-description: "L'importance du discernement de la vérité"
+description: "Orion, reçu par Al Fike : « Vous avez un grand besoin de développer votre discernement afin de vraiment connaître la vérité et alors que vous rencontrez … »"
 date: 2023-09-01 06:00:01+00:47
 draft: False
 hidden: True

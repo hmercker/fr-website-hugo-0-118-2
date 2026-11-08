@@ -1,7 +1,7 @@
 ---
 title: "Vos prières sont exaucées sur les ailes de l'amour"
 menu_title: ""
-description: "Vos prières sont exaucées sur les ailes de l'amour"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Quel cadeau de venir sur ce plan terrestre, sans être gêné par les sombres conditions de ce monde. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

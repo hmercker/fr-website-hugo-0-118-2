@@ -1,7 +1,7 @@
 ---
 title: "Cette église sera un sanctuaire de lumière pour beaucoup"
 menu_title: ""
-description: "Cette église sera un sanctuaire de lumière pour beaucoup"
+description: "Estelle Roberts, reçu par Albert Fike : « Elle est à l’aube d’une revitalisation, d’une transformation profonde, et deviendra un sanctuaire pour beaucoup. »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

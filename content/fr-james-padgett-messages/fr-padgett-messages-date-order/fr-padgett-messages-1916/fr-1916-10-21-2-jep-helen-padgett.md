@@ -1,7 +1,7 @@
 ---
 title: "Hélène corroborant que Judas a écrit sur le péché impardonnable"
 menu_title: ""
-description: "Hélène corroborant que Judas a écrit sur le péché impardonnable"
+description: "Hélène Padgett, reçu par James Padgett : « C’est vraiment Judas qui a écrit, et, comme il l’a dit, il a été choisi par les autres pour délivrer ce … »"
 date: 2022-06-01 06:00:01+00:302
 draft: False
 hidden: True

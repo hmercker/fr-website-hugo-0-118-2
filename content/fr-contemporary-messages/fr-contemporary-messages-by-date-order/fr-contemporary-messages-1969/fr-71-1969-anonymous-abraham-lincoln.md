@@ -1,7 +1,7 @@
 ---
 title: "Seul Dieu peut rendre l'homme libre"
 menu_title: ""
-description: "Seul Dieu peut rendre l'homme libre"
+description: "Abraham Lincoln : « Comme il est triste, mes amis, que l'homme se rende esclave de lui-même. En vérité, l'homme est esclave de lui-même et je veux parler … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

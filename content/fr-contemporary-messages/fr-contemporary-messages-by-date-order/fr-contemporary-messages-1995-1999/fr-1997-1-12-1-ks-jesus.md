@@ -1,7 +1,7 @@
 ---
 title: "Jésus répond à des questions sur Rembrant et Marc Chagall, donnant un aperçu de la vie dans le monde des esprits"
 menu_title: ""
-description: "Jésus répond à des questions sur Rembrant et Marc Chagall, donnant un aperçu de la vie dans le monde des esprits"
+description: "Jésus, reçu par Kathryn Stokes : « « Serait-il possible que ces artistes me donnent leur avis sur le cours que je veux donner sur eux ? »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

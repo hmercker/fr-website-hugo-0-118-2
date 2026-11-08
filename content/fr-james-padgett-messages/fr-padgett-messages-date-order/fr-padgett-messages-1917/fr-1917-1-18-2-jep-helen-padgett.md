@@ -1,7 +1,7 @@
 ---
 title: "Confirme le test fait par le juge Syrick"
 menu_title: ""
-description: "Confirme le test fait par le juge Syrick"
+description: "Hélène Padgett, reçu par James Padgett : « Je n’écrirai pas grand-chose, car tu n’es pas en bonne condition. Cependant, j’étais avec toi, ce soir, aux … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

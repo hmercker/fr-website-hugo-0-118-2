@@ -1,7 +1,7 @@
 ---
 title: "Le développement des dons continue"
 menu_title: ""
-description: "Le développement des dons continue"
+description: "Seretta Kem, reçu par Albert Fike : « Nous poursuivons le travail de développement, même si la plupart des participants sont rentrés chez eux. »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

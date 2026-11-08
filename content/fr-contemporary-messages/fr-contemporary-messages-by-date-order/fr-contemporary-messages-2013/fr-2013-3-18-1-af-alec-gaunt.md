@@ -1,7 +1,7 @@
 ---
 title: "Continuez à grandir dans l'Amour, continuez à cultiver votre lien avec le Créateur"
 menu_title: ""
-description: "Continuez à grandir dans l'Amour, continuez à cultiver votre lien avec le Créateur"
+description: "Alec Gaunt, reçu par Albert Fike : « Quel bonheur pour moi d’être parmi vous, de voir comment ces groupes se sont développés et de constater l’évolution … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

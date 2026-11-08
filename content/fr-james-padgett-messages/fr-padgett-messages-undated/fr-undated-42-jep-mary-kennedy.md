@@ -1,7 +1,7 @@
 ---
 title: "Mary dit que c’est un grand privilège que seuls M. Padgett, Leslie et M. Morgan à l’époque puissent faire connaître la Vérité du Père"
 menu_title: ""
-description: "Mary dit que c’est un grand privilège que seuls M. Padgett, Leslie et M. Morgan à l’époque puissent faire connaître la Vérité du Père"
+description: "Mary Kennedy, reçu par James Padgett : « Laissez-moi vous dire un mot avant que vous ne partiez. Je reconnais que je m’impose, mais vous êtes si bon que … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

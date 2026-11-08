@@ -1,7 +1,7 @@
 ---
 title: "Sa maison dans le monde des esprits"
 menu_title: ""
-description: "Sa maison dans le monde des esprits"
+description: "Albert Einstein : « C'est très intéressant de revenir sur Terre. J'ai appris tellement de choses depuis que je vis dans cet endroit. »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

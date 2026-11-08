@@ -1,7 +1,7 @@
 ---
 title: "Connaître Dieu"
 menu_title: ""
-description: "Connaître Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Tous dans le cadre de vos vies et de la vie de cette planète sur laquelle vous vivez, des changements dynamiques, des … »"
 date: 2022-06-01 06:00:01+00:205
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nicodème – Sur l’importance de la Nouvelle Naissance"
 menu_title: ""
-description: "Nicodème – Sur l’importance de la Nouvelle Naissance"
+description: "Nicodème, reçu par James Padgett : « Un maître en Israël, et pourtant je n’ai pas compris cette Nouvelle Naissance ! Combien peu l’ont compris à l’époque … »"
 date: 2022-06-01 06:00:01+00:162
 draft: False
 hidden: True

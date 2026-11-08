@@ -1,7 +1,7 @@
 ---
 title: "Élevez vos pensées vers le plus haut"
 menu_title: ""
-description: "Élevez vos pensées vers le plus haut"
+description: "Yogananda, reçu par Jimbeau Walsh : « Vous en voyez des manifestations partout. Il est également vrai que lorsque vous nous envoyez des pensées, nous les … »"
 date: 2022-06-01 06:00:01+00:808
 draft: False
 hidden: True

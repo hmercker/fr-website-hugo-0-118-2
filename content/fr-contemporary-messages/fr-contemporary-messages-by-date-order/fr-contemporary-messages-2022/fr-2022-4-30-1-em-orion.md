@@ -1,7 +1,7 @@
 ---
 title: "Que l'Amour de Dieu nous protège ces prochains jours"
 menu_title: ""
-description: "Que l'Amour de Dieu nous protège ces prochains jours"
+description: "Orion, reçu par Elizabeth Mack : « Je tiens à vous féliciter pour tout ce que vous avez accompli jusqu’à présent. Vous vous êtes unis et avez honoré le … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les décisions"
 menu_title: ""
-description: "Les décisions"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Les décisions ne sont pas toujours faciles à prendre par moment, car ce qui semble être un choix … »"
 date: 2022-06-01 06:00:01+00:1174
 draft: False
 hidden: True

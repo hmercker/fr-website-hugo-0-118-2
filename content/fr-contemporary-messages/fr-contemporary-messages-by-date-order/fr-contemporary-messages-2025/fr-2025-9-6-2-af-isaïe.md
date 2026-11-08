@@ -1,7 +1,7 @@
 ---
 title: "Venez connaître la vérité, la puissance et la gloire de l'amour"
 menu_title: ""
-description: "Venez connaître la vérité, la puissance et la gloire de l'amour"
+description: "Isaïe, reçu par Albert Fike : « (…) Que Son amour vous réveille. Car c'est le voyage que chacun doit entreprendre pour découvrir, à sa manière, la vérité … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

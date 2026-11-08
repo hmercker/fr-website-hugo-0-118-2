@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions d'en haut"
 menu_title: ""
-description: "Bénédictions d'en haut"
+description: "St Pierre, reçu par Al Fike : « Je continue à travailler aux côtés de mon frère bien-aimé pour apporter la Vérité de l’Amour de Dieu à tous les mondes … »"
 date: 2022-06-01 06:00:01+00:1377
 draft: False
 hidden: True

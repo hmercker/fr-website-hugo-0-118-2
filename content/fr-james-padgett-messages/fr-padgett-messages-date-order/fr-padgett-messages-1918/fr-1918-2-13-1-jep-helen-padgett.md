@@ -1,7 +1,7 @@
 ---
 title: "Hélène parle des fausses croyances de M. Colburn"
 menu_title: ""
-description: "Hélène parle des fausses croyances de M. Colburn"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu as passé une agréable soirée et j’ai écouté avec intérêt ta conversation sur … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

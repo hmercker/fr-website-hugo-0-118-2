@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit que Shannon avait un aspect plutôt sombre mais qu’il était cependant un étudiant très sérieux des choses intellectuelles"
 menu_title: ""
-description: "Hélène écrit que Shannon avait un aspect plutôt sombre mais qu’il était cependant un étudiant très sérieux des choses intellectuelles"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que toi et le Docteur avez apprécié le dernier message, tout comme nous qui l’avons … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

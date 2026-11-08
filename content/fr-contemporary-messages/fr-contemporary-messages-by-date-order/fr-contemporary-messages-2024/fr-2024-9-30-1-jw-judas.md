@@ -1,7 +1,7 @@
 ---
 title: "L’humilité est la clé"
 menu_title: ""
-description: "L’humilité est la clé"
+description: "Judas, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur vous. Je souhaite aborder le sentiment de séparation d’avec Dieu que ressentent souvent … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

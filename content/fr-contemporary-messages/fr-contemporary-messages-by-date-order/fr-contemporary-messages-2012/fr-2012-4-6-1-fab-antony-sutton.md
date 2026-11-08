@@ -1,7 +1,7 @@
 ---
 title: "Dieu et l’économie"
 menu_title: ""
-description: "Dieu et l’économie"
+description: "Antony Sutton, reçu par FAB : « Vous venez de terminer mon livre, « La guerre contre l’or ». Vous aviez l’idée que l’économie est fragile, mais mon livre … »"
 date: 2022-06-01 06:00:01+00:232
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Médiumnité, communication et rapport"
 menu_title: ""
-description: "Médiumnité, communication et rapport"
+description: "Seretta Kem, reçu par Al Fike : « Tant de lois entrent en jeu lorsque ce don est utilisé par un mortel : la loi de l’attraction, la loi de l’activation et … »"
 date: 2022-06-01 06:00:01+00:182
 draft: False
 hidden: True

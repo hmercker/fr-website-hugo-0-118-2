@@ -1,7 +1,7 @@
 ---
 title: "Sans amour, il n'est pas possible de progresser"
 menu_title: ""
-description: "Sans amour, il n'est pas possible de progresser"
+description: "Alec Gaunt, reçu par Al Fike : « Ma belle-fille est assise ici. Je te salue, chère et bien-aimée fille. »"
 date: 2022-06-01 06:00:01+00:253
 draft: False
 hidden: True

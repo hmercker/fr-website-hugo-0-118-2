@@ -1,7 +1,7 @@
 ---
 title: "Confirme qu’Élie et Jean étaient tous deux impatients de délivrer des messages importants ce soir, mais ils n’ont pas pu le faire en raison de conditions d’âme inadéquates"
 menu_title: ""
-description: "Confirme qu’Élie et Jean étaient tous deux impatients de délivrer des messages importants ce soir, mais ils n’ont pas pu le faire en raison de conditions d’âme inadéquates"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu n’es pas en état d’écrire beaucoup ce soir, et je le regrette car j’avais un … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

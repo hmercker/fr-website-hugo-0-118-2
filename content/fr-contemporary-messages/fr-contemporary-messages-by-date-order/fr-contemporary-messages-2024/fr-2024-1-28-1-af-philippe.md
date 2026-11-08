@@ -1,7 +1,7 @@
 ---
 title: "Faire émerger les lois de l’amour"
 menu_title: ""
-description: "Faire émerger les lois de l’amour"
+description: "Philippe, reçu par Albert Fike : « Les bénédictions de l’Amour du Père continuent de réchauffer vos cœurs et vos âmes. Alors que chacun de vous prie pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

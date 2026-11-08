@@ -1,7 +1,7 @@
 ---
 title: "29ème Révélation : Le genre de Messie attendu par les Juifs"
 menu_title: ""
-description: "29ème Révélation : Le genre de Messie attendu par les Juifs"
+description: "Jésus, reçu par Dr Samuels : « Maintenant, les Juifs étaient très en colère et révoltés à l’idée que tout mortel pourrait se proclamer le fils de Dieu … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

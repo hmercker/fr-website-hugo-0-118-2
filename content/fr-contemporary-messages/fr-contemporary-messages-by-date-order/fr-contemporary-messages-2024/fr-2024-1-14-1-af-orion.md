@@ -1,7 +1,7 @@
 ---
 title: Goutte à goutte, l’Amour de Dieu touche les âmes de l’humanité"
 menu_title: ""
-description: "Goutte à goutte, l’Amour de Dieu touche les âmes de l’humanité"
+description: "Orion, reçu par Albert Fike : « Vous avez créé une tête de pont de lumière dans cette partie du monde. En effet, des gouttes de lumière toucheront de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous vous réveillez ensemble pour faire partie du plan de Dieu"
 menu_title: ""
-description: "Vous vous réveillez ensemble pour faire partie du plan de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Vous créez une plus grande harmonie et une plus grande lumière au fur et à mesure que vous construisez, construisez … »"
 date: 2022-06-01 06:00:01+00:504
 draft: False
 hidden: True

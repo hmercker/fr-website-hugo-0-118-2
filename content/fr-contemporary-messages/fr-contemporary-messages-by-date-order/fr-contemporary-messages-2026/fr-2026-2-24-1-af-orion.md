@@ -1,7 +1,7 @@
 ---
 title: "Révéler l'existence d'amis stellaires ouvrira les portes de votre instrumentation"
 menu_title: ""
-description: "Révéler l'existence d'amis stellaires ouvrira les portes de votre instrumentation"
+description: "Orion, reçu par Al Fike : « La conscience de l’âme grandit en chacun de vous. Vous vous éveillez à cette réalité, à la puissance de cette perception et de … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

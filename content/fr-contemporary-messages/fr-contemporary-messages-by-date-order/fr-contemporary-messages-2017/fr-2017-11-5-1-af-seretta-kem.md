@@ -1,7 +1,7 @@
 ---
 title: "Je suis profondément touché par vos efforts"
 menu_title: ""
-description: "Je suis profondément touché par vos efforts"
+description: "Seretta Kem, reçu par Al Fike : « Nous sommes grandement amusés, car nous vous avons donné de copieuses quantités d'informations et de messages. »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

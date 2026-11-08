@@ -1,7 +1,7 @@
 ---
 title: "PriscillaStone, mère de Leslie R. Stone, a progressé vers la Première Sphère Céleste"
 menu_title: ""
-description: "PriscillaStone, mère de Leslie R. Stone, a progressé vers la Première Sphère Céleste"
+description: "Priscilla Stone, reçu par James Padgett : « Je ne peux pas essayer de lui dire, en ce moment, quelle demeure glorieuse j’ai, comment le bon Père a pourvu … »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

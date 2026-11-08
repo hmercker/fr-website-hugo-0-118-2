@@ -1,7 +1,7 @@
 ---
 title: "Le travail commence maintenant sérieusement"
 menu_title: ""
-description: "Le travail commence maintenant sérieusement"
+description: "Seretta Kem, reçu par Al Fike : « Le travail commence maintenant sérieusement et vous trouverez des opportunités surprenantes qui s’offrent à vous et, en … »"
 date: 2023-09-01 06:00:01+00:08
 draft: False
 hidden: True

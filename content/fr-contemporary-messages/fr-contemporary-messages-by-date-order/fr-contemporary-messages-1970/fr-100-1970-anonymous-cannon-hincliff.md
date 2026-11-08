@@ -1,7 +1,7 @@
 ---
 title: "Soyez un exemple vivant de l'Amour de Dieu"
 menu_title: ""
-description: "Soyez un exemple vivant de l'Amour de Dieu"
+description: "Cannon Hinchliff : « Lorsque le monde terrestre aura des armées pour Dieu au lieu d'armées pour la destruction, alors nous verrons l'espoir de la paix sur … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

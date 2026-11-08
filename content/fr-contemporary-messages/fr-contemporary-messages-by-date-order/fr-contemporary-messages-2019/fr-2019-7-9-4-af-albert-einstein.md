@@ -1,7 +1,7 @@
 ---
 title: "Vos efforts sont nécessaires pour apporter le changement"
 menu_title: ""
-description: "Vos efforts sont nécessaires pour apporter le changement"
+description: "Albert Einstein, reçu par Al Fike : « Je veux que vous sachiez que je vous ai beaucoup observé, en cette période de progrès continu et de développement de … »"
 date: 2022-06-01 06:00:01+00:771
 draft: False
 hidden: True

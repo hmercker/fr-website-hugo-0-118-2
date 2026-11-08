@@ -1,7 +1,7 @@
 ---
 title: "Vous préparez une place pour un grand nombre"
 menu_title: ""
-description: "Vous préparez une place pour un grand nombre"
+description: "Joseph, reçu par Al Fike : « Vous préparez une place pour beaucoup, mon fils (A). Vos efforts apporteront de grandes récompenses et vous ressentez la … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

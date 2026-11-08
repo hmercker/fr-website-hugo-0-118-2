@@ -1,7 +1,7 @@
 ---
 title: "La Communauté de l'Amour Divin"
 menu_title: ""
-description: "La Communauté de l'Amour Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite vous dire que lorsque j’étais un jeune garçon, j’allais au temple, je faisais la Puja avec ma mère, nous … »"
 date: 2022-06-01 06:00:01+00:1178
 draft: False
 hidden: True

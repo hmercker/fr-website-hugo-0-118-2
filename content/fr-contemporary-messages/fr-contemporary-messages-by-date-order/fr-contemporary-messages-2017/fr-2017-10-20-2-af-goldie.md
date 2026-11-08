@@ -1,7 +1,7 @@
 ---
 title: "Amour et rire avec Goldie"
 menu_title: ""
-description: "Amour et rire avec Goldie"
+description: "Goldie, reçu par Al Fike : « Et Dieu vous aime encore plus, et nous vous aimons tous, chacun d'entre vous, car vous êtes adorables. »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

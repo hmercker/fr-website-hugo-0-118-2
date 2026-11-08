@@ -1,7 +1,7 @@
 ---
 title: "Un habitant de la septième sphère veut assurer à M. Padgett que les écrivains sont réellement ceux qu’ils prétendent être"
 menu_title: ""
-description: "Un habitant de la septième sphère veut assurer à M. Padgett que les écrivains sont réellement ceux qu’ils prétendent être"
+description: "John Parker, reçu par James Padgett : « Permettez-moi de dire un mot, car je m’intéresse à vous et à votre travail dans une très large mesure. »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

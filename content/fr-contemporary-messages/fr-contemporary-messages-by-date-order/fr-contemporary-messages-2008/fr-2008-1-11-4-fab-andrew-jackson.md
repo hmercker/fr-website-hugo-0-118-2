@@ -1,7 +1,7 @@
 ---
 title: "Un changement de perspective"
 menu_title: ""
-description: "Un changement de perspective"
+description: "Andrew Jackson, reçu par FAB : « Sache que le navire de l'État ne sombrera pas. Comme je me suis battu pour préserver l'Union en tant que Président, je … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

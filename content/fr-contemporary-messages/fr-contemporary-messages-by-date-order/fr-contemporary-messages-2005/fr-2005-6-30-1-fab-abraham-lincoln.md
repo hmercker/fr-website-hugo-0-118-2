@@ -1,7 +1,7 @@
 ---
 title: "Abraham Lincoln et la Guerre"
 menu_title: ""
-description: "Abraham Lincoln et la Guerre"
+description: "Abraham Lincoln, reçu par FAB : « Mais je considère que c’est l’œuvre du Seigneur. Le Seigneur a entendu vos prières afin d’aiguiser et affiner vos … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

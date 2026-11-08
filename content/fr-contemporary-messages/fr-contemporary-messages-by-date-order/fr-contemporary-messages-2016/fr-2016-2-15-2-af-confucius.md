@@ -1,7 +1,7 @@
 ---
 title: "Mettez de côté toute résistance et tout doute concernant ce grand don"
 menu_title: ""
-description: "Mettez de côté toute résistance et tout doute concernant ce grand don"
+description: "Confucius, reçu par Al Fike : « Vous venez vous nourrir en vous réunissant dans cette prière d’amour. Car le Père vous réchauffe, vous embrasse et vous … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

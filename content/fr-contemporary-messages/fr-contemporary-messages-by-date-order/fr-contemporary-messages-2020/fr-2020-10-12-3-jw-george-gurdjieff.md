@@ -1,7 +1,7 @@
 ---
 title: "Laissez entrer l’Amour Divin"
 menu_title: ""
-description: "Laissez entrer l’Amour Divin"
+description: "George Gurdjieff, reçu par Jimbeau Walsh : « Lorsque votre âme s’éveille et commence à voir l’omniprésence (envahissante) présence du sommeil et de … »"
 date: 2022-06-01 06:00:01+00:1282
 draft: False
 hidden: True

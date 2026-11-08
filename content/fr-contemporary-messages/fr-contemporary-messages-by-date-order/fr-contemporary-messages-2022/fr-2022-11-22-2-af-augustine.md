@@ -1,7 +1,7 @@
 ---
 title: "Vous venez nous connaître dans l'Amour de Dieu"
 menu_title: ""
-description: "Vous venez nous connaître dans l'Amour de Dieu"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant Augustin. Que la Grâce de l’Amour de Dieu remplisse votre âme, la transformant en une âme Divine, un … »"
 date: 2023-09-01 06:00:01+00:60
 draft: False
 hidden: True

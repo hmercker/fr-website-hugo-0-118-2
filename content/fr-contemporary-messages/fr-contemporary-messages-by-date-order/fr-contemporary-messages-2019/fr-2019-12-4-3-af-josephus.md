@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Clarification du don de médiumnité"
 menu_title: ""
-description: "Q&R : Clarification du don de médiumnité"
+description: "Flavius Josèphe, reçu par Al Fike : « On a le don de la médiumnité et ce don peut s’exprimer de différentes manières et par différents moyens, selon la … »"
 date: 2022-06-01 06:00:01+00:944
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’essence de Dieu imprègne l’univers"
 menu_title: ""
-description: "L’essence de Dieu imprègne l’univers"
+description: "Orion, reçu par Al Fike : « Cette bénédiction, ce don est disponible pour toutes les âmes à travers l'univers. Il n'est pas réservé à certains individus. »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

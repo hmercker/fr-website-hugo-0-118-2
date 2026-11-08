@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi Jésus était sans péché ?"
 menu_title: ""
-description: "Pourquoi Jésus était sans péché ?"
+description: "St Jean, reçu par WV : « Oui tu as raison concernant ce que tu as reçu pendant ta méditation sur « La raison pour laquelle Jésus avait besoin d’être … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Fou pour Dieu"
 menu_title: ""
-description: "Fou pour Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « J’étais fou de Dieu et de l’expérience de recevoir cet Amour Divin. Il n’était pas difficile de laisser … »"
 date: 2022-06-01 06:00:01+00:996
 draft: False
 hidden: True

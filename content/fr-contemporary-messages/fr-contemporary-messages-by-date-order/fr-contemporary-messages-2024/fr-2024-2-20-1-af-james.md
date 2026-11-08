@@ -1,7 +1,7 @@
 ---
 title: "Vous devez comprendre le pouvoir de votre libre arbitre"
 menu_title: ""
-description: "Vous devez comprendre le pouvoir de votre libre arbitre"
+description: "Jacques, reçu par Albert Fike : « Car sans l’exercice de votre volonté, rien ne peut arriver, que ce soit d’ordre spirituel ou matériel, dans ce monde. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

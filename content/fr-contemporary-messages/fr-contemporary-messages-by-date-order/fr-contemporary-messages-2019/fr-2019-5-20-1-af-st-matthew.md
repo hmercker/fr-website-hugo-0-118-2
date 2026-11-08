@@ -1,7 +1,7 @@
 ---
 title: "L'aube d'une nouvelle réalité"
 menu_title: ""
-description: "L'aube d'une nouvelle réalité"
+description: "St Matthieu, reçu par Al Fike : « Chaque âme de ce cercle a une relation avec Dieu. Vous avez appris à connaître Dieu à votre manière. »"
 date: 2022-06-01 06:00:01+00:730
 draft: False
 hidden: True

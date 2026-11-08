@@ -1,7 +1,7 @@
 ---
 title: "Le récit de l’Exode - Suite"
 menu_title: ""
-description: "Le récit de l’Exode - Suite"
+description: "Moïse, reçu par FAB : « Comme il est possible de l’imaginer, nous étions tous ravis de ne plus être en esclavage. En quittant l’Égypte pour le désert … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

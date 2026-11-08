@@ -1,7 +1,7 @@
 ---
 title: "L’expérience de Mme Hélène Padgett en quittant son corps et en allant dans le monde des esprits"
 menu_title: ""
-description: "L’expérience de Mme Hélène Padgett en quittant son corps et en allant dans le monde des esprits"
+description: "Hélène Padgett, reçu par James Padgett : « Lorsque j’ai réalisé que le moment était venu pour moi de partir, je n’ai pas craint de le faire, mais j’ai … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

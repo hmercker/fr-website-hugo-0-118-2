@@ -1,7 +1,7 @@
 ---
 title: "Saluer Percy en Esprit"
 menu_title: ""
-description: "Saluer Percy en Esprit"
+description: "Jésus, Augustin & Phyllis, reçu par Al Fike : « Je l'ai salué alors qu'il quittait la chair. Je l'ai embrassé, car j'ai et tous les anges ont, une … »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

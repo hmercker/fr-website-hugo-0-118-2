@@ -1,7 +1,7 @@
 ---
 title: "L’esprit décrit son expérience dans les enfers « Il est difficile d’apprendre, en enfer, sur les choses célestes »"
 menu_title: ""
-description: "L’esprit décrit son expérience dans les enfers « Il est difficile d’apprendre, en enfer, sur les choses célestes »"
+description: "Nathan Plummer, reçu par James Padgett : « L’indien a tenté de m’arrêter, mais votre femme a dit que je pouvais écrire, et je le fais. »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

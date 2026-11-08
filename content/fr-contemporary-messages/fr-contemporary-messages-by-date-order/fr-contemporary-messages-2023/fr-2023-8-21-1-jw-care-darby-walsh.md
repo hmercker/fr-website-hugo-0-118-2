@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la grâce"
 menu_title: ""
-description: "Marcher dans la grâce"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Car il y a une grande foule attirée par votre lumière, attirée par votre prière. Je souhaite parler un peu de … »"
 date: 2023-09-01 06:00:01+00:65
 draft: False
 hidden: True

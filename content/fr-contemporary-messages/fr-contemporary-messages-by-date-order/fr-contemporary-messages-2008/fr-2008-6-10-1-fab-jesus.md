@@ -1,7 +1,7 @@
 ---
 title: "Signes positifs et Loi"
 menu_title: ""
-description: "Signes positifs et Loi"
+description: "Jésus, reçu par FAB : « Il y a ces gens riches qui ont cherché à utiliser leur richesse d'une manière utile pour l'humanité. »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

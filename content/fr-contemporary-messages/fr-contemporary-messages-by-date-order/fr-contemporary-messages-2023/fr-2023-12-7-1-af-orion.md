@@ -1,7 +1,7 @@
 ---
 title: "Famille, gouvernement, économie et vie sur la planète d'Orion"
 menu_title: ""
-description: "Famille, gouvernement, économie et vie sur la planète d'Orion"
+description: "Orion, reçu par Albert Fike : « Devons-nous poursuivre nos essais ? Aujourd’hui, je souhaite parler des conditions sociales et politiques de ma planète en … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

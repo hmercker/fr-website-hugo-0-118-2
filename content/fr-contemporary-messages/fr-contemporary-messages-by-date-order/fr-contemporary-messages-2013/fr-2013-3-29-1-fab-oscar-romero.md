@@ -1,7 +1,7 @@
 ---
 title: "Le réconfort d’un martyr de la Vérité"
 menu_title: ""
-description: "Le réconfort d’un martyr de la Vérité"
+description: "Oscar Romero, reçu par FAB : « Je vois que vous m’avez toujours admiré pour ce que j’ai fait. Vous avez senti que je représentais le vrai Évangile de la … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La raison pour laquelle l'âme est née sur Terre"
 menu_title: ""
-description: "La raison pour laquelle l'âme est née sur Terre"
+description: "Augustin : « Lorsque ces classes commenceront, j'espère que des démonstrations seront données aux différents participants lorsqu'ils auront progressé, car … »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

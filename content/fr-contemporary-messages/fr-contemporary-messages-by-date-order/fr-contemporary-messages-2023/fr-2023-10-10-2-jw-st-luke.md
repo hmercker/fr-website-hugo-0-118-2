@@ -1,7 +1,7 @@
 ---
 title: "Faites d’être dans le moment présent de l’Amour de Dieu, votre priorité"
 menu_title: ""
-description: "Faites d’être dans le moment présent de l’Amour de Dieu, votre priorité"
+description: "St Luc, reçu par Jimbeau Walsh : « Mes frères et sœurs dans l’Amour de Dieu, c’est un temps de guérison, un temps de discernement spirituel, de libération … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

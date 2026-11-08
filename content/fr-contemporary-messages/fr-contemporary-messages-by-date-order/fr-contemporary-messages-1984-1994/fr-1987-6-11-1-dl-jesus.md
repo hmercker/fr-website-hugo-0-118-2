@@ -1,7 +1,7 @@
 ---
 title: "Notre ministère tout au long de la vie"
 menu_title: ""
-description: "Notre ministère tout au long de la vie"
+description: "Jésus, reçu par Révérend Dave Lampron : « Je voudrais tout d'abord dire qu'il a fait des progrès exceptionnels dans son cours d'étude, et que nous, dans … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

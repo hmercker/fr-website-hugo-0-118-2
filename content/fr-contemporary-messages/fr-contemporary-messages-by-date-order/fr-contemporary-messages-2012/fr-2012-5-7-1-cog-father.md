@@ -1,7 +1,7 @@
 ---
 title: "Offrez-vous vous-même votre amour"
 menu_title: ""
-description: "Offrez-vous vous-même votre amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon enfant, tu étais, avant-hier, un peu confus quant au lien entre les sentiments et ton âme et mon âme. »"
 date: 2022-06-01 06:00:01+00:253
 draft: False
 hidden: True

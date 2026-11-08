@@ -1,7 +1,7 @@
 ---
 title: "Le temps de Dieu"
 menu_title: ""
-description: "Le temps de Dieu"
+description: "St Jean, reçu par Jimbeau Walsh : « Il y a une expression dans le monde, « Tout vient à point à qui sait attendre. » Cette expression a été adaptée de … »"
 date: 2022-06-01 06:00:01+00:1720
 draft: False
 hidden: True

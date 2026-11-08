@@ -1,7 +1,7 @@
 ---
 title: "Il vient nous aider à reconnaître notre appel"
 menu_title: ""
-description: "Il vient nous aider à reconnaître notre appel"
+description: "Jésus, reçu par Maureen Cardoso : « J’ai été avec chacun de vous, vous bénissant, aidant à l’ouverture de votre âme, afin que les aspirations enfouies au … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

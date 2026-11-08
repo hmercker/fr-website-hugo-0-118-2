@@ -1,7 +1,7 @@
 ---
 title: "Appel à une aide supérieure"
 menu_title: ""
-description: "Appel à une aide supérieure"
+description: "André, reçu par Kathryn Stokes : « Nous attendons les occasions d’écrire. Nous sommes toujours anxieux de livrer nos pensées et d’aider les enfants de … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

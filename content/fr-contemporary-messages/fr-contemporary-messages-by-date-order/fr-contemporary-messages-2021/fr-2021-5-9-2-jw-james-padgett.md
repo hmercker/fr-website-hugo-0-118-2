@@ -1,7 +1,7 @@
 ---
 title: "Conseils aux enseignants du groupe d'étude Padgett"
 menu_title: ""
-description: "Conseils aux enseignants du groupe d'étude Padgett"
+description: "James Padgett, reçu par Jimbeau Walsh : « Je vais essayer de vous donner un exemple très simple de la grâce de Dieu. Qui peut expliquer les histoires des … »"
 date: 2022-06-01 06:00:01+00:1497
 draft: False
 hidden: True

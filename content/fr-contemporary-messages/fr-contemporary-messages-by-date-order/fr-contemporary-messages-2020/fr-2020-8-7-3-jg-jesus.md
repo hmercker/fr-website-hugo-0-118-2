@@ -1,7 +1,7 @@
 ---
 title: "Perte et Amour"
 menu_title: ""
-description: "Perte et Amour"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Le concept de la préparation est de réduire la nécessité de paniquer en cas de situation imprévue. »"
 date: 2022-06-01 06:00:01+00:1213
 draft: False
 hidden: True

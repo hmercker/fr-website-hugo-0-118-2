@@ -1,7 +1,7 @@
 ---
 title: "Progression de l'âme"
 menu_title: ""
-description: "Progression de l'âme"
+description: "St Luc, reçu par Jimbeau Walsh : « Comme on dit, j'attendais mon heure pour vous parler de la progression de votre âme sur terre. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

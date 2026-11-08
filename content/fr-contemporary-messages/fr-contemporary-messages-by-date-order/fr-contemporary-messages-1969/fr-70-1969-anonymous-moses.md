@@ -1,7 +1,7 @@
 ---
 title: "Symboles"
 menu_title: ""
-description: "Symboles"
+description: "Moïse : « Je vous bénis mes enfants, C'est Moïse. Je vous apporte un grand amour mes amis. »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi est-il si difficile d’ouvrir notre esprit à la Vérité ?"
 menu_title: ""
-description: "Pourquoi est-il si difficile d’ouvrir notre esprit à la Vérité ?"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Et, même si tu n’en es pas toujours consciente, tu bénéficies d’une protection Céleste à tout moment … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

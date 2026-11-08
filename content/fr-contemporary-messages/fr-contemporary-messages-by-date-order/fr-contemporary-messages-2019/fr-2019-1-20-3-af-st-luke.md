@@ -1,7 +1,7 @@
 ---
 title: "La prière pour l'Amour Divin est le Noyau"
 menu_title: ""
-description: "La prière pour l'Amour Divin est le Noyau"
+description: "Luc, reçu par Maureen Cardoso : « C’est un grand message que notre cher et bien-aimé maître, Augustin, partage avec nous tous. »"
 date: 2022-06-01 06:00:01+00:608
 draft: False
 hidden: True

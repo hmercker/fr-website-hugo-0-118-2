@@ -1,7 +1,7 @@
 ---
 title: "Signes"
 menu_title: ""
-description: "Signes"
+description: "Judas, reçu par Jimbeau Walsh : « Mes chers, vous avez parcouru un long chemin depuis vos humbles débuts jusqu'à un état de Grâce, un lieu de gratitude … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

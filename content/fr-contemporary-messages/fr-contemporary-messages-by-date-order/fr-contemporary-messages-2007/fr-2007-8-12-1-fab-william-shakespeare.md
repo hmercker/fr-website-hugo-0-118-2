@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - L'enfance et la Bible"
 menu_title: ""
-description: "Shakespeare - L'enfance et la Bible"
+description: "William Shakespeare, reçu par FAB : « Ackroyd a raison lorsqu'il suppose que mes parents m'ont déplacé, alors que j'étais un nourrisson, pour me mettre en … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

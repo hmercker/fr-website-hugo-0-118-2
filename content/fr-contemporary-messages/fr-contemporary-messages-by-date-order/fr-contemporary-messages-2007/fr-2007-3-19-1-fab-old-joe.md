@@ -1,7 +1,7 @@
 ---
 title: "Old Joe ajoute un commentaire à son message précédent"
 menu_title: ""
-description: "Old Joe ajoute un commentaire à son message précédent"
+description: "Old Joe, reçu par FAB : « Je m'en étais évidemment rendu compte sur Terre aussi. Lien vers les messages des années 2007 »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

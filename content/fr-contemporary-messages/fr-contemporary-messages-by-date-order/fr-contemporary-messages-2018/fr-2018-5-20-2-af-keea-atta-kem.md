@@ -1,7 +1,7 @@
 ---
 title: "Prenez des dispositions pour vous réunir"
 menu_title: ""
-description: "Prenez des dispositions pour vous réunir"
+description: "Keea Atta Kem, reçu par Al Fike : « Je souhaite vous encourager à persévérer dans vos prières, vos routines, vos pensées qui soutiennent vos efforts en … »"
 date: 2022-06-01 06:00:01+00:396
 draft: False
 hidden: True

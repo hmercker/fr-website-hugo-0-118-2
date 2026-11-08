@@ -1,7 +1,7 @@
 ---
 title: "Explique les déceptions dans le monde spirituel et matériel"
 menu_title: ""
-description: "Explique les déceptions dans le monde spirituel et matériel"
+description: "Anne Rollins, reçu par James Padgett : « Eh bien, mon cher fils, cela fait un certain temps que je ne t’ai pas écrit et je vais écrire quelques lignes. »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

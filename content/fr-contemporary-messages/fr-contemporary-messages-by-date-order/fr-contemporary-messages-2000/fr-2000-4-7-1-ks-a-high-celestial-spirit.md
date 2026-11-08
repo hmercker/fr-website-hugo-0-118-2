@@ -1,7 +1,7 @@
 ---
 title: "Esprit, Amour et Perfection"
 menu_title: ""
-description: "Esprit, Amour et Perfection"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Si cela peut vous réconforter, vous serez en mesure de reconnaître que la raison pour laquelle [la … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

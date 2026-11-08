@@ -1,7 +1,7 @@
 ---
 title: "Quel rôle choisirez-vous de jouer ?"
 menu_title: ""
-description: "Quel rôle choisirez-vous de jouer ?"
+description: "Hafiz, reçu par Jimbeau Walsh : « Lorsque vous lisez mes poèmes et mes écrits, ils sont remplis d’une abondance de sentiments pour Dieu. »"
 date: 2022-06-01 06:00:01+00:1271
 draft: False
 hidden: True

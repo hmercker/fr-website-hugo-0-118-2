@@ -1,7 +1,7 @@
 ---
 title: "Jésus et les guides accueillent le Cercle des Sept"
 menu_title: ""
-description: "Jésus et les guides accueillent le Cercle des Sept"
+description: "Jésus et les guides spirituels, reçu par Al Fike : « Et ainsi vous débarquez sur ces rivages une fois de plus, ensemble, pour poursuivre vos engagements … »"
 date: 2022-06-01 06:00:01+00:493
 draft: False
 hidden: True

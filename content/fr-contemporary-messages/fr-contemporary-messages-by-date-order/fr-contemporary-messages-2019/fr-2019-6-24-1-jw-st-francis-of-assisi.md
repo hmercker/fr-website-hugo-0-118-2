@@ -1,7 +1,7 @@
 ---
 title: "Nous serons avec vous dans ce sanctuaire"
 menu_title: ""
-description: "Nous serons avec vous dans ce sanctuaire"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « En fait, ce que nous souhaitons établir ici, c'est cette « Sainte Communion » qui ne dépend pas de … »"
 date: 2022-06-01 06:00:01+00:757
 draft: False
 hidden: True

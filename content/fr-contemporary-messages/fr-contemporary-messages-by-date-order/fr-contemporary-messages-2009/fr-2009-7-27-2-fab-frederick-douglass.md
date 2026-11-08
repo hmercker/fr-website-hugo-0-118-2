@@ -1,7 +1,7 @@
 ---
 title: "La joie d'un abolitionniste"
 menu_title: ""
-description: "La joie d'un abolitionniste"
+description: "Frederick Douglass, reçu par FAB : « Ici, il n'y a pas de Noirs et de Blancs, seulement des âmes qui s'élèvent ou s'abaissent en fonction de ce qu'a été … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Affirmation Afro-Américaine"
 menu_title: ""
-description: "Affirmation Afro-Américaine"
+description: "Emmett Till, reçu par FAB : « Ils ne pouvaient pas me parler de cette façon. Ils n'en avaient pas le droit. »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le treillis de lumière est comme un filet qui recouvre le monde et le relie tous ensemble"
 menu_title: ""
-description: "Le treillis de lumière est comme un filet qui recouvre le monde et le relie tous ensemble"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Vous continuez à vous rassembler de cette façon, en élargissant et en renforçant ce Cercle de Lumière qui agit … »"
 date: 2022-06-01 06:00:01+00:989
 draft: False
 hidden: True

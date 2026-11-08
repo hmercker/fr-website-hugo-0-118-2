@@ -1,7 +1,7 @@
 ---
 title: "Joseph sur le pouvoir de l’engagement"
 menu_title: ""
-description: "Joseph sur le pouvoir de l’engagement"
+description: "Joseph, reçu par Al Fike : « Comme il est difficile pour les mortels de s’engager sur un seul chemin, vers une simple vérité, car vous êtes constamment … »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

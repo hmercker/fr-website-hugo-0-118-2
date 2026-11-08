@@ -1,7 +1,7 @@
 ---
 title: "Saleeba partage sa progression dans l’obtention de l’Amour Divin"
 menu_title: ""
-description: "Saleeba partage sa progression dans l’obtention de l’Amour Divin"
+description: "Saleeba, reçu par James Padgett : « Je sais que vous ne vous intéressez pas autant à moi qu’à d’autres qui vous écrivent, mais je sais aussi que personne … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous encourage à créer plus de cercles de lumière dans le monde"
 menu_title: ""
-description: "Nous encourage à créer plus de cercles de lumière dans le monde"
+description: "St Matthieu, reçu par Albert Fike : « Les cercles de Lumière, c’est ce dont vous avez besoin dans votre monde, des cercles comme celui-ci où les frères et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

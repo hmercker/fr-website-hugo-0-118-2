@@ -1,7 +1,7 @@
 ---
 title: "Le Bonheur d'une Ancienne Esclave"
 menu_title: ""
-description: "Le Bonheur d'une Ancienne Esclave"
+description: "Harriet Ann Jacobs, reçu par FAB : « J'ai vu l'attention de Dieu dans mes luttes, et cela m'a beaucoup aidée lorsque j'ai déposé le fardeau de la vie … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

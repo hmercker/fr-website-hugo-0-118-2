@@ -1,7 +1,7 @@
 ---
 title: "Le bon côté des choses"
 menu_title: ""
-description: "Le bon côté des choses"
+description: "James Padgett, reçu par DB : « Vous êtes prêt Daniel, alors commençons. Je voudrais répondre aux commentaires de Geoff concernant ma réception des … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

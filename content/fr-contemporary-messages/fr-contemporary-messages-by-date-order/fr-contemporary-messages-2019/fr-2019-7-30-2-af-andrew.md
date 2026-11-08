@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes capables de nous rapprocher lorsque vous êtes proche de Dieu"
 menu_title: ""
-description: "Nous sommes capables de nous rapprocher lorsque vous êtes proche de Dieu"
+description: "André, reçu par Al Fike : « Que Son Amour trouve un afflux profond dans vos âmes mettant en lumière tous les trésors de votre âme, la beauté de votre âme … »"
 date: 2022-06-01 06:00:01+00:799
 draft: False
 hidden: True

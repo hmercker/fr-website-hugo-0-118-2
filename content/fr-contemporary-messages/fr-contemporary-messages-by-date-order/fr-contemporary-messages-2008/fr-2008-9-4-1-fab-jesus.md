@@ -1,7 +1,7 @@
 ---
 title: "Une perspective globale"
 menu_title: ""
-description: "Une perspective globale"
+description: "Jésus, reçu par FAB : « Vous pensez que nous avons été trop extrêmes dans notre critique du système. Vous avez lu qu'il y a des sociétés qui s'occupent … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

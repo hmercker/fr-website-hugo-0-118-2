@@ -1,7 +1,7 @@
 ---
 title: "« En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père »"
 menu_title: ""
-description: "« En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père »"
+description: "Jésus, reçu par James Padgett : « J’ai été une grande partie du temps avec vous aujourd’hui, je sais exactement comme votre esprit a fonctionné, et j’ai … »"
 date: 2022-06-01 06:00:01+00:280
 draft: False
 hidden: True

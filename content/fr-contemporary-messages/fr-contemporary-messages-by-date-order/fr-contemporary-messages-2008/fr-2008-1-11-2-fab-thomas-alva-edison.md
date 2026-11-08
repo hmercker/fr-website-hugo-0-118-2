@@ -1,7 +1,7 @@
 ---
 title: "La bonté de Dieu et de l'humanité"
 menu_title: ""
-description: "La bonté de Dieu et de l'humanité"
+description: "Thomas Alva Edison, reçu par FAB : « Bien que vous n'ayez pas pu saisir les descriptions techniques de mes inventions, vous avez néanmoins apprécié de … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

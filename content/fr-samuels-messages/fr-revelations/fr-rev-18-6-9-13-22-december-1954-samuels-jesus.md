@@ -1,7 +1,7 @@
 ---
 title: "18ème Révélation : Jésus rejette plusieurs miracles et incidents qui lui sont attribués"
 menu_title: ""
-description: "18ème Révélation : Jésus rejette plusieurs miracles et incidents qui lui sont attribués"
+description: "Jésus, reçu par Dr Samuels : « Le premier supposé miracle est celui d’avoir nourri des milliers d’auditeurs affamés qui étaient sans nourriture et qui … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

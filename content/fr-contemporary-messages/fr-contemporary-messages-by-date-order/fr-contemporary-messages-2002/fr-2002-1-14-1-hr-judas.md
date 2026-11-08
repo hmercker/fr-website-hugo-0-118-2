@@ -1,7 +1,7 @@
 ---
 title: "Construire l’harmonie avec humilité"
 menu_title: ""
-description: "Construire l’harmonie avec humilité"
+description: "Judas, reçu par H : « Permets-moi de te donner quelques conseils. Après la mort de Jésus, la nouvelle église, qui n’était en fait pas une église comme tu … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un dramaturge de la Grèce antique a trouvé la voie Divine"
 menu_title: ""
-description: "Un dramaturge de la Grèce antique a trouvé la voie Divine"
+description: "Eschyle, reçu par FAB : « Vous serez heureux de savoir que j'ai trouvé la voie Divine. Ce ne fut absolument pas difficile puisque j'étais un penseur … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

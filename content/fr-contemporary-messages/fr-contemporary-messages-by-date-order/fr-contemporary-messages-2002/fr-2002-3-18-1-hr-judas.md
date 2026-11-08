@@ -1,7 +1,7 @@
 ---
 title: "L’histoire de Nicodème"
 menu_title: ""
-description: "L’histoire de Nicodème"
+description: "Judas, reçu par H : « Je t’ai promis une surprise et aujourd’hui je vais te la donner. Je tiens à examiner en détail un chapitre clé dans le Nouveau … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

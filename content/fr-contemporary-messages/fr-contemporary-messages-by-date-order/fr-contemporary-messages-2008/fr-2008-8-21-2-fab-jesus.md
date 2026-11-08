@@ -1,7 +1,7 @@
 ---
 title: "La Crucifixion de Jésus"
 menu_title: ""
-description: "La Crucifixion de Jésus"
+description: "Jésus, reçu par FAB : « Vous voulez mieux comprendre pourquoi j'ai été crucifié. Où était la protection Divine, si ma mission était si importante ? »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

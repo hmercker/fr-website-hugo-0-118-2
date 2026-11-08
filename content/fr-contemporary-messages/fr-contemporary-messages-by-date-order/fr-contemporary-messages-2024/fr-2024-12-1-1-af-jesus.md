@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour le Cercle de Lumière en Ligne"
 menu_title: ""
-description: "Bénédiction pour le Cercle de Lumière en Ligne"
+description: "Jésus, reçu par Albert Fike : « Comme vous êtes nécessaires pour être des canaux de lumière et d’amour dans le monde. Comme le monde a besoin de lumière … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

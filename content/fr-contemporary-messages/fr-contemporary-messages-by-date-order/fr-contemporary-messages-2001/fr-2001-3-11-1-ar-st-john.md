@@ -1,7 +1,7 @@
 ---
 title: "Comment être dans le monde, mais pas de lui"
 menu_title: ""
-description: "Comment être dans le monde, mais pas de lui"
+description: "St Jean, reçu par Amada Reza : « Je voudrais parler de la question de savoir comment on peut être dans le monde, mais pas de lui. »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

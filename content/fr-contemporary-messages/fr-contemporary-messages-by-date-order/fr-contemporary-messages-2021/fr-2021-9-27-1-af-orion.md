@@ -1,7 +1,7 @@
 ---
 title: "Possibilités du Don"
 menu_title: ""
-description: "Possibilités du Don"
+description: "Orion, reçu par Al Fike : « Ainsi, vous découvrez les possibilités de ce cadeau qui vous est donné, ce qui peut en découler, ce qui peut se manifester à … »"
 date: 2022-06-01 06:00:01+00:1664
 draft: False
 hidden: True

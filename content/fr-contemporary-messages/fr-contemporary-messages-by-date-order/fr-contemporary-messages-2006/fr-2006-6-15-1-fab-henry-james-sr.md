@@ -1,7 +1,7 @@
 ---
 title: "Henry James Sr. fait l’expérience de la Nouvelle Naissance"
 menu_title: ""
-description: "Henry James Sr. fait l’expérience de la Nouvelle Naissance"
+description: "Henry James Sr., reçu par FAB : « C’est une telle joie d’écrire un message à la Terre. J’ai attendu si longtemps de pouvoir le faire. »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

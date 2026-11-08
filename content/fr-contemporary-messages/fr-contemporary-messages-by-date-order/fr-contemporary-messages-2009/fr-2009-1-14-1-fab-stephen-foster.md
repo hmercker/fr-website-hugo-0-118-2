@@ -1,7 +1,7 @@
 ---
 title: "Une clarification musicale"
 menu_title: ""
-description: "Une clarification musicale"
+description: "Stephen Foster, reçu par FAB : « Vous avez lu récemment que les preuves de cette chanson étaient apparues quelques années auparavant. »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène presse M. Padgett de suivre les conseils de Jean"
 menu_title: ""
-description: "Hélène presse M. Padgett de suivre les conseils de Jean"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu es fatigué et que tu ne dois pas écrire davantage ; mais je veux dire que tu … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

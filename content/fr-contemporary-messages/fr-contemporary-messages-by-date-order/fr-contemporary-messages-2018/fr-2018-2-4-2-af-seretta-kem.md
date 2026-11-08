@@ -1,7 +1,7 @@
 ---
 title: "Les changements de l'âme intérieure se manifesteront dans vos vies"
 menu_title: ""
-description: "Les changements de l'âme intérieure se manifesteront dans vos vies"
+description: "Seretta Kem, reçu par Al Fike : « Mes amis, c’est Seretta Kem. Il est bon de vous voir vous déplacer dans le monde, pour suivre les urgences de vos âmes … »"
 date: 2022-06-01 06:00:01+00:314
 draft: False
 hidden: True

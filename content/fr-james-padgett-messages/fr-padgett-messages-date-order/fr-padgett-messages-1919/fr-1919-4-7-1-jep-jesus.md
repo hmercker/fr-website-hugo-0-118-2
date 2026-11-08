@@ -1,7 +1,7 @@
 ---
 title: "Dieu et sa personnalité"
 menu_title: ""
-description: "Dieu et sa personnalité"
+description: "Jésus, reçu par James Padgett : « Je désire écrire quelques lignes. Je vois que vous avez été très intéressé par ce que le prédicateur (Dr. »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

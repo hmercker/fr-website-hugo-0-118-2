@@ -1,7 +1,7 @@
 ---
 title: "N’était pas présent la nuit dernière quand l’esprit maléfique est venu"
 menu_title: ""
-description: "N’était pas présent la nuit dernière quand l’esprit maléfique est venu"
+description: "Jésus, reçu par James Padgett : « C’est pourquoi je vous signale et vous raconte des faits apparemment sans importance comme ce qui s’est passé hier soir. »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

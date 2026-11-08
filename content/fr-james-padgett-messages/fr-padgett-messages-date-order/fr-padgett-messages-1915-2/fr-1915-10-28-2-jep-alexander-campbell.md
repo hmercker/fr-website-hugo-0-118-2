@@ -1,7 +1,7 @@
 ---
 title: "Alexander Campbell n’a pas compris le plan du salut de l’homme alors qu’il était sur terre. n’a pas compris le plan du salut de l’homme alors qu’il était sur terre"
 menu_title: ""
-description: "Alexander Campbell n’a pas compris le plan du salut de l’homme alors qu’il était sur terre. n’a pas compris le plan du salut de l’homme alors qu’il était sur terre"
+description: "Alexander Campbell, reçu par James Padgett : « Je l’ai épelé comme il se doit. Je sais que mes disciples s’appellent les Camellites, mais ce n’est pas … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

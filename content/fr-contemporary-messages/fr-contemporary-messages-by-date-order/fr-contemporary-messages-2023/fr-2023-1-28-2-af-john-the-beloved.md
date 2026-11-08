@@ -1,7 +1,7 @@
 ---
 title: "L'accomplissement de votre âme dans la famille d'Amour de Dieu"
 menu_title: ""
-description: "L'accomplissement de votre âme dans la famille d'Amour de Dieu"
+description: "Jean le Bien Aimé, reçu par Al Fike : « Que le toucher de la largeur de Dieu soit sur vous, âmes bien-aimées. Il est important que vous fassiez un effort … »"
 date: 2023-09-01 06:00:01+00:73
 draft: False
 hidden: True

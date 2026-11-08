@@ -1,7 +1,7 @@
 ---
 title: "40ème Sermon – Les ancêtres de Jérémie dans le règne de Saül et David"
 menu_title: ""
-description: "40ème Sermon – Les ancêtres de Jérémie dans le règne de Saül et David"
+description: "Jésus, reçu par Dr Samuels : « Jérémie est l’un des plus importants, sinon le plus grand, prophète que Dieu a pu utiliser pour l’élévation sociale et … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

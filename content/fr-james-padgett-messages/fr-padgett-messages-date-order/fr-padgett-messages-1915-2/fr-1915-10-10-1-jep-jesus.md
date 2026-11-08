@@ -1,7 +1,7 @@
 ---
 title: "La Foi et comment elle peut être obtenue"
 menu_title: ""
-description: "La Foi et comment elle peut être obtenue"
+description: "Jésus, reçu par James Padgett : « Je sais que, parfois, il semble difficile de saisir la pleine signification de la foi dans le Père et son Amour, mais si … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

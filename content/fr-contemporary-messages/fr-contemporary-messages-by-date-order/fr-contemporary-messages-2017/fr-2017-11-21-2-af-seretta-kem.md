@@ -1,7 +1,7 @@
 ---
 title: "Apportez à la Chambre votre sens du jeu"
 menu_title: ""
-description: "Apportez à la Chambre votre sens du jeu"
+description: "Seretta Kem, reçu par Al Fike : « Nous nous prélassons tous dans cette Lumière, n'est-ce pas ? Cette belle Lumière que Marie a apportée et que Dieu a … »"
 date: 2022-06-01 06:00:01+00:224
 draft: False
 hidden: True

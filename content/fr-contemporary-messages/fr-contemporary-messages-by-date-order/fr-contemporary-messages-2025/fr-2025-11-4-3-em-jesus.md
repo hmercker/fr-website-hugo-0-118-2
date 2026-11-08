@@ -1,7 +1,7 @@
 ---
 title: "Reconnaître certaines des bénédictions de Dieu"
 menu_title: ""
-description: "Reconnaître certaines des bénédictions de Dieu"
+description: "Jésus, reçu par Elizabeth Mack : « Mon Père m’envoie avec des bénédictions, dont certaines sont déjà accordées à vos âmes depuis mon entrée dans ce cercle. »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

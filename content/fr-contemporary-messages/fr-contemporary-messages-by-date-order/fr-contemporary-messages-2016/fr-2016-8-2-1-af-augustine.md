@@ -1,7 +1,7 @@
 ---
 title: "Enseigner la leçon de l’Amour"
 menu_title: ""
-description: "Enseigner la leçon de l’Amour"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant, Augustin. Je vous ai accompagnés aujourd’hui alors que vous travailliez à élaborer des leçons et … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

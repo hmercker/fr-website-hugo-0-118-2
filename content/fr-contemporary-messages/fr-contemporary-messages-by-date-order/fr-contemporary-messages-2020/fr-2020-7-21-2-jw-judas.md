@@ -1,7 +1,7 @@
 ---
 title: "Devenez une étoile"
 menu_title: ""
-description: "Devenez une étoile"
+description: "Judas, reçu par Jimbeau Walsh : « Vous êtes-vous déjà demandé pourquoi les gens souhaitent devenir des célébrités, devenir célèbres ? »"
 date: 2022-06-01 06:00:01+00:1194
 draft: False
 hidden: True

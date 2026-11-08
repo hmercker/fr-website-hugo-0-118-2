@@ -1,7 +1,7 @@
 ---
 title: "Une bénédiction spéciale donnée"
 menu_title: ""
-description: "Une bénédiction spéciale donnée"
+description: "Confucius, reçu par Al Fike : « Ah mes petits oiseaux, comme vous aimez vous rassembler et prier ensemble dans la lumière du toucher bien-aimé de Dieu sur … »"
 date: 2022-06-01 06:00:01+00:436
 draft: False
 hidden: True

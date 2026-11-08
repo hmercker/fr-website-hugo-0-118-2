@@ -1,7 +1,7 @@
 ---
 title: "Prière au monde"
 menu_title: ""
-description: "Prière au monde"
+description: "André, reçu par Al Fike : « Il y a une telle condition de privation dans votre monde qu’il faut tous vos efforts et vos prières et les efforts de beaucoup … »"
 date: 2022-06-01 06:00:01+00:1456
 draft: False
 hidden: True

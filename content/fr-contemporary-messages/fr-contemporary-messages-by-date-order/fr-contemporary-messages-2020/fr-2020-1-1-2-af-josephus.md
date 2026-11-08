@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi Dieu permet-il la souffrance de l’innocent ?"
 menu_title: ""
-description: "Pourquoi Dieu permet-il la souffrance de l’innocent ?"
+description: "Flavius Joseph, reçu par Al Fike : « Pour ce faire, nous devons remonter de nombreux siècles en arrière, jusqu’au début de l’établissement de l’humanité … »"
 date: 2022-06-01 06:00:01+00:971
 draft: False
 hidden: True

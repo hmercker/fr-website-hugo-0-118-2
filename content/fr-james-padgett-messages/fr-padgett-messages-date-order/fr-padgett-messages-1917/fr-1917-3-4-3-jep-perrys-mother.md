@@ -1,7 +1,7 @@
 ---
 title: "La mère de Perry exprime sa gratitude à M. Padgett pour les efforts qu’il a déployés afin que son fils puisse voir la lumière"
 menu_title: ""
-description: "La mère de Perry exprime sa gratitude à M. Padgett pour les efforts qu’il a déployés afin que son fils puisse voir la lumière"
+description: "La mère de Perry, reçu par James Padgett : « Oh, comme je vous remercie et loue le Père pour Sa Miséricorde et Sa Bonté en permettant à mon cher garçon de … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

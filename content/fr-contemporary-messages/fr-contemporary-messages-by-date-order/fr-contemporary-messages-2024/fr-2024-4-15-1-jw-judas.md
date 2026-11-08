@@ -1,7 +1,7 @@
 ---
 title: "Influence spirituelle et boussole morale"
 menu_title: ""
-description: "Influence spirituelle et boussole morale"
+description: "Judas, reçu par Jimbeau Walsh : « Le magnétisme de l’Amour Divin attire tant de personnes dans le monde spirituel. Alors, je vous remercie tous d’avoir … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

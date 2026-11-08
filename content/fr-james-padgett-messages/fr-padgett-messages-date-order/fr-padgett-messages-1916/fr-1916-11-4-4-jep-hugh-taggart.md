@@ -1,7 +1,7 @@
 ---
 title: "Taggart préfère la joie spirituelle à la vie terrestre"
 menu_title: ""
-description: "Taggart préfère la joie spirituelle à la vie terrestre"
+description: "Hugh Taggart, reçu par James Padgett : « Eh bien, mon vieux, comment allez-vous ? Morgan qu’un de ses témoins était quelqu’un d’autre, mais il n’a pas … »"
 date: 2022-06-01 06:00:01+00:320
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hommage à Barb"
 menu_title: ""
-description: "Hommage à Barb"
+description: "Augustin, reçu par Al Fike : « Grâce à ses efforts, chacun de vous a été touché par la vérité. Son héritage est ce cercle, ceux qui poursuivent cette … »"
 date: 2022-06-01 06:00:01+00:713
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La foi et le désir vous ouvriront les portes de votre mission"
 menu_title: ""
-description: "La foi et le désir vous ouvriront les portes de votre mission"
+description: "Barbara Davies, reçu par Albert Fike : « Oh, que nous sommes d’enfants sur Terre ! Nous voyons si peu, nous comprenons si peu. »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

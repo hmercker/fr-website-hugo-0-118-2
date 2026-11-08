@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu de travailler à travers cette église - F.U.S.C."
 menu_title: ""
-description: "Permettez à Dieu de travailler à travers cette église - F.U.S.C."
+description: "Martha, reçu par Al Fike : « J’ai fait partie autrefois de votre congrégation, dans votre église. Il y a de nombreuses années, avant qu’aucun d’entre vous … »"
 date: 2022-06-01 06:00:01+00:413
 draft: False
 hidden: True

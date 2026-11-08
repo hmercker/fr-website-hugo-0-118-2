@@ -1,7 +1,7 @@
 ---
 title: "Nous invite à l'unité avec Dieu"
 menu_title: ""
-description: "Nous invite à l'unité avec Dieu"
+description: "Barthélémy, reçu par Albert Fike : « Bienvenue, voyageurs intrépides sur ce chemin d’amour vers l’unité avec Dieu. Je fais partie de vous, de vos frères … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

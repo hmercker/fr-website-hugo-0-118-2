@@ -1,7 +1,7 @@
 ---
 title: "Socrate écrit sur son expérience de progression"
 menu_title: ""
-description: "Socrate écrit sur son expérience de progression"
+description: "Socrate, reçu par James Padgett : « J’ai su que vous pensiez à moi et j’ai été attiré par votre pensée. Si un tel esprit est en rapport avec vous ou a une … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

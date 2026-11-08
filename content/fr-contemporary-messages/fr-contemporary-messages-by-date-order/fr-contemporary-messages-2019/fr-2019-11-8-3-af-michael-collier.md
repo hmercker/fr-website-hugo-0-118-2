@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu d'opérer Sa magie à travers vous"
 menu_title: ""
-description: "Permettez à Dieu d'opérer Sa magie à travers vous"
+description: "Michael Collier, reçu par Al Fike : « Ils ont été diligents à bien des égards, cherchant à servir Dieu. Ce chemin et cet effort n’ont pas été … »"
 date: 2022-06-01 06:00:01+00:899
 draft: False
 hidden: True

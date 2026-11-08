@@ -1,7 +1,7 @@
 ---
 title: "Félicitations pour une retraite réussie à Lansing"
 menu_title: ""
-description: "Félicitations pour une retraite réussie à Lansing"
+description: "Confucius, Martha, Jésus, reçu par Al Fixe : « Alors, vous souhaitez entendre le vieux sage, n’est-ce pas ? Ma fille bien-aimée, que Dieu te bénisse pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

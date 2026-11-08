@@ -1,7 +1,7 @@
 ---
 title: "Laissez le travail de votre âme prédominer"
 menu_title: ""
-description: "Laissez le travail de votre âme prédominer"
+description: "Orion, reçu par Albert Fike : « Chacun d’entre vous a beaucoup progressé depuis que nous avons commencé ces moments ensemble. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

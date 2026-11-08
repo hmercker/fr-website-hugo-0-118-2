@@ -1,7 +1,7 @@
 ---
 title: "Élie parle sur la loi de Compensation"
 menu_title: ""
-description: "Élie parle sur la loi de Compensation"
+description: "Élie, reçu par James Padgett : « L’heure est tardive, vous êtes fatigué, je n’écrirai donc qu’un court message. Bien, je désire dire que le message que … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

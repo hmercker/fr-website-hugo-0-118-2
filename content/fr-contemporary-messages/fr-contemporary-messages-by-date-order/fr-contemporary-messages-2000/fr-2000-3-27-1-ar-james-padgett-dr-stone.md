@@ -1,7 +1,7 @@
 ---
 title: "Promouvoir l’Amour entre nous"
 menu_title: ""
-description: "Promouvoir l’Amour entre nous"
+description: "James Padgett & Dr Stone, reçu par Amada Réza : « Je lui assure qu’il ne se passe pas un jour sans que nous communiquions avec vous, mortels, qui aspirez … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

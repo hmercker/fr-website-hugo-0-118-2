@@ -1,7 +1,7 @@
 ---
 title: "8ème Sermon – Jérémie, le serviteur souffrant"
 menu_title: ""
-description: "8ème Sermon – Jérémie, le serviteur souffrant"
+description: "Jésus, reçu par Dr Samuels : « Je désire, par ce sermon, expliquer, à mes auditeurs et lecteurs, comment, et pourquoi, le 53ème chapitre d’Isaïe, traitant … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Swedenborg écrit sur les enfers"
 menu_title: ""
-description: "Swedenborg écrit sur les enfers"
+description: "Emmanuel Swedenborg, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes car je désire partager quelques vérités sur ce dont vous et votre … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

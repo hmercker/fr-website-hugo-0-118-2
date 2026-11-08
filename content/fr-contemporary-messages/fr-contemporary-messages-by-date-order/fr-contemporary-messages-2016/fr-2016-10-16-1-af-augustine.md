@@ -1,7 +1,7 @@
 ---
 title: "L’ouverture des perceptions de votre âme"
 menu_title: ""
-description: "L’ouverture des perceptions de votre âme"
+description: "Augustin, reçu par Al Fike : « Mes élèves c’est votre enseignant Augustin. Je vois que vous commencez à faire la distinction entre la conscience de votre … »"
 date: 2022-06-01 06:00:01+00:255
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Se libérer de la carapace qui entoure votre âme"
 menu_title: ""
-description: "Se libérer de la carapace qui entoure votre âme"
+description: "Jacques, reçu par Al Fike : « Et chacun de vous est impatient de grandir davantage dans cet Amour, car vous sentez cet Amour pulser dans vos âmes, vous … »"
 date: 2022-06-01 06:00:01+00:215
 draft: False
 hidden: True

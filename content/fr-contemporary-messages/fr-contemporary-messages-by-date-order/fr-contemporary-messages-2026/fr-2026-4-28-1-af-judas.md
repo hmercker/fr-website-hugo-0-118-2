@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir du libre arbitre : renforcer ou contrarier l’harmonie de l’univers de Dieu"
 menu_title: ""
-description: "Le pouvoir du libre arbitre : renforcer ou contrarier l’harmonie de l’univers de Dieu"
+description: "Judas, reçu par Al Fike : « Dieu a créé un univers empreint de bienveillance, un univers conçu pour progresser dans l’harmonie, un univers qui, par … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

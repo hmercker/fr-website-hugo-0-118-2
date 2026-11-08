@@ -1,7 +1,7 @@
 ---
 title: "Samuel Beckett est malheureux"
 menu_title: ""
-description: "Samuel Beckett est malheureux"
+description: "Samuel Beckett, reçu par FAB : « Vous savez que j’ai été honnête envers moi-même et envers la vie. Vous savez aussi que je n’avais pas la moindre … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

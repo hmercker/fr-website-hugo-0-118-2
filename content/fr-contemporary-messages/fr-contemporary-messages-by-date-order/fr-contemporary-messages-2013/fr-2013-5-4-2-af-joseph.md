@@ -1,7 +1,7 @@
 ---
 title: "Ne craignez pas, mais aimez"
 menu_title: ""
-description: "Ne craignez pas, mais aimez"
+description: "Joseph, reçu par Albert Fike : « Je t’enjoins d’abandonner tes résistances et tes peurs, car tu es bercé dans la main de Dieu et tu seras guidé vers l’avant. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

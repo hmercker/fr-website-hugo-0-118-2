@@ -1,7 +1,7 @@
 ---
 title: "Hérode écrit sur les enfers. Corrobore le message de Swedenborg sur les enfers"
 menu_title: ""
-description: "Hérode écrit sur les enfers. Corrobore le message de Swedenborg sur les enfers"
+description: "Hérode, reçu par James Padgett : « Permettez-moi d’écrire juste une ligne avant que vous terminiez, car j’ai hâte de vous parler d’une question qui … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

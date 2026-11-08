@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Comment aider les êtres spirituels ?"
 menu_title: ""
-description: "Q&R : Comment aider les êtres spirituels ?"
+description: "Flavius Josèphe, reçu par Al Fike : « Je pense que la réponse à cela est très simple, mes filles bien-aimées. Vous rendez-vous compte du pouvoir de la … »"
 date: 2022-06-01 06:00:01+00:946
 draft: False
 hidden: True

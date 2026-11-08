@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme est unique"
 menu_title: ""
-description: "Chaque âme est unique"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « J’ai été avec vous aujourd’hui et j’ai tellement apprécié l’harmonie qui s’est installée entre ma famille … »"
 date: 2022-06-01 06:00:01+00:1535
 draft: False
 hidden: True

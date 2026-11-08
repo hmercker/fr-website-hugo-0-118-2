@@ -1,7 +1,7 @@
 ---
 title: "Le pardon"
 menu_title: ""
-description: "Le pardon"
+description: "André, reçu par Al Fike : « C’est un aspect important de votre croissance de l’âme. Car il existe de nombreuses conditions dans votre monde, de nombreuses … »"
 date: 2022-06-01 06:00:01+00:428
 draft: False
 hidden: True

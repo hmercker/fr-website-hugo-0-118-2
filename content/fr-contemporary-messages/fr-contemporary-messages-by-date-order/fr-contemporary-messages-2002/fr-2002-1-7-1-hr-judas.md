@@ -1,7 +1,7 @@
 ---
 title: "Autres êtres et le but de ces messages"
 menu_title: ""
-description: "Autres êtres et le but de ces messages"
+description: "Judas, reçu par H : « Mon cher frère, ne considère pas ceci un message, considère le comme un simple échange. Le sujet de la foi est très profond, et je … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

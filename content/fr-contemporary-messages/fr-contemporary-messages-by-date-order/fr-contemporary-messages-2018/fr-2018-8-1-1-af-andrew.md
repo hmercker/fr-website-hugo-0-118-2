@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme est unique et fleurit dans la Vérité de l'Amour de Dieu"
 menu_title: ""
-description: "Chaque âme est unique et fleurit dans la Vérité de l'Aamour de Dieu"
+description: "André, reçu par Al Fike : « Bien qu’ils continuent avec certains de leurs pièges et idées religieuses, qui conviennent à leur façon d’être, c’est l’Amour … »"
 date: 2022-06-01 06:00:01+00:438
 draft: False
 hidden: True

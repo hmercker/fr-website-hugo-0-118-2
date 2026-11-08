@@ -1,7 +1,7 @@
 ---
 title: "Cet Amour est Universel"
 menu_title: ""
-description: "Cet Amour est Universel"
+description: "Orion, reçu par Albert Fike : « Bien que notre langage et notre expérience puissent différer des vôtres, la loi, la pratique et la réception de ce don … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

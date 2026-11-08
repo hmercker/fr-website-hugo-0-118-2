@@ -1,7 +1,7 @@
 ---
 title: "Marie remet une rose rouge à chacun"
 menu_title: ""
-description: "Marie remet une rose rouge à chacun"
+description: "Marie, reçu par Albert Fike : « Je me tiens devant vous, au milieu de votre cercle — ce puissant Cercle de Lumière qui m'attire vers vous et qui attire … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

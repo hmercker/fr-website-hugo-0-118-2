@@ -1,7 +1,7 @@
 ---
 title: "L’amour est la réponse"
 menu_title: ""
-description: "L’amour est la réponse"
+description: "Confucius, reçu par Albert Fike : « N’est-ce pas là le remède dont le monde a besoin pour sa subsistance spirituelle et son élévation ? »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

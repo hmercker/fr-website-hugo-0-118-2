@@ -1,7 +1,7 @@
 ---
 title: "Le Royaume Angélique souhaite des Sanctuaires Physiques sur Terre"
 menu_title: ""
-description: "Le Royaume Angélique souhaite des Sanctuaires Physiques sur Terre"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « J’étais assise, attendant ce moment, à la grande surprise de mon bien-aimé, qui ne s’attendait pas à ce que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

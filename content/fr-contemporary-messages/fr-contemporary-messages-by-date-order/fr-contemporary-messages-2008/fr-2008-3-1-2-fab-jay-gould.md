@@ -1,7 +1,7 @@
 ---
 title: "Un industriel américain est malheureux"
 menu_title: ""
-description: "Un industriel américain est malheureux"
+description: "Jay Gould, reçu par FAB : « Et où cela m'a-t-il mené ? Bien sûr, sur terre, tout appel à sauver mon âme aurait été accueilli par moi avec un mépris, et … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

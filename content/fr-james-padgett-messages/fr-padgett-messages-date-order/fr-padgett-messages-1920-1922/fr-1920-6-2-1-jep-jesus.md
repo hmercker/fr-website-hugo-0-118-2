@@ -1,7 +1,7 @@
 ---
 title: "Jésus Immortalité"
 menu_title: ""
-description: "Jésus Immortalité"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire ce soir sur un sujet qui est important pour l’humanité et doit être pleinement expliqué, afin … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

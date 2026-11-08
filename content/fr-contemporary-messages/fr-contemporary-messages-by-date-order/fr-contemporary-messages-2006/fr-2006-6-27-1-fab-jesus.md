@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente le Mouvement Amour Divin/James Padgett"
 menu_title: ""
-description: "Jésus commente le Mouvement Amour Divin/James Padgett"
+description: "Jésus, reçu par FAB : « Permettez-moi de commenter votre petit nombre. M a fait remarquer que votre groupe est très en dessous de la moyenne. »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Transformation dans l'Amour Divin"
 menu_title: ""
-description: "Transformation dans l'Amour Divin"
+description: "Orion, reçu par Albert Fike : « Chacun de vous, à sa manière, a surmonté divers obstacles et barrières. Chacun de vous apprend le pouvoir de l’amour et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Destinée et libre arbitre"
 menu_title: ""
-description: "Destinée et libre arbitre"
+description: "Augustin, reçu par Al Fike : « Je souhaite parler du sujet du libre arbitre par rapport à la destinée dans votre vie. Lorsqu'une âme s'incarne dans ce … »"
 date: 2022-06-01 06:00:01+00:707
 draft: False
 hidden: True

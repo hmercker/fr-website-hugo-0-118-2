@@ -1,7 +1,7 @@
 ---
 title: "Jésus: sa description par Anne Rollins est exacte"
 menu_title: ""
-description: "Jésus: sa description par Anne Rollins est exacte"
+description: "Jésus, reçu par James Padgett : « Je pense que demain soir conviendra pour le travail. Commencez vers neuf heures et vous pourrez écrire jusqu’à ce que … »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

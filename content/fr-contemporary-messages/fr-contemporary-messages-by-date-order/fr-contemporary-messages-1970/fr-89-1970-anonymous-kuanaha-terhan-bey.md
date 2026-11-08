@@ -1,7 +1,7 @@
 ---
 title: "L'homme sur terre doit à nouveau vivre selon les directives directes de Dieu"
 menu_title: ""
-description: "L'homme sur terre doit à nouveau vivre selon les directives directes de Dieu"
+description: "Kuanaha Terhan Bey : « L'homme sur la Terre doit avoir une preuve définitive et c'est à cause de la méchanceté de l'homme et de ses méfaits que les lois … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

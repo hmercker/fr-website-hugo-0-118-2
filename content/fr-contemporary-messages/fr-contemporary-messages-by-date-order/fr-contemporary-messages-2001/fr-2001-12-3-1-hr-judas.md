@@ -1,7 +1,7 @@
 ---
 title: "Que nous apprend la bible ?"
 menu_title: ""
-description: "Que nous apprend la bible ?"
+description: "Judas, reçu par H : « Ce que nous avons traité, à ce jour, dans de nombreux messages, concerne les soi-disant années perdues de Jésus. »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

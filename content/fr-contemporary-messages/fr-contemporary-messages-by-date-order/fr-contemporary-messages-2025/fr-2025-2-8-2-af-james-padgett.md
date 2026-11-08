@@ -1,7 +1,7 @@
 ---
 title: "Demande une révision des volumes de messages qu'il a reçus de Jésus pour renforcer le rapport et la connaissance des lois spirituelles"
 menu_title: ""
-description: "Demande une révision des volumes de messages qu'il a reçus de Jésus pour renforcer le rapport et la connaissance des lois spirituelles"
+description: "James Padgett, reçu par Albert Fike : « Il est important que vous continuiez à ouvrir votre esprit et à ouvrir votre âme à ces vérités afin que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

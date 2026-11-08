@@ -1,7 +1,7 @@
 ---
 title: "William Stone, père, donne un rapport sur le travail et le développement spirituel de son fils dans sa grande mission choisie par le Maître"
 menu_title: ""
-description: "William Stone, père, donne un rapport sur le travail et le développement spirituel de son fils dans sa grande mission choisie par le Maître"
+description: "William Stone, reçu par James Padgett : « Je désire écrire juste une ligne, avant que mon fils ne parte. Sa mère est là aussi, et elle lui envoie son … »"
 date: 2022-06-01 06:00:01+00:191
 draft: False
 hidden: True

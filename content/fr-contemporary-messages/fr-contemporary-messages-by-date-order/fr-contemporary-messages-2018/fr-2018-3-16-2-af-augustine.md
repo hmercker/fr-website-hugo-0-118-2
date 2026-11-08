@@ -1,7 +1,7 @@
 ---
 title: "Le don d'Amour et de lumière de Dieu"
 menu_title: ""
-description: "Le don d'Amour et de lumière de Dieu"
+description: "Augustin, reçu par Al Fike : « Enfant béni, ta mère est dans la Lumière. Elle continue à servir Dieu à sa manière et avec ses moyens. »"
 date: 2022-06-01 06:00:01+00:365
 draft: False
 hidden: True

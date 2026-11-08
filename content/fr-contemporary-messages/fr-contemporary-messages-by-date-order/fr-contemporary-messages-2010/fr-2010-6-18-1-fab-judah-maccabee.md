@@ -1,7 +1,7 @@
 ---
 title: "La sanction de la violence physique"
 menu_title: ""
-description: "La sanction de la violence physique"
+description: "Judah Maccabee, reçu par FAB : « J’ai été attiré par votre amour. Je vous ai interpellé parce que vous lisiez un poème d’Emma Lazarus sur ma famille, et … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

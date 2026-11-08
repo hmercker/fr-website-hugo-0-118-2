@@ -1,7 +1,7 @@
 ---
 title: "Fortifiez le réseau de lumière avec vos prières"
 menu_title: ""
-description: "Fortifiez le réseau de lumière avec vos prières"
+description: "Orion, reçu par Albert Fike : « Vous continuez à contribuer à l’illumination du monde et nous contribuons à cet égard par nos efforts et notre lumière … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Paul sur le sermon du prédicateur, « Le Drame de St Paul ». Son expérience sur terre"
 menu_title: ""
-description: "Paul sur le sermon du prédicateur, « Le Drame de St Paul ». Son expérience sur terre"
+description: "St Paul, reçu par James Padgett : « Eh bien, mon frère, j’étais avec vous lors du sermon sur le « Drame de Saint Paul », et je fus très intéressé par le … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

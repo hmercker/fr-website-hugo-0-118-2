@@ -1,7 +1,7 @@
 ---
 title: "Apporter la lumière au monde est votre objectif"
 menu_title: ""
-description: "Apporter la lumière au monde est votre objectif"
+description: "Élie, reçu par Al Fike : « Dans vos âmes se trouve une grande lumière, dans vos aspirations, vos désirs et vos efforts pour atteindre la lumière, vous … »"
 date: 2022-06-01 06:00:01+00:1151
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les défis de la vie renforcent l'âme, créant des canaux d'amour plus puissants (Tour 2019 d'éveil de l'âme - Côte Est des USA)"
 menu_title: ""
-description: "Les défis de la vie renforcent l'âme, créant des canaux d'amour plus puissants (Tour 2019 d'éveil de l'âme - Côte Est des USA)"
+description: "Keea Atta Kem, reçu par Al Fike : « Que vos voyages continuent d’apporter de profonds réveils de l’âme, que vous puissiez en venir à connaître Dieu d’une … »"
 date: 2022-06-01 06:00:01+00:654
 draft: False
 hidden: True

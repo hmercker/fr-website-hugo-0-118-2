@@ -1,7 +1,7 @@
 ---
 title: "Nous supplie de faire notre part pour être intégrés"
 menu_title: ""
-description: "Nous supplie de faire notre part pour être intégrés"
+description: "Aron, reçu par Al Fike : « Je sais que la résolution n’est pas souvent considérée comme un attribut de l’âme, mais en effet, elle peut l’être et peut être … »"
 date: 2022-06-01 06:00:01+00:1527
 draft: False
 hidden: True

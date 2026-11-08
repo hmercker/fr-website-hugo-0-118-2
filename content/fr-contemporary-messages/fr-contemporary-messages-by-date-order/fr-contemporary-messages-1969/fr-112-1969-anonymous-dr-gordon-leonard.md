@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin de Dieu, le chemin du bonheur et de la santé"
 menu_title: ""
-description: "L'Amour Divin de Dieu, le chemin du bonheur et de la santé"
+description: "Dr Gordon Leonard : « Je voudrais vous parler de la façon de rester en bonne santé et heureux. Lorsque j'étais sur Terre, j'ai eu un grand désir de guérir … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

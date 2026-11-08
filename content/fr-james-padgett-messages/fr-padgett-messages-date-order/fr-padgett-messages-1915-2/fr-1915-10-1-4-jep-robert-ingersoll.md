@@ -1,7 +1,7 @@
 ---
 title: "Robert Ingersoll regrette de n’avoir pas connu la Vérité lorsqu’il était sur terre"
 menu_title: ""
-description: "Robert Ingersoll regrette de n’avoir pas connu la Vérité lorsqu’il était sur terre"
+description: "Robert Ingersoll, reçu par James Padgett : « Je ne me suis pas encore remis de la merveilleuse expérience que j’ai vécue la nuit où Jésus a montré sa … »"
 date: 2022-06-01 06:00:01+00:291
 draft: False
 hidden: True

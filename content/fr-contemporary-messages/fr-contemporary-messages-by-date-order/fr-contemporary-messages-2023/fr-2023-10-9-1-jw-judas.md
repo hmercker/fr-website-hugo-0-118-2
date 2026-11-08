@@ -1,7 +1,7 @@
 ---
 title: "Laissez l’Amour de Dieu imprégner votre journée, illuminez votre nuit !"
 menu_title: ""
-description: "Laissez l’Amour de Dieu imprégner votre journée, illuminez votre nuit !"
+description: "Judas, reçu par Jimbeau Walsh : « Chaque âme douce tend la main, s’élève et s’ouvre à l’Amour de Dieu. Chacun apporte une certaine quantité de bagages au … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

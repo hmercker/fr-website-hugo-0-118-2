@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett éclaire M. Padgett sur la proximité des esprits et des mortels durant les jours de fête de la terre auxquels Jésus ne participe pas"
 menu_title: ""
-description: "Hélène Padgett éclaire M. Padgett sur la proximité des esprits et des mortels durant les jours de fête de la terre auxquels Jésus ne participe pas"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois tu es très heureux maintenant, et j’apprécie l’influence différente exercée d’une … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

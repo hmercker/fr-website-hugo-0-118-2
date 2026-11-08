@@ -1,7 +1,7 @@
 ---
 title: "Nous recevons tous des conseils, que nous en soyons conscients ou non"
 menu_title: ""
-description: "Nous recevons tous des conseils, que nous en soyons conscients ou non"
+description: "Goldie, reçu par Al Fike : « Vous croyez si souvent que vous n’entendez pas la parole de Dieu ni les conseils qui vous sont donnés. »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus apporte une bénédiction à F.U.S.C."
 menu_title: ""
-description: "Jésus apporte une bénédiction à F.U.S.C."
+description: "Jésus, reçu par Al Fike : « Je tiens à vous assurer que je n’ai pas souffert aussi grandement que vous pourriez l’imaginer, que mon Père céleste a fait en … »"
 date: 2022-06-01 06:00:01+00:375
 draft: False
 hidden: True

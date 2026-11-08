@@ -1,7 +1,7 @@
 ---
 title: "Le jeûne du drame"
 menu_title: ""
-description: "Le jeûne du drame"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Et très certainement à Al et Jeanne dans leurs voyages alors qu’ils répandent les vérités de l’Amour Divin et … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

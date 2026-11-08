@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi se compliquer la vie ?"
 menu_title: ""
-description: "Pourquoi se compliquer la vie ?"
+description: "Goldie, reçu par Al Fike : « Oh vous avez fait réfléchir le pasteur, mes amis. Dans ce lieu de prière, vous avez apporté une douceur à cette pièce mais … »"
 date: 2022-06-01 06:00:01+00:274
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Honorer la Terre Mère"
 menu_title: ""
-description: "Honorer la Terre Mère"
+description: "Sashaquaha, reçu par Al Fike : « Que le Grand Esprit Blanc vous bénisse tous. Puissiez-vous vraiment honorer notre Mère la Terre. »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

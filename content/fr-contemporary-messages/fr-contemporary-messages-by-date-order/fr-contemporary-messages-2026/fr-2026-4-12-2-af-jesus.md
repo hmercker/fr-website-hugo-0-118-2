@@ -1,7 +1,7 @@
 ---
 title: "Méditation guidée suivie d'une bénédiction de Jésus"
 menu_title: ""
-description: "Méditation guidée suivie d'une bénédiction de Jésus"
+description: "Jésus, reçu par Al Fike : « Méditation guidée par Al Fike : Oh, tous mes beaux amis, belles âmes que vous êtes, nous allons marcher ensemble un moment. »"
 date: 2026-09-22 16:00:01+00:01
 draft: False
 hidden: True

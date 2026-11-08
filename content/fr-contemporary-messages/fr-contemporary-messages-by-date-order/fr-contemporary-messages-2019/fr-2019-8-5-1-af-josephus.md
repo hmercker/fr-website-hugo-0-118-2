@@ -1,7 +1,7 @@
 ---
 title: "Les portails de lumière sont de puissants instruments de Dieu"
 menu_title: ""
-description: "Les portails de lumière sont de puissants instruments de Dieu"
+description: "Flavius Josèphe, reçu par Al Fike : « Je souhaite parler de l'importance de ces Portails de Lumière qui ont été établis dans votre monde et comment nous … »"
 date: 2022-06-01 06:00:01+00:804
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jean, l’Apôtre, affirmant que Jésus a écrit sur les deux royaumes"
 menu_title: ""
-description: "Jean, l’Apôtre, affirmant que Jésus a écrit sur les deux royaumes"
+description: "St Jean, reçu par James Padgett : « Je n’écrirai pas beaucoup, je désire seulement dire que vous avez reçu, ce soir, un message merveilleux du Maître. »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

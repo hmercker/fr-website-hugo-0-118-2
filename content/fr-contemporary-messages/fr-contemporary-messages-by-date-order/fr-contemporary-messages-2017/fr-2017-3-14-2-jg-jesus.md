@@ -1,7 +1,7 @@
 ---
 title: "Culte"
 menu_title: ""
-description: "Culte"
+description: "Jésus, reçu par Jane Gartshore : « Cherchez l'amour de Dieu par-dessus tout. Il est devant vous, à portée de main. »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

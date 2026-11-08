@@ -1,7 +1,7 @@
 ---
 title: "Attendez-vous à l'inattendu !"
 menu_title: ""
-description: "Attendez-vous à l'inattendu !"
+description: "Professeur Salyards, reçu par Albert Fike : « En effet, vous devez prier pour l’inspiration et l’orientation, pour ce qui provoquera le déploiement de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

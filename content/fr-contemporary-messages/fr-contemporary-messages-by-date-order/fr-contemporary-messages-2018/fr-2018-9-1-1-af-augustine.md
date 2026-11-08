@@ -1,7 +1,7 @@
 ---
 title: "L’éveil de vos âmes apporte le message de Vvérité à l’humanité"
 menu_title: ""
-description: "L’éveil de vos âmes apporte le message de Vérité à l’humanité"
+description: "Augustin, reçu par Al Fike : « C’est votre maître, Augustin. Comme l’a dit notre frère et Maître bien-aimé, vous devez tous aller dans le monde pour … »"
 date: 2022-06-01 06:00:01+00:465
 draft: False
 hidden: True

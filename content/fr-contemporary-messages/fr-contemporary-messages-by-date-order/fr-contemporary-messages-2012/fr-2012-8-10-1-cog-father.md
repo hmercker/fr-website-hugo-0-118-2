@@ -1,7 +1,7 @@
 ---
 title: "L’illusion que nous sommes séparés"
 menu_title: ""
-description: "L’illusion que nous sommes séparés"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Comme tu l’as maintenant compris, le rejet est une blessure majeure chez tous les humains et une blessure … »"
 date: 2022-06-01 06:00:01+00:284
 draft: False
 hidden: True

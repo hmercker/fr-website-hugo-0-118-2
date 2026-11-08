@@ -1,7 +1,7 @@
 ---
 title: "Âmes en transition"
 menu_title: ""
-description: "Âmes en transition"
+description: "St Jean, reçu par Jimbeau Walsh : « Lorsque vous lisez les paroles de la prière donnée par le Maître faisant référence à l’âme comme étant la plus grande … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

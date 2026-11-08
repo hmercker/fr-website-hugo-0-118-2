@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu devient l'influence dominante dans vos vies"
 menu_title: ""
-description: "L'Amour de Dieu devient l'influence dominante dans vos vies"
+description: "Keea atta Kem, reçu par Albert Fike : « Alors que les fleurs s’épanouissent et que la vie jaillit de votre Terre, que l’ardeur de votre âme soit ressentie … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

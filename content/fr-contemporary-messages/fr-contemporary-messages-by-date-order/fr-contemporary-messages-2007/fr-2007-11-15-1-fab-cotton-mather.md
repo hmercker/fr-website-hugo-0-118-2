@@ -1,7 +1,7 @@
 ---
 title: "Dieu et l'Amérique"
 menu_title: ""
-description: "Dieu et l'Amérique"
+description: "Cotton Mather, reçu par FAB : « J'ai le plaisir de vous transmettre un autre message. Vous venez de lire un extrait de mon sermon, Theopolis Americana … »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

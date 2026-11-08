@@ -1,7 +1,7 @@
 ---
 title: "Les possibilités du service"
 menu_title: ""
-description: "Les possibilités du service"
+description: "Mère Teresa, reçu par Al Fike : « Il y a toujours beaucoup de travail à faire mes amis, toujours beaucoup à faire, car personne ne peut rester inactif … »"
 date: 2022-06-01 06:00:01+00:234
 draft: False
 hidden: True

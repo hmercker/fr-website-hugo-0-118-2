@@ -1,7 +1,7 @@
 ---
 title: "Un poète inspiré et heureux"
 menu_title: ""
-description: "Un poète inspiré et heureux"
+description: "Pablo Neruda, reçu par FAB : « Il y a une telle joie ici qu’elle ne peut être contenue. Les fleurs scintillent, et les étoiles apportent leur odeur de … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

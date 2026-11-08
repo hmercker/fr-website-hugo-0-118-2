@@ -1,7 +1,7 @@
 ---
 title: "Méditation guidée vers la Salle de la Paix, suivie d'une prière"
 menu_title: ""
-description: "Méditation guidée vers la Salle de la Paix, suivie d'une prière"
+description: "Jésus, reçu par Al Fike : « Al Fike : Inspirez par le nez et expirez par la bouche. Sentez votre corps se détendre, s'enfoncer davantage dans vos sièges … »"
 date: 2026-09-22 16:00:01+00:01
 draft: False
 hidden: True

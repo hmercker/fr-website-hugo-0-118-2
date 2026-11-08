@@ -1,7 +1,7 @@
 ---
 title: "La richesse matérielle"
 menu_title: ""
-description: "La richesse matérielle"
+description: "Jésus, reçu par FAB : « Je veux décrire davantage ce que je ressens et pense du système économique actuellement en place. »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

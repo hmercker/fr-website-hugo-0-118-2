@@ -1,7 +1,7 @@
 ---
 title: "Le système et les personnes"
 menu_title: ""
-description: "Le système et les personnes"
+description: "Jésus, reçu par FAB : « Je veux canaliser un message maintenant, clarifiant ce qui a été dit dans les canalisations passées, que le système est mauvais. »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

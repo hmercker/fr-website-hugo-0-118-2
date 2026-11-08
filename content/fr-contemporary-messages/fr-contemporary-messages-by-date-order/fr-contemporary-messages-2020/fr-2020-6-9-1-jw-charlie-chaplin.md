@@ -1,7 +1,7 @@
 ---
 title: "Le voleur de cœur"
 menu_title: ""
-description: "Le voleur de cœur"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Saviez-vous que, enfant, j’ai été un voleur, pendant un temps, lorsque ma mère était malade, que j’étais sans … »"
 date: 2022-06-01 06:00:01+00:1130
 draft: False
 hidden: True

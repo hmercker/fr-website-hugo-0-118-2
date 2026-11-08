@@ -1,7 +1,7 @@
 ---
 title: "La tristesse d'un président"
 menu_title: ""
-description: "La tristesse d'un président"
+description: "Woodrow Wilson, reçu par FAB : « J’ai dit, dans ma canalisation du 20 Novembre 2006, que je reconnaissais un but supérieur pour l’Amérique, et que je … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mes livres sont vraiment approuvés"
 menu_title: ""
-description: "Mes livres sont vraiment approuvés"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « L’œil n’a pas vu, l’oreille n’a pas entendu, et les sens n’ont pas perçu ce que Dieu a préparé pour Ses … »"
 date: 2022-06-01 06:00:01+00:1590
 draft: False
 hidden: True

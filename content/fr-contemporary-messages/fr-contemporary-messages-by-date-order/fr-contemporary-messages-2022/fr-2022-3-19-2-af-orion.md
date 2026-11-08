@@ -1,7 +1,7 @@
 ---
 title: "Discerner entre la conscience de l’âme et la conscience de l’esprit"
 menu_title: ""
-description: "Discerner entre la conscience de l’âme et la conscience de l’esprit"
+description: "Orion, reçu par Al Fike : « Je vous remercie, chère fille, pour vos prières et pour toutes vos prières en ce moment pour votre monde, car votre monde a … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

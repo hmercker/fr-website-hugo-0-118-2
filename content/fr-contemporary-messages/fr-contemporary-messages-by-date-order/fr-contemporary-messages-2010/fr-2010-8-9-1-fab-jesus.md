@@ -1,7 +1,7 @@
 ---
 title: "Jésus est né sans Péché et sans Défaut"
 menu_title: ""
-description: "Jésus est né sans Péché et sans Défaut"
+description: "Jésus, reçu par FAB : « Laissez-moi canaliser un message, car vous cherchez à être éclairé. J'ai dit par l'intermédiaire de M. »"
 date: 2022-06-01 06:00:01+00:144
 draft: False
 hidden: True

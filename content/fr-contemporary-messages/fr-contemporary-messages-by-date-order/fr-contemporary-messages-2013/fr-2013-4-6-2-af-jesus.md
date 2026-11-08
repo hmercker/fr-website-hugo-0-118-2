@@ -1,7 +1,7 @@
 ---
 title: "Bénis soyez-vous dans votre communion"
 menu_title: ""
-description: "Bénis soyez-vous dans votre communion"
+description: "Jésus, reçu par Albert Fike : « Que vous soyez bénis sur le chemin du retour vers votre véritable demeure. Dans le temps à venir, vos facultés de l'âme … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

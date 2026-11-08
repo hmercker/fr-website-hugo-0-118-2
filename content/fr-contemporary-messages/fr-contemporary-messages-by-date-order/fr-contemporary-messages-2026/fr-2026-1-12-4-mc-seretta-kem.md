@@ -1,7 +1,7 @@
 ---
 title: "Parle sur le développement personnel des participants à la retraite de la Barbade"
 menu_title: ""
-description: "Parle sur le développement personnel des participants à la retraite de la Barbade"
+description: "Serreta Kem, reçu par Maureen Cardoso : « Assis dans ce cercle, nous nous rassemblons pour votre développement personnel, chacun d'entre vous progressant … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

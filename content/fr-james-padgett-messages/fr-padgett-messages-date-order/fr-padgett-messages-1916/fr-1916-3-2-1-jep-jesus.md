@@ -1,7 +1,7 @@
 ---
 title: "Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées"
 menu_title: ""
-description: "Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées"
+description: "Jésus, reçu par James Padgett : « Je désire écrire ce soir sur le sujet du salut de l’âme et montrer comment l’âme rachetée est sauvée des peines que le … »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

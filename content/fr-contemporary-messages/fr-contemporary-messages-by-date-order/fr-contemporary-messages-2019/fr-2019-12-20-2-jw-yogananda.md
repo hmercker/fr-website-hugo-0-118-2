@@ -1,7 +1,7 @@
 ---
 title: "Priez !"
 menu_title: ""
-description: "Priez !"
+description: "Yogananda, reçu par Jimbeau Walsh : « Parce que vous vous êtes réunis dans la prière et dans l’humilité, reconnaissant notre Créateur et demandant à … »"
 date: 2022-06-01 06:00:01+00:967
 draft: False
 hidden: True

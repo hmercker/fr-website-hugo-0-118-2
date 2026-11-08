@@ -1,7 +1,7 @@
 ---
 title: "Les expériences de Jean Sebastian Bach"
 menu_title: ""
-description: "Les expériences de Jean Sebastian Bach"
+description: "Jean Sébastian Bach, reçu par FAB : « Je vous salue en ce dernier jour de l'année pour vous dire mon amour. J'ai vécu une expérience spirituelle assez … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

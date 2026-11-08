@@ -1,7 +1,7 @@
 ---
 title: "Démonstration de médiumnité / Discussion sur les sphères spirituelles"
 menu_title: ""
-description: "Démonstration de médiumnité / Discussion sur les sphères spirituelles"
+description: "Augustin, reçu par Al Fike : « Je voudrais encourager chacun d’entre vous à chercher à éclairer votre âme avec les dons que Dieu a à offrir, avec l’Amour … »"
 date: 2022-06-01 06:00:01+00:1301
 draft: False
 hidden: True

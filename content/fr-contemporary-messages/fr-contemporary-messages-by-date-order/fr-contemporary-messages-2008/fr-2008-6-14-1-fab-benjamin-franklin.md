@@ -1,7 +1,7 @@
 ---
 title: "Les Pères fondateurs en tant que classe"
 menu_title: ""
-description: "Les Pères fondateurs en tant que classe"
+description: "Benjamin Franklin, reçu par FAB : « Permettez-moi de discuter de l'idée que quelques personnes ont organisé et administré la Révolution Américaine. »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

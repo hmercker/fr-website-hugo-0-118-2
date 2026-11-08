@@ -1,7 +1,7 @@
 ---
 title: "Marcher sur le Chemin de l'Amour Divin"
 menu_title: ""
-description: "Marcher sur le Chemin de l'Amour Divin"
+description: "Jésus et Marie, reçu par Albert Fike : « Nourrir son âme de l'Amour de Dieu est le chemin qui vous mènera à la plus grande plénitude et à la plus grande … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

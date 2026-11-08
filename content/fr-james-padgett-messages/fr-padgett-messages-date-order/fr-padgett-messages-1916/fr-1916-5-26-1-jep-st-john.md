@@ -1,7 +1,7 @@
 ---
 title: "Jean explique la séparation des âmes-sœurs dans le cas où les deux n’obtiennent pas l’Amour Divin du Père"
 menu_title: ""
-description: "Jean explique la séparation des âmes-sœurs dans le cas où les deux n’obtiennent pas l’Amour Divin du Père"
+description: "St Jean, reçu par James Padgett : « Je désire écrire sur un sujet qui vous intéressera, car je vous ai entendu exprimer votre perplexité quant au sort de … »"
 date: 2022-06-01 06:00:01+00:230
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Trance Message de Jésus"
 menu_title: ""
-description: "Trance Message de Jésus"
+description: "Jésus, reçu par Amada Reza : « Et j’ai prié et j’ai reçu l’Amour Divin de notre Père Céleste ; le plus grand don que la grande Âme de Dieu nous offre, Ses … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

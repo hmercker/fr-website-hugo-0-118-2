@@ -1,7 +1,7 @@
 ---
 title: "St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible"
 menu_title: ""
-description: "St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible"
+description: "St Augustin, reçu par James Padgett : « A cette époque, je n’ai jamais su exactement ce qu’il est advenu des manuscrits qui existaient quand j’ai vécu … »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

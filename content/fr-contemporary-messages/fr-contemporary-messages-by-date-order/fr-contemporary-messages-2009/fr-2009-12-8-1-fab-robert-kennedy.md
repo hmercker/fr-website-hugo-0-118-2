@@ -1,7 +1,7 @@
 ---
 title: "Plus sur Robert Kennedy - 3"
 menu_title: ""
-description: "Plus sur Robert Kennedy - 3"
+description: "Robert Kennedy, reçu par FAB : « Écrivez ce paragraphe de la page 353 de la biographie d'Evan Thomas sur moi, et je le commenterai. »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

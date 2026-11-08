@@ -1,7 +1,7 @@
 ---
 title: "Les expériences de Marilyn Monroe de l’autre côté"
 menu_title: ""
-description: "Les expériences de Marilyn Monroe de l’autre côté"
+description: "Marilyn Monroe, reçu par FAB : « Je ne savais pas qu’une chose telle qu’un mortel recevant un message d’une personne décédée pouvait exister. »"
 date: 2022-06-01 06:00:01+00:210
 draft: False
 hidden: True

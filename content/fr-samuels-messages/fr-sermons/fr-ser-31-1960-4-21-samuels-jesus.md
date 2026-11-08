@@ -1,7 +1,7 @@
 ---
 title: "31ème Sermon – Le premier Isaïe, prophète d’Israël"
 menu_title: ""
-description: "31ème Sermon – Le premier Isaïe, prophète d’Israël"
+description: "Jésus, reçu par Dr Samuels : « Isaïe, fils d’Amos, est connu comme le prophète de la foi en Dieu par excellence, où cette foi est appliquée à la nation de … »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Être en bonne condition physique et spirituelle aide à apporter des bénédictions"
 menu_title: ""
-description: "Être en bonne condition physique et spirituelle aide à apporter des bénédictions"
+description: "Seretta Kem, reçu par Albert Fike : « Je demande à tous ceux d’entre vous qui prévoient de voyager de faire un effort, durant ce mois, pour surveiller … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous aimés de Dieu"
 menu_title: ""
-description: "Nous sommes tous aimés de Dieu"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Mes chers, que l’Amour du Père vous élève afin que vous puissiez élever le monde. Tout dans la création est … »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

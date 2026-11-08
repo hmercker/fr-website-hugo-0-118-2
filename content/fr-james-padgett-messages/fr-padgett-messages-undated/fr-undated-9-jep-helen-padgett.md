@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett écrit qu’en tant que son âme sœur, son amour pour lui est plus grand que celui pour ses enfants, qui n’auront plus besoin d’elle dans la grand futur de l’éternité"
 menu_title: ""
-description: "Hélène Padgett écrit qu’en tant que son âme sœur, son amour pour lui est plus grand que celui pour ses enfants, qui n’auront plus besoin d’elle dans la grand futur de l’éternité"
+description: "Hélène Padgett, reçu par James Padgett : « Pense donc à moi comme à ton épouse spirituelle plutôt qu’à ta femme mortelle qui t’a quitté. »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "31ème Révélation : « Sur cette pierre je bâtirai mon Église »"
 menu_title: ""
-description: "31ème Révélation : « Sur cette pierre je bâtirai mon Église »"
+description: "Jésus, reçu par Dr Samuels : « Maintenant, en premier lieu, je tiens à dire qu’il n’y a rien dans les Évangiles qui indique que Pierre aurait dû recevoir … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins : Le pardon"
 menu_title: ""
-description: "Anne Rollins : Le pardon"
+description: "Anne Rollins, reçu par James Padgett : « Le pardon est l’opération de l’Entendement Divin qui évite à l’homme de payer les pénalités des péchés qu’il a … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

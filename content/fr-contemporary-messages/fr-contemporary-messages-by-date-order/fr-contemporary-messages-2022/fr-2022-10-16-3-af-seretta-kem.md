@@ -1,7 +1,7 @@
 ---
 title: "Construire des conditions idéales pour un centre de lumière à Happy Days Farm"
 menu_title: ""
-description: "Construire des conditions idéales pour un centre de lumière à Happy Days Farm"
+description: "Seretta Kem, reçu par Al Fike : « Nous continuons à aider à améliorer les conditions, les portails, l’environnement, les aspects de ce lieu qui sera … »"
 date: 2023-09-01 06:00:01+00:54
 draft: False
 hidden: True

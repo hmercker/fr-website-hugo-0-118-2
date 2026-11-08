@@ -1,7 +1,7 @@
 ---
 title: "Vous avez choisi d’être des lumières dans le monde"
 menu_title: ""
-description: "Vous avez choisi d’être des lumières dans le monde"
+description: "Jésus, reçu par Al Fike : « Que le contact de l’Amour de notre Père soit ce cadeau pour votre âme alors que nous prions ensemble aujourd’hui. »"
 date: 2022-06-01 06:00:01+00:1587
 draft: False
 hidden: True

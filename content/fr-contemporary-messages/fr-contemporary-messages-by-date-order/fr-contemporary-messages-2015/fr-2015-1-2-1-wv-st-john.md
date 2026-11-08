@@ -1,7 +1,7 @@
 ---
 title: "Tout est Simple"
 menu_title: ""
-description: "Tout est Simple"
+description: "St Jean, reçu par WV : « Je veux commencer ce message avec une déclaration très importante : « Tout est Simple » Lorsque nous te donnerons des … »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

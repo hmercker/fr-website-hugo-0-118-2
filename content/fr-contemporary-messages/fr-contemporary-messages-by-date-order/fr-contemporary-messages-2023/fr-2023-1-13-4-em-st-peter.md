@@ -1,7 +1,7 @@
 ---
 title: "Cherchez la vérité"
 menu_title: ""
-description: "Cherchez la vérité"
+description: "St Pierre, reçu par Elizabeth Mack : « Avec vos âmes étendues, avec vos cœurs élevés vers notre Père Céleste, vous verrez clairement tout ce qui vous a … »"
 date: 2023-09-01 06:00:01+00:64
 draft: False
 hidden: True

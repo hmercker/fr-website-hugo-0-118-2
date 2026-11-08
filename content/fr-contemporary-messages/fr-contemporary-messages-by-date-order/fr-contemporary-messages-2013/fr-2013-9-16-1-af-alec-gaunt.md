@@ -1,7 +1,7 @@
 ---
 title: "Lorsque l'un de vous fait un pas en avant, vous avancez tous"
 menu_title: ""
-description: "Lorsque l'un de vous fait un pas en avant, vous avancez tous"
+description: "Alec Gaunt, reçu par Albert Fike : « Je tiens à ce que vous preniez conscience des efforts considérables déployés pour vous permettre d’accomplir ce … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

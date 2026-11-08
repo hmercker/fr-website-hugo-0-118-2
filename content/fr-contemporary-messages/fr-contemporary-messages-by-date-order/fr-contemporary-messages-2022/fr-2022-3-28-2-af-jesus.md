@@ -1,7 +1,7 @@
 ---
 title: "Avancez au service des autres"
 menu_title: ""
-description: "Avancez au service des autres"
+description: "Jésus, reçu par Al Fike : « Puissiez-vous continuer d'avancer dans l'amour, portant la flamme de la Vérité partout où vous allez. »"
 date: 2026-05-21 06:00:01+00:56
 draft: False
 hidden: True

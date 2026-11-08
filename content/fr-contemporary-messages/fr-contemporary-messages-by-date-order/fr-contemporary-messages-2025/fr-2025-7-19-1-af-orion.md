@@ -1,7 +1,7 @@
 ---
 title: "Bénis et encouragés sur le chemin le moins fréquenté"
 menu_title: ""
-description: "Bénis et encouragés sur le chemin le moins fréquenté"
+description: "Orion, reçu par reçu par Al Fike : « Dans votre monde, les tendances et les désirs de l'âme sont rarement compris ni exercés. Votre monde n'est pas le … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

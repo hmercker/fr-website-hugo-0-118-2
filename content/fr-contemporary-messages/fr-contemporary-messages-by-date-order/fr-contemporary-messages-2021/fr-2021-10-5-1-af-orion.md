@@ -1,7 +1,7 @@
 ---
 title: "Orion se décrit et décrit sa planète – Jésus affirme qu’Orion est là pour nous aider sur Terre"
 menu_title: ""
-description: "Orion se décrit et décrit sa planète – Jésus affirme qu’Orion est là pour nous aider sur Terre"
+description: "Orion, reçu par Al Fike : « Comme je l’ai indiqué, nous habitons une planète différente de la vôtre et pourtant nous vous ressemblons beaucoup, dans la … »"
 date: 2022-06-01 06:00:01+00:1670
 draft: False
 hidden: True

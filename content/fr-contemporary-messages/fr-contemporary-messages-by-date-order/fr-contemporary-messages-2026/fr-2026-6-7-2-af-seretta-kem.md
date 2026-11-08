@@ -1,7 +1,7 @@
 ---
 title: "La Loi de la Connexion et de la Communication et la Préparation aux Temps à Venir"
 menu_title: ""
-description: "La Loi de la Connexion et de la Communication et la Préparation aux Temps à Venir"
+description: "Seretta Kem, reçu par Albert Fike : « Elle aussi a besoin de ceux qui agissent en harmonie, car cela contribue à la soutenir et à favoriser son … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

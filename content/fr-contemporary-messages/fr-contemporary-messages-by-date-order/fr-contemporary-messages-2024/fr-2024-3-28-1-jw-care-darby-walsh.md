@@ -1,7 +1,7 @@
 ---
 title: "Survivre à la mort avec les perceptions de l’éternité"
 menu_title: ""
-description: "Survivre à la mort avec les perceptions de l’éternité"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Nous sommes éternellement reconnaissants pour tous les cadeaux que nous avons offerts et ceux que nous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

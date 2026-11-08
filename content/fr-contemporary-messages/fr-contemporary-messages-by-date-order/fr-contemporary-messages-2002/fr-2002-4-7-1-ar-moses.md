@@ -1,7 +1,7 @@
 ---
 title: "Le peuple élu"
 menu_title: ""
-description: "Le peuple élu"
+description: "Moïse, reçu par Amada Reza : « Tu comprends qu’à l’époque où je vivais sur terre, le développement de l’âme collective de l’humanité n’était pas très … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

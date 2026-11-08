@@ -1,7 +1,7 @@
 ---
 title: "Affirme que Jésus a écrit la Prière qui est la seule Prière nécessaire pour amener les âmes des âmes à l’Amour Divin"
 menu_title: ""
-description: "Affirme que Jésus a écrit la Prière qui est la seule Prière nécessaire pour amener les âmes des âmes à l’Amour Divin"
+description: "Robert Ingersoll, reçu par James Padgett : « Il était glorieux, et il n’est pas étonnant que vous avez senti l’influence de sa présence et amour, et moi … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tant de choses dépendent de vos efforts"
 menu_title: ""
-description: "Tant de choses dépendent de vos efforts"
+description: "Seretta Kem, reçu par Albert Fike : « Je vous encourage tous à faire des efforts pour purifier et renforcer vos corps. Car, à mesure que ces transitions … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

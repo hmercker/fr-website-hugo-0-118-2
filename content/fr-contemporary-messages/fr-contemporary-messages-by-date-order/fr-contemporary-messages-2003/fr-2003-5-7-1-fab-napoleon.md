@@ -1,7 +1,7 @@
 ---
 title: "Napoléon et la littérature française"
 menu_title: ""
-description: "Napoléon et la littérature française"
+description: "Napoléon, reçu par FAB : « Laissez-moi vous dire pourquoi vous aimez tant la culture française. C’est parce que vous prenez la vie d’une certaine façon … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le temple de l'adoration"
 menu_title: ""
-description: "Le temple de l'adoration"
+description: "Robert James Lee, reçu par Jimbeau Walsh : « Je souhaite clarifier quelque chose pour vous tous à propos de ce que vous venez de lire Le point de vue de … »"
 date: 2023-09-01 06:00:01+00:33
 draft: False
 hidden: True

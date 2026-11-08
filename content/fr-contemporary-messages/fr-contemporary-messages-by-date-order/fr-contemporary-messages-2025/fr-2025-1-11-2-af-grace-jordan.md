@@ -1,7 +1,7 @@
 ---
 title: "Préparez-vous pour ce temps ensemble"
 menu_title: ""
-description: "Préparez-vous pour ce temps ensemble"
+description: "Grace Jordan, reçu par Albert Fike : « Que l’Amour de Dieu soit sur vous. Nous avons beaucoup de travail à faire, mes amis, beaucoup de travail en effet. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

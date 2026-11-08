@@ -1,7 +1,7 @@
 ---
 title: "A G Riddle est émerveillé après avoir vu Jésus montrer une telle luminosité et puissance"
 menu_title: ""
-description: "A G Riddle est émerveillé après avoir vu Jésus montrer une telle luminosité et puissance"
+description: "Albert Riddle, reçu par James Padgett : « Quand il t’a écrit, avec empathie et autorité, il s’est transformé en un tel être de lumière, de gloire et de … »"
 date: 2022-06-01 06:00:01+00:275
 draft: False
 hidden: True

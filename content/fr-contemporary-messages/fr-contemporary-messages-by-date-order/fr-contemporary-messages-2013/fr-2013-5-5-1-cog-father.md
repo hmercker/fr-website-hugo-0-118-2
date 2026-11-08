@@ -1,7 +1,7 @@
 ---
 title: "Je touche ton âme avec un baiser silencieux"
 menu_title: ""
-description: "Je touche ton âme avec un baiser silencieux"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Sens mon amour embrasser ton beau cœur. Je touche ton âme avec un baiser silencieux. »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

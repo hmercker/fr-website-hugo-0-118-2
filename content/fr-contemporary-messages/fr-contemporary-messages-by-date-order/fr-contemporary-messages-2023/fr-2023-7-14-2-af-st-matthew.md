@@ -1,7 +1,7 @@
 ---
 title: "Nous prions avec vous depuis les Cieux"
 menu_title: ""
-description: "Nous prions avec vous depuis les Cieux"
+description: "St Matthieu, reçu par Albert Fike : « Car nous n’avons jamais cessé de prier pour ce Don, nous qui sommes dans les Cieux Célestes, et nous nous joignons … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

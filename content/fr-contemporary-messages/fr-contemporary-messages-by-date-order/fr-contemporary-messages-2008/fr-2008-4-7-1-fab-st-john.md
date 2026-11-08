@@ -1,7 +1,7 @@
 ---
 title: "Jean et la Culture Grecque"
 menu_title: ""
-description: "Jean et la Culture Grecque"
+description: "St Jean, reçu par FAB : « J'ai dit dans ma canalisation du 17 Janvier 2007 que je ne connaissais pas la pensée et la culture Grecques. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

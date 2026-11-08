@@ -1,7 +1,7 @@
 ---
 title: "Permettre à la lumière de descendre"
 menu_title: ""
-description: "Permettre à la lumière de descendre"
+description: "Joseph, reçu par Kathryn Stokes : « Et, comme tu le sais, nous pouvons transmettre nos pensées et nos suggestions, même sans qu’une question ait été exprimée. »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

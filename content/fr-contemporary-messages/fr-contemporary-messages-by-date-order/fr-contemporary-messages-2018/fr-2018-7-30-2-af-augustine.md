@@ -1,7 +1,7 @@
 ---
 title: "L’âme en éveil"
 menu_title: ""
-description: "L’âme en éveil"
+description: "Augustin, reçu par Al Fike : « Je souhaite vous parler de l’âme en éveil. En recevant le grand don de l’Amour Divin dans vos âmes, l’état de votre âme se … »"
 date: 2026-10-28 06:00:01+00:435
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tout ce qui est donné par amour est béni"
 menu_title: ""
-description: "Tout ce qui est donné par amour est béni"
+description: "Alexander Pope, reçu par Jimbeau Walsh : « Frère Judas m'a encouragé à m'avancer pour parler ce soir d'un sujet qui me tient à cœur. Sur terre, j'ai … »"
 date: 2026-06-24 16:00:01+00:01
 draft: False
 hidden: True

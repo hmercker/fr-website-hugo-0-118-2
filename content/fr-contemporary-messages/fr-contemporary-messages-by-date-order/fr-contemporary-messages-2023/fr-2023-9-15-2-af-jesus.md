@@ -1,7 +1,7 @@
 ---
 title: "Reconnaît Kevin comme un véritable enfant de Dieu"
 menu_title: ""
-description: " 	Reconnaît Kevin comme un véritable enfant de Dieu"
+description: "Jésus, reçu par Albert Fike : « Car il est un véritable enfant de Dieu. Son âme a trouvé son chemin vers la lumière, libérant la chair et arrivant dans le … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

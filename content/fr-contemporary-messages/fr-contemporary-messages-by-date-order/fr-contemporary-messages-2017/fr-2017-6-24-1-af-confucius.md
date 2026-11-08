@@ -1,7 +1,7 @@
 ---
 title: "Les conseils du vieux sage"
 menu_title: ""
-description: "Les conseils du vieux sage"
+description: "Confucius, reçu par Al Fike : « Lorsque vous continuez à prier et à être en alignement avec Dieu, vous permettez à nos ministères d’être plus efficaces et … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

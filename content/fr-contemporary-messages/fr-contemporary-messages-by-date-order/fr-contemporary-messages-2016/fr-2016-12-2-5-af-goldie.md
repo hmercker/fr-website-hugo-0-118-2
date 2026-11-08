@@ -1,7 +1,7 @@
 ---
 title: "Un cadeau de Joie"
 menu_title: ""
-description: "Un cadeau de Joie"
+description: "Goldie, reçu par Al Fike : « Je vous ai tous aspergés de joie ; veuillez accepter mon cadeau et découvrir la joie qui découle de l’Amour. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Se présente et présente son objectif au groupe"
 menu_title: ""
-description: "Se présente et présente son objectif au groupe"
+description: "Orion, reçu par Al Fike : « Que Dieu soit avec vous, mes amis. Je vous remercie de m’avoir invité dans votre cercle. »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Libérer le jugement et embrasser l'Amour"
 menu_title: ""
-description: "Libérer le jugement et embrasser l'Amour"
+description: "St Matthieu, reçu par Al Fike : « Chaque jour, Dieu vous encourage à faire un pas de plus sur l’échelle de la Lumière, à être plus pur dans vos pensées … »"
 date: 2022-06-01 06:00:01+00:419
 draft: False
 hidden: True

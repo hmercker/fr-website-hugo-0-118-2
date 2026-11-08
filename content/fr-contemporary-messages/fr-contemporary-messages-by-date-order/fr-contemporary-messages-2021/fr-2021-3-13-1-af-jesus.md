@@ -1,7 +1,7 @@
 ---
 title: "Sentez la sûreté de vos pas"
 menu_title: ""
-description: "Sentez la sûreté de vos pas"
+description: "Jésus, reçu par Al Fike : « Rappelez-vous que vous servez votre Père Céleste, que Dieu a placé devant vous une bénédiction et une demande pour apporter … »"
 date: 2022-06-01 06:00:01+00:1440
 draft: False
 hidden: True

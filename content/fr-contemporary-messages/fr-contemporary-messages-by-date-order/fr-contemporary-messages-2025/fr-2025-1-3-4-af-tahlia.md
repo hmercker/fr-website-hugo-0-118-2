@@ -1,7 +1,7 @@
 ---
 title: "Demandez-moi des énergies de guérison"
 menu_title: ""
-description: "Demandez-moi des énergies de guérison"
+description: "Tahlia, reçu par Albert Fike : « J’ai de grandes capacités pour canaliser les bénédictions de la Terre Mère et les bénédictions de notre Créateur bien-aimé. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

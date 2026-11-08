@@ -1,7 +1,7 @@
 ---
 title: "Edwin Forrest a progressé hors des ténèbres et est remerciant de connaître le chemin pour obtenir l’Amour du Père"
 menu_title: ""
-description: "Edwin Forrest a progressé hors des ténèbres et est remerciant de connaître le chemin pour obtenir l’Amour du Père"
+description: "Edwin Forrest, reçu par James Padgett : « Tout cela est si merveilleux pour moi que je réalise à peine ce que cela signifie, et quand je pense à … »"
 date: 2022-06-01 06:00:01+00:258
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Il y a beaucoup de choses que vous ignorez sur vous-mêmes"
 menu_title: ""
-description: "Il y a beaucoup de choses que vous ignorez sur vous-mêmes"
+description: "Jésus, reçu par Albert Fike : « Chaque présence apporte une bénédiction, une transformation, un changement dans vos cœurs et vos âmes, et pour certains … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

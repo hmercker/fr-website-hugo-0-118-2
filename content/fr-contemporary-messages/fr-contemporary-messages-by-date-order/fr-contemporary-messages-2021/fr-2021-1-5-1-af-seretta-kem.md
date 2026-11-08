@@ -1,7 +1,7 @@
 ---
 title: "Construire plus de portails dans le monde"
 menu_title: ""
-description: "Construire plus de portails dans le monde"
+description: "Seretta Kem, reçu par Al Fike : « De nombreux autres Portails de Lumière s'ouvrent dans le monde grâce à vos efforts et à vos prières. »"
 date: 2022-06-01 06:00:01+00:1367
 draft: False
 hidden: True

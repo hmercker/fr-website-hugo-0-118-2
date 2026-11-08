@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu imprègne l'Univers"
 menu_title: ""
-description: "L'Amour de Dieu imprègne l'Univers"
+description: "Orion, reçu par reçu par Al Fike : « Beaucoup d’entre vous me connaissent. Je ne suis pas de ce monde. »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

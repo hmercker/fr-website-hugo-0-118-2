@@ -1,7 +1,7 @@
 ---
 title: "C’est à vous de connaître la volonté de Dieu"
 menu_title: ""
-description: "C’est à vous de connaître la volonté de Dieu"
+description: "St Matthieu, reçu par Al Fike : « C’est à vous de connaître la volonté de Dieu et vous comprenez les voies et moyens qui vous permettent de connaître la … »"
 date: 2022-06-01 06:00:01+00:1350
 draft: False
 hidden: True

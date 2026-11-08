@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour le comité de planification de Laurelville"
 menu_title: ""
-description: "Conseils pour le comité de planification de Laurelville"
+description: "Professeur Salyards, reçu par Albert Fike : « Le temps presse, n’est-ce pas ? Comme vous le savez bien, les semaines passent vite et bientôt vous serez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

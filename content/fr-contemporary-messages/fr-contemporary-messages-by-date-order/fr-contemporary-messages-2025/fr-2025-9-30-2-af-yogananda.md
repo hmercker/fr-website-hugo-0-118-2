@@ -1,7 +1,7 @@
 ---
 title: "Lever le voile entre nos deux mondes"
 menu_title: ""
-description: "Lever le voile entre nos deux mondes"
+description: "Yogananda, reçu par Albert Fike : « Lorsque vous priez ainsi, vous levez souvent le voile entre notre monde et le vôtre, établissant ainsi une connexion … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

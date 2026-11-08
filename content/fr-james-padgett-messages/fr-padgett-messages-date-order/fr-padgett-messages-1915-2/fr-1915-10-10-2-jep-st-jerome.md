@@ -1,7 +1,7 @@
 ---
 title: "St Jérome : Lorsqu’il était sur terre il ne connaissait pas le développement de l’âme par l’Amour Divin"
 menu_title: ""
-description: "St Jérome : Lorsqu’il était sur terre il ne connaissait pas le développement de l’âme par l’Amour Divin"
+description: "St Jérôme, reçu par James Padgett : « Maintenant, je veux simplement dire que vous êtes très en faveur des esprits qui habitent dans les Sphères Célestes … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

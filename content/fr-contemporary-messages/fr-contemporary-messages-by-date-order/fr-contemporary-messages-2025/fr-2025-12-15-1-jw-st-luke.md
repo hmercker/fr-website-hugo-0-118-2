@@ -1,7 +1,7 @@
 ---
 title: "Libérez-vous de ce qui vous retient aujourd'hui !"
 menu_title: ""
-description: "Libérez-vous de ce qui vous retient aujourd'hui !"
+description: "Luc, reçu par Jimbeau Walsh : « Frères et sœurs en Christ, que l’amour de Dieu nous accompagne. En cette période de Noël, les vibrations pesantes sur la … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

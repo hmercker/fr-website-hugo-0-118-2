@@ -1,7 +1,7 @@
 ---
 title: "Négativité héritée et péché originel"
 menu_title: ""
-description: "Négativité héritée et péché originel"
+description: "Jésus, reçu par FAB : « Permettez-moi de transmettre un message sur un sujet qui vous a laissé perplexe, à savoir la comparaison entre la négativité … »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

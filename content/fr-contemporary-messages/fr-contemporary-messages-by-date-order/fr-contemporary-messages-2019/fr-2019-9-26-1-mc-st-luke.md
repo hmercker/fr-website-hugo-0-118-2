@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu et l'éveil de l'âme"
 menu_title: ""
-description: "L'Amour de Dieu et l'éveil de l'âme"
+description: "St Luc, reçu par Maureen Cardoso : « Nous nous tenons avec vous, invitant cette grande Essence du Créateur bien-aimé dans nos âmes. »"
 date: 2022-06-01 06:00:01+00:865
 draft: False
 hidden: True

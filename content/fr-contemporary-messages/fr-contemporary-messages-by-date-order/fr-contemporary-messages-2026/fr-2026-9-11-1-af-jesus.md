@@ -1,7 +1,7 @@
 ---
 title: "Jésus inaugure la retraite de Harrow"
 menu_title: ""
-description: "Jésus inaugure la retraite de Harrow"
+description: "Jésus, reçu par Albert Fike : « Que l’Amour du Père trouve sa demeure en vos âmes. Je connais chacun d’entre vous. »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

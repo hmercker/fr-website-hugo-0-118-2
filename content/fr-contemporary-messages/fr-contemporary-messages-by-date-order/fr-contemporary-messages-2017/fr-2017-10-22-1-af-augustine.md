@@ -1,7 +1,7 @@
 ---
 title: "Laissez tomber les peurs et les jugements"
 menu_title: ""
-description: "Laissez tomber les peurs et les jugements"
+description: "Augustin, reçu par Al Fike : « Vos discussions portaient sur le lâcher prise de ces conditions, schémas de pensée, peurs et jugements - en fait, tout ce … »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

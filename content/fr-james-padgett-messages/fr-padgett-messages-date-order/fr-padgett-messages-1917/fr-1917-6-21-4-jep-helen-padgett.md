@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente l’expérience du Juif errant"
 menu_title: ""
-description: "Hélène commente l’expérience du Juif errant"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu, ce soir, quelques messages très surprenants (il est fait référnce aux divers … »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

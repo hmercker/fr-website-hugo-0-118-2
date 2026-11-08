@@ -1,7 +1,7 @@
 ---
 title: "11ème Sermon – L’amour Divin du Père préfiguré par les expériences de Joseph"
 menu_title: ""
-description: "11ème Sermon – L’amour Divin du Père préfiguré par les expériences de Joseph"
+description: "Jésus, reçu par Dr Samuels : « C’est le prélude et la condition préalable pour l’attribution, à l’humanité, de la potentialité de la réception de l’Amour … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

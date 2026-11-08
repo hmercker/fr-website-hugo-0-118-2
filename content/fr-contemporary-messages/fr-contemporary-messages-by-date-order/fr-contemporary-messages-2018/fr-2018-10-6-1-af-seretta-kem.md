@@ -1,7 +1,7 @@
 ---
 title: "La naissance de l'âme_2"
 menu_title: ""
-description: "La naissance de l'âme_2"
+description: "Seretta Kem, reçu par Al Fike : « Pensez-vous à la voix directe, mes amis ? C’est ainsi que nous souhaitons que vous restiez dans vos pensées, que vous … »"
 date: 2022-06-01 06:00:01+00:501
 draft: False
 hidden: True

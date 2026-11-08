@@ -1,7 +1,7 @@
 ---
 title: "Réflexions d'un homme d'État américain du XIXe siècle"
 menu_title: ""
-description: "Réflexions d'un homme d'État américain du XIXe siècle"
+description: "Charles Sumner, reçu par FAB : « La vie dans le monde des esprits n'a pas entamé mes passions. Je savais que j'avais raison, lorsque j'étais mortel, de … »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'importance de la cohérence, du dévouement et de la foi"
 menu_title: ""
-description: "L'importance de la cohérence, du dévouement et de la foi"
+description: "Michael Collier, reçu par Albert Fike : « Merci chère fille, pour tes prières. Elles ont une qualité d’innocence et de foi que, pour beaucoup d’entre vous … »"
 date: 2023-09-01 06:00:01+00:47
 draft: False
 hidden: True

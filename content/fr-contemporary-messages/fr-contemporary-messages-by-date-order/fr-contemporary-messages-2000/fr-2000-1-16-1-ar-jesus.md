@@ -1,7 +1,7 @@
 ---
 title: "Sur le suicide"
 menu_title: ""
-description: "Sur le suicide"
+description: "Jésus, reçu par Amada Réza : « Ce dont je souhaite parler ce matin, c’est du suicide et expliquer pourquoi c’est un péché contre la Loi de l’Amour, la … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Parler vrai sans regrets"
 menu_title: ""
-description: "Parler vrai sans regrets"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je souhaite parler un peu de regret au milieu de cette joyeuse occasion. Pendant mon séjour sur terre, alors … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

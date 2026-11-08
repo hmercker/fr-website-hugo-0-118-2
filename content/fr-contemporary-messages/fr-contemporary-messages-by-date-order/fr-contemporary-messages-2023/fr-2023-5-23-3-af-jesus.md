@@ -1,7 +1,7 @@
 ---
 title: "Le destin de nos âmes"
 menu_title: ""
-description: "Le destin de nos âmes"
+description: "Jésus, reçu par Al Fike : « Car c’est la voie et la lumière. C’est la clé qui ouvre la porte du Royaume Céleste. »"
 date: 2023-09-01 06:00:01+00:29
 draft: False
 hidden: True

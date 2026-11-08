@@ -1,7 +1,7 @@
 ---
 title: "Je vous bénis comme mes disciples"
 menu_title: ""
-description: "Je vous bénis comme mes disciples"
+description: "Jésus, reçu par Al Fike : « En tant que tel, je vous bénis en tant que mes disciples qui apportent cette Vérité plus pleinement dans la réalisation et la … »"
 date: 2022-06-01 06:00:01+00:1013
 draft: False
 hidden: True

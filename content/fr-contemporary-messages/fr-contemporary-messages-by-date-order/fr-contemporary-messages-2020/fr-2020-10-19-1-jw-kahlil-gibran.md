@@ -1,7 +1,7 @@
 ---
 title: "Continuer à avancer"
 menu_title: ""
-description: "Continuer à avancer"
+description: "Kahlil Gibran, reçu par Jimbeau Walsh : « C'ets mpi, votre frère dans le royaume de Dieu où son amour règne en maître. Lorsque j’ai écrit sur la terre … »"
 date: 2022-06-01 06:00:01+00:1290
 draft: False
 hidden: True

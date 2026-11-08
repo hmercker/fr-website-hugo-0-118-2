@@ -1,7 +1,7 @@
 ---
 title: "Samuel exprime son amour pour Monsieur Padgett et le travail qu’il fait à l’égard du royaume"
 menu_title: ""
-description: "Samuel exprime son amour pour Monsieur Padgett et le travail qu’il fait à l’égard du royaume"
+description: "Samuel, reçu par James Padgett : « Eh bien, ce soir, je n’écrirai pas une de mes lettres officielles, mais je dirai seulement que vous êtes dans une bien … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

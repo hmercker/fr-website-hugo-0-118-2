@@ -1,7 +1,7 @@
 ---
 title: "Aide aux pays en difficulté"
 menu_title: ""
-description: "Aide aux pays en difficulté"
+description: "Le père du médium, reçu par FAB : « Permets-moi de répondre à tes préoccupations concernant les troubles politiques et économiques qui touchent de vastes … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'esprit s'engage à marcher avec nous"
 menu_title: ""
-description: "L'esprit s'engage à marcher avec nous"
+description: "Fleur de Lotus, reçu par Al Fike : « Je continue à exercer mon ministère sur vos corps, votre corps spirituel et votre corps physique, et à vous … »"
 date: 2022-06-01 06:00:01+00:540
 draft: False
 hidden: True

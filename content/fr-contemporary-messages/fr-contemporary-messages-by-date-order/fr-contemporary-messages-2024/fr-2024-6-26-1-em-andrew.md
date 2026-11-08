@@ -1,7 +1,7 @@
 ---
 title: "Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme"
 menu_title: ""
-description: "Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme"
+description: "André, reçu par Elizabeth Mack : « Il y a la présence de Dieu dans votre cercle. Il est également bon que vous arriviez à comprendre les lois et la façon … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

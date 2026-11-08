@@ -1,7 +1,7 @@
 ---
 title: "La sagesse ancienne de l'humanité et la paix"
 menu_title: ""
-description: "La sagesse ancienne de l'humanité et la paix"
+description: "Confucius, reçu par FAB : « En approfondissant vos connaissances sur la culture de mon pays, vous ne la trouverez pas si étrange. »"
 date: 2022-06-01 06:00:01+00:175
 draft: False
 hidden: True

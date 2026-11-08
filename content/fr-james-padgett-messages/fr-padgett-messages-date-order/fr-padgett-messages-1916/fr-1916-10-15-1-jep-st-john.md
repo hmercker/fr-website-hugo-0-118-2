@@ -1,7 +1,7 @@
 ---
 title: "Jean, ainsi que de nombreux autres esprits célestes, assiste souvent aux services religieux avec M. Padgett ; il dit : l’inexpérience du prédicateur à décrire pleinement le sujet du spiritualisme était due à une connaissance insuffisante de la continuité de la vie"
 menu_title: ""
-description: "Jean, ainsi que de nombreux autres esprits célestes, assiste souvent aux services religieux avec M. Padgett ; il dit : l’inexpérience du prédicateur à décrire pleinement le sujet du spiritualisme était due à une connaissance insuffisante de la continuité de la vie"
+description: "St Jean, reçu par James Padgett : « Comme il l’a dit lors de la réunion du Jeudi soir, il a enquêté, dans une certaine mesure, sur le sujet du … »"
 date: 2022-06-01 06:00:01+00:298
 draft: False
 hidden: True

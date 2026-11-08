@@ -1,7 +1,7 @@
 ---
 title: "Qu'est-ce que la foi ?"
 menu_title: ""
-description: "Qu'est-ce que la foi ?"
+description: "Faith, reçu par Al Fike : « Je ne vous ai pas parlé depuis un certain temps, mais mon amour pour vous continue de croître. »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

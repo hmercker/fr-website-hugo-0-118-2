@@ -1,7 +1,7 @@
 ---
 title: "Cela fait partie de la Volonté de Dieu"
 menu_title: ""
-description: "Cela fait partie de la Volonté de Dieu"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Je vous demande de vous préparer, mes enfants, pour ce voyage vers cette terre anglaise. Et il est important … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

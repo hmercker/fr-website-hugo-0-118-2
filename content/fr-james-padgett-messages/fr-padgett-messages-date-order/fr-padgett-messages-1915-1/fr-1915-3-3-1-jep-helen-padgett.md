@@ -1,7 +1,7 @@
 ---
 title: "Hélène partage sa grande joie quant à son progrès"
 menu_title: ""
-description: "Hélène partage sa grande joie quant à son progrès"
+description: "Hélène Padgett, reçu par James Padgett : « N’était-ce pas là un merveilleux message du Maître ? Il était tellement rempli d’éléments qui devraient faire … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez au service du monde"
 menu_title: ""
-description: "Soyez au service du monde"
+description: "Jacques, reçu par Albert Fike : « Pour vous encourager alors que vous vous aventurez dans le monde, pour être cette lumière brillante que nous vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

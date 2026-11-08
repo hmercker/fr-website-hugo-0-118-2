@@ -1,7 +1,7 @@
 ---
 title: "L’Amour du Père est la clé qui ouvre toute la liste"
 menu_title: ""
-description: "L’Amour du Père est la clé qui ouvre toute la liste"
+description: "Jésus, reçu par Al Fike : « Mon amour pour vous est grand, mais l’Amour du Père pour vous est immense, plus grand que ce que vous pouvez imaginer. »"
 date: 2022-06-01 06:00:01+00:951
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marchez dans la lumière et la grâce de l'Amour de Dieu"
 menu_title: ""
-description: "Marchez dans la lumière et la grâce de l'Amour de Dieu"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « En ouvrant vos âmes à la chaleur de l'Amour de Dieu, vous nous attirez et nous nous joignons à vous dans vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

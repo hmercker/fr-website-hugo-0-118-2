@@ -1,7 +1,7 @@
 ---
 title: "Dites-moi ce qui peut être"
 menu_title: ""
-description: "Dites-moi ce qui peut être"
+description: "Inconnu, reçu par Jospeh B. : « Ne me dis pas ce qui ne peut être, mais dis-moi ce qui peut être. »"
 date: 2022-06-01 06:00:01+00:245
 draft: False
 hidden: True

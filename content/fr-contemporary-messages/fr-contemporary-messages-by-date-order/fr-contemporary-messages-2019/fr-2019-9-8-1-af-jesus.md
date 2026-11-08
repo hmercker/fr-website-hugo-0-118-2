@@ -1,7 +1,7 @@
 ---
 title: "Cherchez la vérité"
 menu_title: ""
-description: "Cherchez la vérité"
+description: "Jésus, reçu par Al Fike : « N'est-il pas devenu évident pour vous que les forces du ciel sont concentrées sur vous et sur tous ceux qui souhaitent porter … »"
 date: 2022-06-01 06:00:01+00:841
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "74ème Sermon – Zacharie, le rêveur"
 menu_title: ""
-description: "74ème Sermon – Zacharie, le rêveur"
+description: "Jésus, reçu par Dr Samuels : « Le nom de Zacharie est généralement associé à celui d’Aggée, car deux mois après le deuxième ait plaidé pour la … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

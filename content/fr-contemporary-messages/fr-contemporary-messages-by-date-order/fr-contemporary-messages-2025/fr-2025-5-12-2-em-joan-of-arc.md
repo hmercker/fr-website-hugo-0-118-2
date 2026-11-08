@@ -1,7 +1,7 @@
 ---
 title: "Un Don de Force"
 menu_title: ""
-description: "Un Don de Force"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Je bénis ce cercle de mon amour. La force que vous ressentez provient de l’amour qui règne au sein de ce groupe. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

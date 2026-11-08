@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue à la retraite de Harrow"
 menu_title: ""
-description: "Bienvenue à la retraite de Harrow"
+description: "Michael Collier, reçu par Albert Fike : « Vous êtes bien là où j'ai vécu lorsque j'étais sur Terre. Nous sommes très occupés à préparer ce lieu et les … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

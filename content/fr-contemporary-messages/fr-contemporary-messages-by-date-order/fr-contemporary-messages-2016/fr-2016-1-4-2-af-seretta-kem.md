@@ -1,7 +1,7 @@
 ---
 title: "Être un réconfort dans ce monde"
 menu_title: ""
-description: "Être un réconfort dans ce monde"
+description: "Seretta Kem, reçu par Al Fike : « Est-ce vos esprits ou vos âmes ? Il ne fait aucun doute que votre réponse sera les deux, et la motivation d’apporter la … »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

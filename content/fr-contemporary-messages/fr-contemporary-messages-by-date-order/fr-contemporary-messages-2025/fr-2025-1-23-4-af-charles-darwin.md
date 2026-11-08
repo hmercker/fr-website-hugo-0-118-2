@@ -1,7 +1,7 @@
 ---
 title: "Confirme le message de Michael Collier"
 menu_title: ""
-description: "Confirme le message de Michael Collier"
+description: "Charles Darwin, reçu par Albert Fike : « Je confirme simplement ce que notre ami a dit. J’ai beaucoup appris pendant mon séjour dans le monde spirituel et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

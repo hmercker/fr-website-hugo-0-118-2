@@ -1,7 +1,7 @@
 ---
 title: "Sanction et conséquence"
 menu_title: ""
-description: "Sanction et conséquence"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Cher enfant, il y a deux sujets qui te préoccupent. L’un concerne la différence entre la sanction et la … »"
 date: 2022-06-01 06:00:01+00:237
 draft: False
 hidden: True

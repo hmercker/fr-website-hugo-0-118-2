@@ -1,7 +1,7 @@
 ---
 title: "Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie"
 menu_title: ""
-description: "Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie"
+description: "Aron, reçu par Al Fike : « Ces deux aspects de la condition humaine semblent se réunir, permettant à une grande partie des conditions de votre monde qui … »"
 date: 2022-06-01 06:00:01+00:1570
 draft: False
 hidden: True

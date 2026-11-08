@@ -1,7 +1,7 @@
 ---
 title: "Amour parfait = résultats parfaits"
 menu_title: ""
-description: "Amour parfait = résultats parfaits"
+description: "St Jean, reçu par Amada Reza : « Au cœur de tout cela, bien sûr, se trouve la question de ce que vous pouvez faire pour apporter plus efficacement la … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

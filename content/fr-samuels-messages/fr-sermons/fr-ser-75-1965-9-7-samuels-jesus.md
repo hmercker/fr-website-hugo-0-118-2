@@ -1,7 +1,7 @@
 ---
 title: "75ème Sermon – Zacharie reçoit un commandement de Dieu Lui-même"
 menu_title: ""
-description: "75ème Sermon – Zacharie reçoit un commandement de Dieu Lui-même"
+description: "Jésus, reçu par Dr Samuels : « Au Chapitre 6 : 9-15, Zacharie a reçu un commandement de Dieu lui-même (et non des anges). »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Écrit sur le grand amour de Jésus pour lui et son œuvre de la plus haute importance"
 menu_title: ""
-description: "Écrit sur le grand amour de Jésus pour lui et son œuvre de la plus haute importance"
+description: "Anne Rollins, reçu par James Padgett : « Mon fils, quel amour merveilleux le Maître a répandu sur toi lorsqu’il t’a écrit, et pendant un certain temps … »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

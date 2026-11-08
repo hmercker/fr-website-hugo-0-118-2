@@ -1,7 +1,7 @@
 ---
 title: "John D. Rockefeller se décrit lui-même"
 menu_title: ""
-description: "John D. Rockefeller se décrit lui-même"
+description: "John D Rockefeller, reçu par FAB : « Je me voyais comme un homme d’affaires qui construisait une entreprise. Tout ce que je faisais devait profiter à … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

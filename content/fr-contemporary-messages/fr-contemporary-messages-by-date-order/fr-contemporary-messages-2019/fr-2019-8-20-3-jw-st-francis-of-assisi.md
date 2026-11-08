@@ -1,7 +1,7 @@
 ---
 title: "Soyez dans le jardin de l'Amour"
 menu_title: ""
-description: "Soyez dans le jardin de l'Amour"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Hummm, chaque petit oiseau qui chante, puisse-t-il donner des ailes à votre cœur. Soyez dans le jardin de … »"
 date: 2022-06-01 06:00:01+00:816
 draft: False
 hidden: True

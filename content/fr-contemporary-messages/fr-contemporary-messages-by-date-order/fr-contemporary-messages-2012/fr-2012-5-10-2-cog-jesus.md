@@ -1,7 +1,7 @@
 ---
 title: "Vrais et faux enseignants"
 menu_title: ""
-description: "Vrais et faux enseignants"
+description: "Jésus, reçu par Enfant de Dieu : « Aujourd’hui, nous allons parler des faux et des vrais enseignants. Tu te demandes s’il y a de vrais enseignants depuis … »"
 date: 2022-06-01 06:00:01+00:257
 draft: False
 hidden: True

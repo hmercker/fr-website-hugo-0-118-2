@@ -1,7 +1,7 @@
 ---
 title: "Décrit son voyage des enfers les plus profonds aux Cieux Célestes"
 menu_title: ""
-description: "Décrit son voyage des enfers les plus profonds aux Cieux Célestes"
+description: "Caligula, reçu par Albert Fike : « Cependant, cette personne que j’étais il y a tant de centaines d’années n’existe plus. J’ai lutté et me suis frayé un … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

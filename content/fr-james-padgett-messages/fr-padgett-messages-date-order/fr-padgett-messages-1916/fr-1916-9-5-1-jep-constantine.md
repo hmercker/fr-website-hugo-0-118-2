@@ -1,7 +1,7 @@
 ---
 title: "Constantin nie avoir accepté le Christianisme alors qu’il vivait sur la terre. Est maintenant un Esprit Céleste"
 menu_title: ""
-description: "Constantin nie avoir accepté le Christianisme alors qu’il vivait sur la terre. Est maintenant un Esprit Céleste"
+description: "Constantin, reçu par James Padgett : « Je n’étais pas vraiment Chrétien et je ne comprenais pas les vrais principes de l’enseignement Chrétien, mais j’ai … »"
 date: 2022-06-01 06:00:01+00:268
 draft: False
 hidden: True

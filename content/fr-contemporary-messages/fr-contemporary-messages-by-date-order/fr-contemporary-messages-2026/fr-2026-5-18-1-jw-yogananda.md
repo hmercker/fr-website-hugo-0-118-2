@@ -1,7 +1,7 @@
 ---
 title: "La Joie Ailée"
 menu_title: ""
-description: "La Joie Ailée"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je viens, le cœur empli de joie, me joindre à vous dans ce lieu sacré pour accueillir l’Amour du Créateur. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

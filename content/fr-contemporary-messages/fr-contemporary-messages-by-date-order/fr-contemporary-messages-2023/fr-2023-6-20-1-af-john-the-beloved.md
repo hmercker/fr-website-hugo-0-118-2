@@ -1,7 +1,7 @@
 ---
 title: "Le chemin que Dieu a tracé devant nous"
 menu_title: ""
-description: "Le chemin que Dieu a tracé devant nous"
+description: "Jean le Bien Aimé, reçu par Al Fike : « … chemin que vous empruntez, âmes bien-aimées. En chantant et en louant Dieu, vous ouvrez les vannes du Ciel … »"
 date: 2023-09-01 06:00:01+00:41
 draft: False
 hidden: True

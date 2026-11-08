@@ -1,7 +1,7 @@
 ---
 title: "Tous les cœurs brillent"
 menu_title: ""
-description: "Tous les cœurs brillent"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « J’ai attendu dans les coulisses pour parler aujourd’hui et bien sûr, vous savez que c’est juste une … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

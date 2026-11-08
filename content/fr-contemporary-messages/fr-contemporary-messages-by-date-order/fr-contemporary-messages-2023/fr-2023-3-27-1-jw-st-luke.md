@@ -1,7 +1,7 @@
 ---
 title: "Il y a de nombreux chemins pour la guérison"
 menu_title: ""
-description: "Il y a de nombreux chemins pour la guérison"
+description: "St Luc, reçu par Jimbeau Walsh : « Le monde a grand besoin d’être guéri. Tant d’inharmonies, de contre-vérités ont créé beaucoup de peur, de perte de foi … »"
 date: 2023-09-01 06:00:01+00:103
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Apporte un message profond et puissant"
 menu_title: ""
-description: "Apporte un message profond et puissant"
+description: "St Pierre, reçu par Al Fike : « Non pas par obligation, mes amis, car ce n’est pas la bonne voie. Pas par culpabilité, pas par faux désir ou pour rendre … »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

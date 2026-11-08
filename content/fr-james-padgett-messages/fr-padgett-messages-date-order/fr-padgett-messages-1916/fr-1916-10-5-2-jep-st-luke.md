@@ -1,7 +1,7 @@
 ---
 title: "Luc énonce les noms des guides de M. Padgett, M. Morgan et Dr Stone et au-dessus de tout Jésus"
 menu_title: ""
-description: "Luc énonce les noms des guides de M. Padgett, M. Morgan et Dr Stone et au-dessus de tout Jésus"
+description: "St Luc, reçu par James Padgett : « Je ne suis pas venu pour écrire un message ce soir, mais simplement pour corroborer ce que M. »"
 date: 2022-06-01 06:00:01+00:288
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un pas à la fois"
 menu_title: ""
-description: "Un pas à la fois"
+description: "Keea Atta Kem, reçu par Albert Fike : « Cette âme chère que vous avez côtoyée par le passé a besoin de vos prières. Lorsque vous entrez en contact avec … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

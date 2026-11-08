@@ -1,7 +1,7 @@
 ---
 title: "La nécessité d'une bonne base"
 menu_title: ""
-description: "La nécessité d'une bonne base"
+description: "Alexandre : « Je voudrais que vous entendiez ma voix directement, mais je vais parler à travers cet instrument au mieux de mes capacités. »"
 date: 2022-06-01 06:00:01+00:168
 draft: False
 hidden: True

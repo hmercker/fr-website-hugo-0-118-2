@@ -1,7 +1,7 @@
 ---
 title: "Vous avez rejoint un réseau de Lumière"
 menu_title: ""
-description: "Vous avez rejoint un réseau de Lumière"
+description: "André, reçu par Al Fike : « Vous vous êtes réunis et avez prié ensemble et, ce faisant, vous vous êtes joints à un réseau de Lumière qui vous apportera de … »"
 date: 2022-06-01 06:00:01+00:245
 draft: False
 hidden: True

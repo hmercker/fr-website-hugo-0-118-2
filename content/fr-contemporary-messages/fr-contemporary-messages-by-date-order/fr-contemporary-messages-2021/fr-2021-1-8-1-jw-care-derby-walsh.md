@@ -1,7 +1,7 @@
 ---
 title: "Combattez avec Amour"
 menu_title: ""
-description: "Combattez avec Amour"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « C’est peut-être la fête des grands-mères aujourd’hui ? En lisant le beau message d’Anne Rollins, quel esprit … »"
 date: 2022-06-01 06:00:01+00:1370
 draft: False
 hidden: True

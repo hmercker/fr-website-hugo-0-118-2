@@ -1,7 +1,7 @@
 ---
 title: "Continuez à prier, à renforcer, à étendre les portails et le réseau de lumière "
 menu_title: ""
-description: "Continuez à prier, à renforcer, à étendre les portails et le réseau de lumière"
+description: "André, reçu par Albert Fike : « Il est important que vous continuiez à multiplier le Treillis de Lumière dans le monde. Pour cela, nous utilisons vos dons … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

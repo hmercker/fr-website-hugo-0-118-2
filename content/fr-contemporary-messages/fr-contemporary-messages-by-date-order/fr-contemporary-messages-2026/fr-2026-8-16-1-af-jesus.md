@@ -1,7 +1,7 @@
 ---
 title: "Bien-aimés instruments de Dieu : marcher dans l'amour et le service"
 menu_title: ""
-description: "Bien-aimés instruments de Dieu : marcher dans l'amour et le service"
+description: "Jésus, reçu par Albert Fike : « Les moyens d'y parvenir sont nombreux et les occasions de le faire se reflètent dans les dons que vous portez en vous. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

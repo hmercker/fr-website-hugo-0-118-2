@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la prière simultanée crée un treillis de lumière"
 menu_title: ""
-description: "Le pouvoir de la prière simultanée crée un treillis de lumière"
+description: "Augustin, reçu par Al Fike : « Belles âmes, votre enseignant Augustin est ici. Combien il est important pour vous de prier et de vous connecter avec ces … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

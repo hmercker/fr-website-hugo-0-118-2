@@ -1,7 +1,7 @@
 ---
 title: "63ème Sermon – Le Second Isaïe, le prophète de l’exil"
 menu_title: ""
-description: "63ème Sermon – Le Second Isaïe, le prophète de l’exil"
+description: "Jésus, reçu par Dr Samuels : « Une étude des écrits du Second Isaïe nous amène aux Chants du Serviteur, une révolution dans la pensée religieuse qui fut … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

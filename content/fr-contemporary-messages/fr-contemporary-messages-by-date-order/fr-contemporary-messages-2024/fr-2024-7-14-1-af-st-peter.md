@@ -1,7 +1,7 @@
 ---
 title: "La lumière qui vous entoure continue de briller"
 menu_title: ""
-description: "La lumière qui vous entoure continue de briller"
+description: "St Pierre, reçu par Albert Fike : « La lumière s’illumine autour de vous tous, âmes bien-aimées. En effet, là où je réside, il y a une harmonie et une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

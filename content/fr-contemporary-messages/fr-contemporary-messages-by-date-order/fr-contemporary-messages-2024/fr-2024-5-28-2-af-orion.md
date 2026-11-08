@@ -1,7 +1,7 @@
 ---
 title: "L'Univers de Dieu est rempli d'amour"
 menu_title: ""
-description: "L'Univers de Dieu est rempli d'amour"
+description: "Orion, reçu par Albert Fike : « Dieu a créé un univers rempli d’amour et a créé un univers qui aspire à l’harmonie. Il a également créé un univers qui a … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

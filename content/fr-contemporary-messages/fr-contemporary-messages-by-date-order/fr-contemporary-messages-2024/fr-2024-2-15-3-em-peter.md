@@ -1,7 +1,7 @@
 ---
 title: "La connexion de votre âme avec Dieu est la partie la plus importante de votre ministère"
 menu_title: ""
-description: "La connexion de votre âme avec Dieu est la partie la plus importante de votre ministère"
+description: "Pierre le Rocher, reçu par Elizabeth Mack : « C’est l’amour qui nous a été accordé par notre Père Céleste et un amour si grand, si vrai, si impressionnant … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

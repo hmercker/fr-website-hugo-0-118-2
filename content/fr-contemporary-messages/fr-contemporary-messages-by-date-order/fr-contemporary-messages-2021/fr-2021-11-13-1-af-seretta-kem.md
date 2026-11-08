@@ -1,7 +1,7 @@
 ---
 title: "L'éveil de votre âme sera renforcé par l'exercice de votre foi (2021 Groupe des douze)"
 menu_title: ""
-description: "L'éveil de votre âme sera renforcé par l'exercice de votre foi (2021 Groupe des douze)"
+description: "Seretta Kem, reçu par Al Fike : « Vous continuez à recevoir la bénédiction de Dieu et la bénédiction et l’aide de vos amis angéliques et de ce que vous … »"
 date: 2022-06-01 06:00:01+00:1714
 draft: False
 hidden: True

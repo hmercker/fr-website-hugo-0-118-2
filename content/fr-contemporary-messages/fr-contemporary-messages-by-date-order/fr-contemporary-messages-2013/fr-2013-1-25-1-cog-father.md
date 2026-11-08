@@ -1,7 +1,7 @@
 ---
 title: "En toi, je ne vois que de la beauté"
 menu_title: ""
-description: "En toi, je ne vois que de la beauté"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « En toi, je ne vois que la beauté. Je sens que ton fervent désir de Me servir et ton désir d’apporter toutes … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

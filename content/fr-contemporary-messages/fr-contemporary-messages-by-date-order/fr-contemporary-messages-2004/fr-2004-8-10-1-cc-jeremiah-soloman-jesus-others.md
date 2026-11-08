@@ -1,7 +1,7 @@
 ---
 title: "Le Portail"
 menu_title: ""
-description: "Le Portail"
+description: "Jérémie, Salomon, Jésus et autres, reçu par CC : « Cher CC, merci d’avoir répondu à nos coups de pouce. C’est un moment opportun pour exprimer nos … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

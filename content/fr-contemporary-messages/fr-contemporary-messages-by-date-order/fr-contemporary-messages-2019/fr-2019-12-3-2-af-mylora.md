@@ -1,7 +1,7 @@
 ---
 title: "Votre lumière est très attirante dans le monde spirituel"
 menu_title: ""
-description: "Votre lumière est très attirante dans le monde spirituel"
+description: "Mylora, reçu par Al Fike : « Que l'Amour de Dieu continue à remplir votre âme jusqu'à ce qu'elle soit débordante d'amour. »"
 date: 2022-06-01 06:00:01+00:939
 draft: False
 hidden: True

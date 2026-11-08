@@ -1,7 +1,7 @@
 ---
 title: "La situation politique et spirituelle en Estonie va se détériorer"
 menu_title: ""
-description: "La situation politique et spirituelle en Estonie va se détériorer"
+description: "Étienne, reçu par Al Fike : « J’étais connu sous le nom de Saint Étienne. En effet, ces luttes ne feront que s’intensifier, car les bouleversements … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

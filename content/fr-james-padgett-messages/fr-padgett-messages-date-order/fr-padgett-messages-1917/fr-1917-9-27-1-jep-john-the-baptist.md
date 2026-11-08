@@ -1,7 +1,7 @@
 ---
 title: "Jean le Baptiste incite fortement M. Padgett d’être en condition de recevoir les messages Célestes qui plus importants que la réception des messages personnels"
 menu_title: ""
-description: "Jean le Baptiste incite fortement M. Padgett d’être en condition de recevoir les messages Célestes qui plus importants que la réception des messages personnels"
+description: "Jean le Baptiste, reçu par James Padgett : « Je veux simplement dire que votre condition ce soir n’est pas de nature à permettre aux esprits élevés de … »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

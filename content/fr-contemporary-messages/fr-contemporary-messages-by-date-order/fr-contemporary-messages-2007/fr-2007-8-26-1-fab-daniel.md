@@ -1,7 +1,7 @@
 ---
 title: "Expérience de Daniel avec l’Amour Divin"
 menu_title: ""
-description: "Expérience de Daniel avec l’Amour Divin"
+description: "Daniel, reçu par FAB : « Vous suivez les conseils correctement en mettant temporairement de côté votre travail avec Shakespeare, afin de vous concentrer … »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

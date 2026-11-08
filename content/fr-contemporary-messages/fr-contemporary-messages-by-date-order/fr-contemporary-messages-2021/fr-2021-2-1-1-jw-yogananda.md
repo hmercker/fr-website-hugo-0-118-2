@@ -1,7 +1,7 @@
 ---
 title: "Être libre des préoccupations terrestres"
 menu_title: ""
-description: "Être libre des préoccupations terrestres"
+description: "Yogananda, reçu par Jimbeau Walsh : « Chers frères et sœurs qui êtes venus dans ce cercle de lumière pour être dans la paix et la sécurité de l’étreinte … »"
 date: 2022-06-01 06:00:01+00:1402
 draft: False
 hidden: True

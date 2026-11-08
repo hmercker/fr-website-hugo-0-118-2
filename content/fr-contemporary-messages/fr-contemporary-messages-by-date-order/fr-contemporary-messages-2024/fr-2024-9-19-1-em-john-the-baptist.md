@@ -1,7 +1,7 @@
 ---
 title: "Décrit l'impact attendu et les participants qui se joindront à nous à Poughkeepsie"
 menu_title: ""
-description: "Décrit l'impact attendu et les participants qui se joindront à nous à Poughkeepsie"
+description: "Jean le Baptiste, reçu par Elizabeth Mack : « Vous accompagnerez de nombreuses âmes, certaines venant avec les autres participants, d’autres que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

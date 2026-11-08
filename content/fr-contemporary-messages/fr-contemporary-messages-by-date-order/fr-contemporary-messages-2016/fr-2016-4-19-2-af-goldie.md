@@ -1,7 +1,7 @@
 ---
 title: "Avec Dieu dans le jardin"
 menu_title: ""
-description: "Avec Dieu dans le jardin"
+description: "Goldie, reçu par Al Fike : « Pour être avec les oiseaux, les arbres et l’herbe verte, surtout lorsque vous vous sentez bouleversés et contrariés, allez … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

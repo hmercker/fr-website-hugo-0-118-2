@@ -1,7 +1,7 @@
 ---
 title: "Hélène est venue suite à l’appel de son mari"
 menu_title: ""
-description: "Hélène est venue suite à l’appel de son mari"
+description: "Hélène Padgett, reçu par James Padgett : « J’ai entendu ton appel et, bien sûr, j’ai répondu, mais il y avait un pauvre esprit sombre qui voulait écrire. »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Message annuel de transe"
 menu_title: ""
-description: "Message annuel de transe"
+description: "Jésus, reçu par Amada Réza : « Et donc, j’accueille vos questions en ce moment. Jésus : Mes chers enfants, c’est parfois une lutte de se voir comme étant … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Priscilla Stone est très heureuse de les entendre parler de l’Amour Divin du Père"
 menu_title: ""
-description: "Priscilla Stone est très heureuse de les entendre parler de l’Amour Divin du Père"
+description: "Priscilla Stone, reçu par James Padgett : « Je sais que cela vous réjouit d’avoir une communication d’amour de la part de votre être cher et je veux vous … »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

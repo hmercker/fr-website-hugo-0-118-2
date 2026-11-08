@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l'amour pour unir les âmes et guérir le monde"
 menu_title: ""
-description: "Le pouvoir de l'amour pour unir les âmes et guérir le monde"
+description: "Barbara Davies, reçu par Al Fike : « Ma chère amie Lisa, je te connais bien. Nous avons nos conversations pendant le sommeil. »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

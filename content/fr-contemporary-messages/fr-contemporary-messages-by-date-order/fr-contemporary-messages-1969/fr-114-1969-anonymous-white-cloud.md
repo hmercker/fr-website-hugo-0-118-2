@@ -1,7 +1,7 @@
 ---
 title: "Aidez les autres"
 menu_title: ""
-description: "Aidez les autres"
+description: "Nuage Blanc : « Peu importe de quelle station de vie nous venons. Peu importe la classe sociale, la couleur de notre peau ou le pays d'où nous venons. »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

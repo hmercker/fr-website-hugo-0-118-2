@@ -1,7 +1,7 @@
 ---
 title: "Affirmation par Samuel, Jésus a écrit les messages"
 menu_title: ""
-description: "Affirmation par Samuel, Jésus a écrit les messages"
+description: "Samuel, reçu par James Padgett : « J’ai entendu le message du Maître et, comme tous les autres, il est rempli de vérités qui sont essentielles pour le … »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

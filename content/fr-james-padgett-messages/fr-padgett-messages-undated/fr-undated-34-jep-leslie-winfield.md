@@ -1,7 +1,7 @@
 ---
 title: "La mère du Dr Stone a aidé son grand-père à sortir de l’obscurité"
 menu_title: ""
-description: "La mère du Dr Stone a aidé son grand-père à sortir de l’obscurité"
+description: "Leslie Winfield, reçu par James Padgett : « Elle ne me connaissait pas avant que je l’informe de mon identité, elle s’est alors souvenue d’avoir entendu … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

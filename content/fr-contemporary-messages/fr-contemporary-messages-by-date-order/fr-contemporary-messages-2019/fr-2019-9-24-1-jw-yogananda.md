@@ -1,7 +1,7 @@
 ---
 title: "Entrez dans votre âme"
 menu_title: ""
-description: "Entrez dans votre âme"
+description: "Yogananda, reçu par Jimbeau Walsh : « Le mental a une telle domination sur l’humanité, tant de choses à traiter, des pensées, toutes sortes … »"
 date: 2022-06-01 06:00:01+00:863
 draft: False
 hidden: True

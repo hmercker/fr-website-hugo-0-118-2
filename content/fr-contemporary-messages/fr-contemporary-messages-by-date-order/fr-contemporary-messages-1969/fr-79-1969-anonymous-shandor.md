@@ -1,7 +1,7 @@
 ---
 title: "Cherchez l'Amour de Dieu"
 menu_title: ""
-description: "Cherchez l'Amour de Dieu"
+description: "Shandor : « Mais je voulais venir et vous parler, pour vous dire comment nous nous rapprochons de vous pendant cette merveilleuse heure de communication … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

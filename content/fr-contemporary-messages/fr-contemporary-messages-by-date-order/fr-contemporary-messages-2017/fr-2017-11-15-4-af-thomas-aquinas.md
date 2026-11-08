@@ -1,7 +1,7 @@
 ---
 title: "Beaucoup dans ce monde sont endormis"
 menu_title: ""
-description: "Beaucoup dans ce monde sont endormis"
+description: "Thomas d'Aquin, reçu par Al Fike : « Vous avez entendu plusieurs esprits qui souhaitent parler par la voix directe et je vous dis qu'il y en a plusieurs … »"
 date: 2022-06-01 06:00:01+00:205
 draft: False
 hidden: True

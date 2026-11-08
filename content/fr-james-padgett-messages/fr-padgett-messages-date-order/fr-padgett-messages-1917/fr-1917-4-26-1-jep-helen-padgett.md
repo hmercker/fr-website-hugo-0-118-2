@@ -1,7 +1,7 @@
 ---
 title: "Un message d’Hélène Padgett"
 menu_title: ""
-description: "Un message d’Hélène Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Je n’écrirai pas beaucoup ce soir, mais à partir de dimanche soir, je souhaite que tu commences à recevoir les … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

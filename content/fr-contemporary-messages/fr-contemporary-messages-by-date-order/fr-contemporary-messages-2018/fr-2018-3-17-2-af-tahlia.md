@@ -1,7 +1,7 @@
 ---
 title: "Connaître Dieu dans son grand fleuve d'Amour"
 menu_title: ""
-description: "Connaître Dieu dans son grand fleuve d'Amour"
+description: "Tahlia, reçu par Al Fike : « J’ai une connexion particulière avec toi, ma fille et je travaille avec toi. Tu sentiras les énergies qui viennent à travers … »"
 date: 2022-06-01 06:00:01+00:367
 draft: False
 hidden: True

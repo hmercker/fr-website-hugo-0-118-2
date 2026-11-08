@@ -1,7 +1,7 @@
 ---
 title: "Dansez et chantez pour entrer au paradis"
 menu_title: ""
-description: "Dansez et chantez pour entrer au paradis "
+description: "Goldie, reçu par Albert Fike : « … des réveils et des bénédictions, des changements et bien d’autres choses qui vous apporteront de la joie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

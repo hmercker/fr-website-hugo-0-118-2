@@ -1,7 +1,7 @@
 ---
 title: "Gardez les yeux sur le prix"
 menu_title: ""
-description: "Gardez les yeux sur le prix"
+description: "Martin Luther King jr, reçu par Jimbeau Walsh : « Merci de m’avoir fait confiance et de m’avoir permis de venir et d’être dans votre cercle. »"
 date: 2022-06-01 06:00:01+00:1603
 draft: False
 hidden: True

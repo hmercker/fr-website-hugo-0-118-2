@@ -1,7 +1,7 @@
 ---
 title: "Sur la guérison"
 menu_title: ""
-description: "Sur la guérison"
+description: "Jésus, reçu par Kathryn Stokes : « Les lois de Dieu sont vastes et complexes ; elles ne peuvent pas être saisies par l'esprit rationnel, mais seulement … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

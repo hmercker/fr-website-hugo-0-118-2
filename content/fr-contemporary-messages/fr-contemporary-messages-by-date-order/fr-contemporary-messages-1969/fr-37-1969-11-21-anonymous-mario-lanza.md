@@ -1,7 +1,7 @@
 ---
 title: "Sur l'Amour de Dieu"
 menu_title: ""
-description: "Sur l'Amour de Dieu"
+description: "Mario Lanza : « Car si j'ai eu cette opportunité du grand Amour de Dieu pour l'homme et l'esprit, et quand vous m'entendrez maintenant, la richesse, la … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

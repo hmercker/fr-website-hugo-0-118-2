@@ -1,7 +1,7 @@
 ---
 title: "9ème Sermon – Le Nouveau Cœur dans l’Ancien Testament"
 menu_title: ""
-description: "9ème Sermon – Le Nouveau Cœur dans l’Ancien Testament"
+description: "Jésus, reçu par Dr Samuels : « Je tiens à vous dire que c’est le Nouveau Cœur qui a fait de moi, et me fait maintenant, le Messie de Dieu, et qu’il était … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

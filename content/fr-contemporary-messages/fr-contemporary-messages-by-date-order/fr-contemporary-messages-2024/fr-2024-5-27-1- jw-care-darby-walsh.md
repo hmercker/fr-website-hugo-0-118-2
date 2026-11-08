@@ -1,7 +1,7 @@
 ---
 title: "Dites une simple prière"
 menu_title: ""
-description: "Dites une simple prière"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Mes très chers, vivant dans le monde matériel, un monde de pensées, un monde de concepts, d’idéologies et de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

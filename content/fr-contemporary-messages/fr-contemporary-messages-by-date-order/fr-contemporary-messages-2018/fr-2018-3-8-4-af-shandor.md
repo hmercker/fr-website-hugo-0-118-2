@@ -1,7 +1,7 @@
 ---
 title: "Commentaires de Shandor sur la Voix Directe"
 menu_title: ""
-description: "Commentaires de Shandor sur la Voix Directe"
+description: "Shandor, reçu par Al Fike : « Al : Je pense qu’ils ont été très surpris et un peu impressionnés que sans le développement que sa civilisation a traversé … »"
 date: 2022-06-01 06:00:01+00:349
 draft: False
 hidden: True

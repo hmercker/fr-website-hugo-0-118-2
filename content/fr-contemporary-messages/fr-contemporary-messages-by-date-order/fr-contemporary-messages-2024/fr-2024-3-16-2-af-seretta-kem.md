@@ -1,7 +1,7 @@
 ---
 title: "Un message pour les membres des cercles de développement"
 menu_title: ""
-description: "Un message pour les membres des cercles de développement"
+description: "Seretta Kem, reçu par Albert Fike : « Nous poursuivons le développement de chacun d’entre vous en préparation de notre cercle ensemble à venir. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Être avec Dieu"
 menu_title: ""
-description: "Être avec Dieu"
+description: "Joseph, reçu par Al Fike : « Soyez bénies, âmes bien-aimées. N'est-ce pas un témoignage de la puissance de la Volonté de Dieu, que vous vous réunissiez … »"
 date: 2022-06-01 06:00:01+00:238
 draft: False
 hidden: True

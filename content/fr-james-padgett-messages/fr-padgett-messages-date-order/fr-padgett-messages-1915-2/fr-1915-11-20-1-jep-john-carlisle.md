@@ -1,7 +1,7 @@
 ---
 title: "John G. Carlisle écrit sur ses souffrances et ses ténèbres dans lesquelles il se trouve et demande de l’aide"
 menu_title: ""
-description: "John G. Carlisle écrit sur ses souffrances et ses ténèbres dans lesquelles il se trouve et demande de l’aide"
+description: "John G Carlisle, reçu par James Padgett : « Laissez-moi écrire, John G. Je veux juste dire que j’ai tellement besoin d’aide. »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

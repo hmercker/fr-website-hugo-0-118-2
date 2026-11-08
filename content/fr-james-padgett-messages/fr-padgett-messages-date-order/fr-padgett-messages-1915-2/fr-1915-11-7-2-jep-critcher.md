@@ -1,7 +1,7 @@
 ---
 title: "Critcher, un frère avocat, effectue une courte visite et explique sa déception lors de son arrivée dans le monde des esprits"
 menu_title: ""
-description: "Critcher, un frère avocat, effectue une courte visite et explique sa déception lors de son arrivée dans le monde des esprits"
+description: "Critcher, reçu par James Padgett : « Vous devez vous souvenir de moi, car j’avais mon bureau dans le même immeuble que vous lorsque je pratiquais le droit. »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

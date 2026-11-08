@@ -1,7 +1,7 @@
 ---
 title: "Recherchez l'Amour infini de Dieu et ne vous retenez pas"
 menu_title: ""
-description: "Recherchez l'Amour infini de Dieu et ne vous retenez pas"
+description: "Augustin, reçu par Albert Fike : « J'ai vécu il y a plusieurs siècles, et mon chemin vers Dieu fut semé d'embûches. Il fut jalonné d'erreurs et … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

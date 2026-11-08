@@ -1,7 +1,7 @@
 ---
 title: "Un musulman est heureux dans son paradis et n’éprouve plus de haine envers les Chrétiens"
 menu_title: ""
-description: "Un musulman est heureux dans son paradis et n’éprouve plus de haine envers les Chrétiens"
+description: "Selim, reçu par James Padgett : « Je ne déteste plus les Chrétiens, mais j’aime tous les hommes comme je le crois. Je ne veux pas dire que je pense que … »"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True

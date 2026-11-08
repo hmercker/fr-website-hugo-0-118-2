@@ -1,7 +1,7 @@
 ---
 title: "Mary répond à l’appel de son âme-sœur, Leslie"
 menu_title: ""
-description: "Mary répond à l’appel de son âme-sœur, Leslie"
+description: "Mary Kennedy, reçu par James Padgett : « Leslie m’aime, comment puis-je rester à l’écart lorsqu’il m’appelle. J’avais peur que vous n’écriviez plus et … »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

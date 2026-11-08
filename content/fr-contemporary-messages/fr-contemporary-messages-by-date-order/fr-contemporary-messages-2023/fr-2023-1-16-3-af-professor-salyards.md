@@ -1,7 +1,7 @@
 ---
 title: "Reconnaît la culture de la médiumnité"
 menu_title: ""
-description: "Reconnaît la culture de la médiumnité"
+description: "Professeur Salyards, reçu par Al Fike : « Que l’Amour du Père continue de couler dans vos âmes, vous réveillant et éclairant votre voyage vers l’unité … »"
 date: 2023-09-01 06:00:01+00:67
 draft: False
 hidden: True

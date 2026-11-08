@@ -1,7 +1,7 @@
 ---
 title: "L’esprit humain, même de celui possédant la plus grande connaissance, est petit en comparaison de l’esprit qui possède dans son âme le grand Amour du Père"
 menu_title: ""
-description: "L’esprit humain, même de celui possédant la plus grande connaissance, est petit en comparaison de l’esprit qui possède dans son âme le grand Amour du Père"
+description: "Mary Kennedy, reçu par James Padgett : « Eh bien, mon cher, je veux dire Leslie. Cependant, j’en sais plus sur l’âme que le scientifique comme il est … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

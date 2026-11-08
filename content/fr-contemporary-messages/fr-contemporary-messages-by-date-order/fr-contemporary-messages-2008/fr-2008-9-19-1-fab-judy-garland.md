@@ -1,7 +1,7 @@
 ---
 title: "Une grande interprète partage son cœur"
 menu_title: ""
-description: "Une grande interprète partage son cœur"
+description: "Judy Garland, reçu par FAB : « Oh, c’est si bon d’être appréciée ! Certains d’entre nous, esprits comme moi, gardent un lien étroit avec des aspects de … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

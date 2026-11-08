@@ -1,7 +1,7 @@
 ---
 title: "Gardez le message sur l'Amour"
 menu_title: ""
-description: "Gardez le message sur l'Amour"
+description: "Jésus, reçu par Kathryn Stokes : « Je crois que tu sais que nous n'avons pas toutes les réponses à tes questions. Chaque jour apporte de nouveaux défis à … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

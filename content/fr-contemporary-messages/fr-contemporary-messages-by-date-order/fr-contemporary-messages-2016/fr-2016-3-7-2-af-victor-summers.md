@@ -1,7 +1,7 @@
 ---
 title: "Salutations de Victor Summers"
 menu_title: ""
-description: "Salutations de Victor Summers"
+description: "Victor Summers, reçu par Al Fike : « Mon cher KO, je t’aime tellement et tu as été un si bon ami pour moi lorsque nous avons marché ensemble dans ce monde. »"
 date: 2022-06-01 06:00:01+00:168
 draft: False
 hidden: True

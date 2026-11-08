@@ -1,7 +1,7 @@
 ---
 title: "Un vieil ami et copain de M. Padgett, décrit sa condition en entrant dans le monde des esprits et raconte l’aide qu’il y a reçue pour obtenir la lumière"
 menu_title: ""
-description: "Un vieil ami et copain de M. Padgett, décrit sa condition en entrant dans le monde des esprits et raconte l’aide qu’il y a reçue pour obtenir la lumière"
+description: "Frank Davis, reçu par James Padgett : « Tu sais également que je n’étais pas ce qu’on appelait un Chrétien orthodoxe, ayant ingéré mes croyances de mon … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

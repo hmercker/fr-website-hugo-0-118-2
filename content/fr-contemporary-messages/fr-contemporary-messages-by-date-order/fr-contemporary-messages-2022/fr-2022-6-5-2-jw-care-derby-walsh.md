@@ -1,7 +1,7 @@
 ---
 title: "Semences de la foi"
 menu_title: ""
-description: "Semences de la foi"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Lorsque vous assistez à la plantation d’une graine dans votre jardin, elle devient une jeune pousse, une … »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

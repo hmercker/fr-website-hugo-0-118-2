@@ -1,7 +1,7 @@
 ---
 title: "Je suis là pour vous aider"
 menu_title: ""
-description: "Je suis là pour vous aider"
+description: "Martha, reçu par Al Fike : « Ayez foi en vos beaux moi et sachez que de nombreux changements ont eu lieu en vous. Ayez la foi que ces changements vont … »"
 date: 2022-06-01 06:00:01+00:289
 draft: False
 hidden: True

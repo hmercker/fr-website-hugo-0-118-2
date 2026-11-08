@@ -1,7 +1,7 @@
 ---
 title: "Lorsque vous créez pour les autres dans l'Amour de Dieu"
 menu_title: ""
-description: "Lorsque vous créez pour les autres dans l'Amour de Dieu"
+description: "Eileen Caddy, reçu par reçu par Jimbeau Walsh : « Retraite d’Amour Divin en Floride Que l’amour de Dieu emplisse vos âmes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

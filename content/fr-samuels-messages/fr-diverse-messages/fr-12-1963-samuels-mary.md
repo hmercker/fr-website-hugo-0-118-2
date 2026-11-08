@@ -1,7 +1,7 @@
 ---
 title: "La naissance et la jeunesse de Jésus comme révélés par Marie, mère de Jésus"
 menu_title: ""
-description: "La naissance et la jeunesse de Jésus comme révélés par Marie, mère de Jésus"
+description: "Marie, reçu par Dr Samuels : « Un temps considérable s’est écoulé, comme les mortels comptent le temps, depuis que je vous ai écrit, et ce fut très limité. »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

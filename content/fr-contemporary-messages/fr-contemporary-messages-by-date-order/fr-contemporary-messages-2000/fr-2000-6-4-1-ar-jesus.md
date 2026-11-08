@@ -1,7 +1,7 @@
 ---
 title: "La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues"
 menu_title: ""
-description: "La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues"
+description: "Jésus, reçu par Amada Réza : « Je veux parler à M de cet Amour et lui demander de comprendre et d'ouvrir son esprit ouvert à la possibilité qu'il soit … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

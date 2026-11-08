@@ -1,7 +1,7 @@
 ---
 title: "Le don de prophétie"
 menu_title: ""
-description: "Le don de prophétie"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Vous pouvez vous interroger sur les dons des prophètes, anciens et nouveaux, passés et présents. »"
 date: 2022-06-01 06:00:01+00:1099
 draft: False
 hidden: True

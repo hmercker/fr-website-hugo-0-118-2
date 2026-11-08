@@ -1,7 +1,7 @@
 ---
 title: "Confiance"
 menu_title: ""
-description: "Confiance"
+description: "St Jean, reçu par CC : « Tu es dans un espace d’amour et cela t’aidera à recevoir clairement mes pensées. Vois-tu comment nous venons à toi ? »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

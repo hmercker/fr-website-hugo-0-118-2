@@ -1,7 +1,7 @@
 ---
 title: "Nous encourage à agir"
 menu_title: ""
-description: "Nous encourage à agir "
+description: "Alec Gaunt, reçu par Albert Fike : « Je veux vous encourager à être proactifs dans votre vie. Car la vie n’est qu’une série de choix et une série … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

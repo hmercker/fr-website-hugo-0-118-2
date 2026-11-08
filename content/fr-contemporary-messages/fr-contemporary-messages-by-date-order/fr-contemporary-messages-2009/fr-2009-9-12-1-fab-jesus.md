@@ -1,7 +1,7 @@
 ---
 title: "L'évolution de l'économie"
 menu_title: ""
-description: "L'évolution de l'économie"
+description: "Jésus, reçu par FAB : « Vous êtes en train de lire les nombreuses façons dont les pratiques commerciales et économiques sont transformées, et ce processus … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

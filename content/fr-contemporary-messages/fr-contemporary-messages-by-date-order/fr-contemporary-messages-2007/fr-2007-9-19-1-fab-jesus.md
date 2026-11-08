@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle sur l'avortement - 2"
 menu_title: ""
-description: "Jésus parle sur l'avortement - 2"
+description: "Jésus, reçu par FAB : « Comment peut-on considérer comme un terrible péché le fait d'avorter un fœtus dans ces conditions ? »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

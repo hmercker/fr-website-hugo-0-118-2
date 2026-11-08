@@ -1,7 +1,7 @@
 ---
 title: "L'importance des portails de lumière dans le monde"
 menu_title: ""
-description: "L'importance des portails de lumière dans le monde"
+description: "André, reçu par Al Fike : « Il est bon de vous voir ensemble, âmes bien-aimées. Chaque fois que vous vous réunissez dans ce Cercle de Lumière, vous … »"
 date: 2022-06-01 06:00:01+00:887
 draft: False
 hidden: True

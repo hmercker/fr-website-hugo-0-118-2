@@ -1,7 +1,7 @@
 ---
 title: "Demander et recevoir l'Amour de Dieu"
 menu_title: ""
-description: "Demander et recevoir l'Amour de Dieu"
+description: "André, reçu par Al Fike : « Car lorsque vous combinez ces forces en vous et les dirigez vers Dieu, elles pénètrent à travers les conditions terrestres … »"
 date: 2022-06-01 06:00:01+00:1288
 draft: False
 hidden: True

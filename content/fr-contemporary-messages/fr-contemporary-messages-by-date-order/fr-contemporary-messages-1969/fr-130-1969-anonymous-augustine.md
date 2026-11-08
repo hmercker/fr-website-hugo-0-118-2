@@ -1,7 +1,7 @@
 ---
 title: "Désir d'être en harmonie avec Dieu"
 menu_title: ""
-description: "Désir d'être en harmonie avec Dieu"
+description: "Augustin : « La puissance de l'amour, l'Amour de Dieu vous est apporté par notre Maître bien-aimé qui se tient au centre de votre cercle. »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

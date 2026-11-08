@@ -1,7 +1,7 @@
 ---
 title: "Sur l'abondance matérielle"
 menu_title: ""
-description: "Sur l'abondance matérielle"
+description: "Jésus, reçu par FAB : « Laissez-moi vous transmettre un message sur l'abondance matérielle, car je désire que vous ayez plus de clarté. »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

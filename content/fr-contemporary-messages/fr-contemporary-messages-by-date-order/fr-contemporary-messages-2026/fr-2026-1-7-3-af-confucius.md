@@ -1,7 +1,7 @@
 ---
 title: "Soyez consciencieux et faites de grands efforts"
 menu_title: ""
-description: "Soyez consciencieux et faites de grands efforts"
+description: "Confucius, reçu par Albert Fike : « Notre présence et notre aide vous seront d'un grand secours. Petits oiseaux, nous souhaitons que vous vous envoliez … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Décrit ses progrès spirituels"
 menu_title: ""
-description: "Décrit ses progrès spirituels"
+description: "George Stoke, reçu par Albert Fike : « Bénédictions à vous, mes amis. En effet, à mesure que vous continuez à prier et à œuvrer pour la lumière, cette … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

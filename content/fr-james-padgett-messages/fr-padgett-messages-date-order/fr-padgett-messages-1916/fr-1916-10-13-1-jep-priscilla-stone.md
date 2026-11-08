@@ -1,7 +1,7 @@
 ---
 title: "Priscilla Stone exprime à nouveau son grand amour pour son fils et est très heureuse de voir son âme se développer dans l’Amour du Père ainsi que l’amour de son âme sœur Mary"
 menu_title: ""
-description: "Priscilla Stone exprime à nouveau son grand amour pour son fils et est très heureuse de voir son âme se développer dans l’Amour du Père ainsi que l’amour de son âme sœur Mary"
+description: "Priscilla Stone, reçu par James Padgett : « C’est celui de sa mère, parfumé avec l’Amour Divin, que je porte dans mon cœur et mon âme et, comme il va vers … »"
 date: 2022-06-01 06:00:01+00:297
 draft: False
 hidden: True

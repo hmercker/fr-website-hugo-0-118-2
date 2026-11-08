@@ -1,7 +1,7 @@
 ---
 title: "La multiplicité des dons"
 menu_title: ""
-description: "La multiplicité des dons"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Luc est ici, Jean est ici, beaucoup, beaucoup sont ici. Car nous aimons ce que vous considérez comme un petit … »"
 date: 2022-06-01 06:00:01+00:1393
 draft: False
 hidden: True

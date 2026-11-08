@@ -1,7 +1,7 @@
 ---
 title: "Leçon 5 : De nombreux dons spirituels parmi nous s’ouvriront pendant la transition du monde"
 menu_title: ""
-description: "Leçon 5 : De nombreux dons spirituels parmi nous s’ouvriront pendant la transition du monde"
+description: "Jésus, reçu par Al Fike : « Je souhaite parler de la façon dont le plan de Dieu et les magnifiques bénédictions et énergies qu’Il déverse sur la Terre … »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

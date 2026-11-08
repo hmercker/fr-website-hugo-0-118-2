@@ -1,7 +1,7 @@
 ---
 title: "Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit"
 menu_title: ""
-description: "Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit"
+description: "St Luc, reçu par James Padgett : « Mon Évangile n’était pas fondé sur des faits dont j’avais eu une connaissance personnelle, mais sur les écrits des … »"
 date: 2022-06-01 06:00:01+00:232
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin est le rocher de la vérité"
 menu_title: ""
-description: "L’Amour Divin est le rocher de la vérité"
+description: "St Jean, reçu par Al Fike : « Puissiez-vous continuer à résider et à bâtir vos fondations sur le roc de la vérité. Combien il est important de considérer … »"
 date: 2022-06-01 06:00:01+00:1563
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions des portails pour tous ceux qui résident ici"
 menu_title: ""
-description: "Bénédictions des portails pour tous ceux qui résident ici"
+description: "Confucius, reçu par Albert Fike : « Chers précieux enfants de Dieu, que Son Amour trouve refuge dans vos âmes. Une grande abondance de ce don sans fin qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

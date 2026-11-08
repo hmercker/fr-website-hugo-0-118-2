@@ -1,7 +1,7 @@
 ---
 title: "Soyez un canal pour Dieu de toutes les manières possibles"
 menu_title: ""
-description: "Soyez un canal pour Dieu de toutes les manières possibles"
+description: "Jésus, reçu par Albert Fike : « Que les bénédictions de l'Amour du Père soient vôtres, vôtres pour l'éternité. Car Dieu pourvoit largement aux besoins de … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

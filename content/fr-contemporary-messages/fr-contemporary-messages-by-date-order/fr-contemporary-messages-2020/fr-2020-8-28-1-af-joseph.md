@@ -1,7 +1,7 @@
 ---
 title: "Obtenir des conseils"
 menu_title: ""
-description: "Obtenir des conseils"
+description: "Joseph, reçu par Al Fike : « Dieu souhaite que vous connaissiez tous les conseils qui peuvent venir à chacun d'entre vous pour vous soutenir et vous … »"
 date: 2022-06-01 06:00:01+00:1234
 draft: False
 hidden: True

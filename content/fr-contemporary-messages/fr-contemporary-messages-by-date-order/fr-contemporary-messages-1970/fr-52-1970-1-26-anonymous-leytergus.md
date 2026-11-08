@@ -1,7 +1,7 @@
 ---
 title: "Cet amour vous aidera à surmonter les obstacles sur votre chemin"
 menu_title: ""
-description: "Cet amour vous aidera à surmonter les obstacles sur votre chemin"
+description: "Leytergus : « Mes amis, il est très intéressant pour moi de revenir une fois de plus sur le plan terrestre pour vous rencontrer, vous qui habitez dans la … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

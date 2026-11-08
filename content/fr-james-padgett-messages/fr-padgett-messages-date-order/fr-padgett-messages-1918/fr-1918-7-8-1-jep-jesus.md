@@ -1,7 +1,7 @@
 ---
 title: "Jésus conforte M. Padgett au sujet du soudain passage de sa fille dans le monde des esprits et l’amour qui existe maintenant entre eux et le grand amour de son âme sœur qui est son épouse"
 menu_title: ""
-description: "Jésus conforte M. Padgett au sujet du soudain passage de sa fille dans le monde des esprits et l’amour qui existe maintenant entre eux et le grand amour de son âme sœur qui est son épouse"
+description: "Jésus, reçu par James Padgett : « Il ne faut pas regarder les choses avec un tel découragement. Je comprends combien il est naturel pour vous de voir le … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

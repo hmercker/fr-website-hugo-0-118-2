@@ -1,7 +1,7 @@
 ---
 title: "Réconciliez votre âme avec Dieu"
 menu_title: ""
-description: "Réconciliez votre âme avec Dieu"
+description: "Moïse, reçu par Albert Fike : « Vous avez essayé d’apporter des solutions et vous possédez une grande connaissance sur votre plan terrestre. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

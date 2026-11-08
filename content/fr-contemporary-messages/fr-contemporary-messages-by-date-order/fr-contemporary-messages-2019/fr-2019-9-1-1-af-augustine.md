@@ -1,7 +1,7 @@
 ---
 title: "Vous devez travailler ensemble"
 menu_title: ""
-description: "Vous devez travailler ensemble"
+description: "Augustin, reçu par Al Fike : « Lors de votre rencontre, vous avez beaucoup parlé de l’activation des dons et des possibilités de vos âmes et de vos êtres … »"
 date: 2022-06-01 06:00:01+00:827
 draft: False
 hidden: True

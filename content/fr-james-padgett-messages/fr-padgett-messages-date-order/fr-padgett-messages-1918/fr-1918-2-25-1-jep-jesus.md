@@ -1,7 +1,7 @@
 ---
 title: "Le jugement après la mort, Qu’est-il et que n’est-il pas ?"
 menu_title: ""
-description: "Le jugement après la mort, Qu’est-il et que n’est-il pas ?"
+description: "Jésus, reçu par James Padgett : « Je sais que la Bible, ou plutôt certains des livres, associe un grand stress à ce jour lorsque, comme ils le prétendent … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

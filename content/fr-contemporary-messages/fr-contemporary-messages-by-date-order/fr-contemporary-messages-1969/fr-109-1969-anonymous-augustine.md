@@ -1,7 +1,7 @@
 ---
 title: "Cherchez la sagesse du Père"
 menu_title: ""
-description: "Cherchez la sagesse du Père"
+description: "Augustin : « Cherchez vraiment la sagesse du Père. Pourquoi tâtonner dans les ténèbres quand vous pouvez voir la lumière. »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

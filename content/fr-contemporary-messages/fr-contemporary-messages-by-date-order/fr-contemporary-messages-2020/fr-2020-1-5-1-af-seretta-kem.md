@@ -1,7 +1,7 @@
 ---
 title: "Guide pour la retraite de la voix directe"
 menu_title: ""
-description: "Guide pour la retraite de la voix directe"
+description: "Seretta Kem, reçu par Al Fike : « En effet, il est important et nécessaire que vous considériez vos préparatifs à l’avance, même à cette date précoce. »"
 date: 2022-06-01 06:00:01+00:975
 draft: False
 hidden: True

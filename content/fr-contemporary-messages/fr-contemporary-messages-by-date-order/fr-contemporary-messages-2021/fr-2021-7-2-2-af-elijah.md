@@ -1,7 +1,7 @@
 ---
 title: "Affirme la prophétie de ces temps"
 menu_title: ""
-description: "Affirme la prophétie de ces temps"
+description: "Élie, reçu par Al Fike : « Cependant, la question est de savoir si je leur ai implanté l’idée de ma venue ou s’ils ont implanté l’idée de ma présence … »"
 date: 2022-06-01 06:00:01+00:1561
 draft: False
 hidden: True

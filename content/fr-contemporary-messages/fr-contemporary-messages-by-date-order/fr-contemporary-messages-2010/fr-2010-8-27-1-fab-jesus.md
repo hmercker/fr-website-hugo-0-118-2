@@ -1,7 +1,7 @@
 ---
 title: "Foi et succès mondains"
 menu_title: ""
-description: "Foi et succès mondains"
+description: "Jésus, reçu par FAB : « Vous venez de terminer ce livre prudent et réfléchi, « L'histoire perdue du Christianisme », de Philip Jenkins. »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

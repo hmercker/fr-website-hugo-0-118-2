@@ -1,7 +1,7 @@
 ---
 title: "Flavius Josèphe affirme que Jésus a vécu en Palestine au temps où il a écrit à son sujet"
 menu_title: ""
-description: "Flavius Josèphe affirme que Jésus a vécu en Palestine au temps où il a écrit à son sujet"
+description: "Flavius Josèphe, reçu par James Padgett : « Je veux simplement dire que depuis la dernière fois que je vous ai écrit, je me suis renseigné sur qui a … »"
 date: 2022-06-01 06:00:01+00:260
 draft: False
 hidden: True

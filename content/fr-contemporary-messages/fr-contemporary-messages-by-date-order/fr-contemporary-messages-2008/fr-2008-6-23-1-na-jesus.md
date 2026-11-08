@@ -1,7 +1,7 @@
 ---
 title: "Une confirmation de l'Amour"
 menu_title: ""
-description: "Une confirmation de l'Amour"
+description: "Jésus, reçu par NA : « J’ai été présent à de nombreuses reprises lorsque ces communications ont eu lieu et j’ai eu beaucoup de plaisir à voir un autre … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous n'avons pas besoin de grands édifices pour accomplir l'œuvre de Dieu"
 menu_title: ""
-description: "Nous n'avons pas besoin de grands édifices pour accomplir l'œuvre de Dieu"
+description: "Shandor : « Beaucoup de ceux que nous essayons d'aider ne savent même pas que nous sommes proches, mais ils ressentent soudainement une grande paix, ils … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

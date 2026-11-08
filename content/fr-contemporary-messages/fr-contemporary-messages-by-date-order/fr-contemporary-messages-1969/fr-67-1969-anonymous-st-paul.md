@@ -1,7 +1,7 @@
 ---
 title: "La sagesse vient quand on se tait et qu'on écoute"
 menu_title: ""
-description: "La sagesse vient quand on se tait et qu'on écoute"
+description: "St Paul : « Nous devenons si vitaux dans notre pensée et si sages que cela nous incite à faire de plus grands efforts pour enseigner à ceux qui vivent … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

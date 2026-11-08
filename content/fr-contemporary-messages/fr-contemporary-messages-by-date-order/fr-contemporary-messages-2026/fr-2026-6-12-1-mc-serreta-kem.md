@@ -1,7 +1,7 @@
 ---
 title: "Au-delà de la vie terrestre : la sollicitude de Dieu pour l'âme ayant effectué sa transition"
 menu_title: ""
-description: "Au-delà de la vie terrestre : la sollicitude de Dieu pour l'âme ayant effectué sa transition"
+description: "Seretta Kem, reçu par Maureen Cardoso Fike : « Vous avez adressé une prière importante dans laquelle vous demandiez à Dieu de vous aider face aux … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

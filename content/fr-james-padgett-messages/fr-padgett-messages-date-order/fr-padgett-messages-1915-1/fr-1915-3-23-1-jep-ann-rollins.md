@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett explique que le Maître a un grand amour pour lui"
 menu_title: ""
-description: "La grand-mère de M. Padgett explique que le Maître a un grand amour pour lui"
+description: "Anne Rollins, reçu par James Padgett : « J’étais avec toi au bureau et j’ai vu à quoi tu pensais et j’ai réalisé que l’Amour du Père remplissait ton âme … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

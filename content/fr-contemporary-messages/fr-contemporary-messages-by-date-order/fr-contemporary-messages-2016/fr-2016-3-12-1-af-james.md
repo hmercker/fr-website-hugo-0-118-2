@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de la fête du travail à la maison de Selah"
 menu_title: ""
-description: "Bénédiction de la fête du travail à la maison de Selah"
+description: "Jacques, reçu par Al Fike : « En nettoyant, en travaillant et en harmonisant les choses dans cet endroit, vous attirerez vers vous et vers cet endroit … »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

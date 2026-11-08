@@ -1,7 +1,7 @@
 ---
 title: "De nombreux cadeaux pour le cercle des sept"
 menu_title: ""
-description: "De nombreux cadeaux pour le cercle des sept"
+description: "Fleur de Lotus, reçu par Al Fike : « Comme il est bon de vous voir ensemble dans l’Amour. De prier ensemble dans l’Amour, de partager vos intuitions et … »"
 date: 2022-06-01 06:00:01+00:299
 draft: False
 hidden: True

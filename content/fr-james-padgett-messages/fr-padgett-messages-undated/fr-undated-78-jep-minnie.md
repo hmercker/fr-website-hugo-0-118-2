@@ -1,7 +1,7 @@
 ---
 title: "La cousine d’Eugène Morgan est remerciante pour la guidance spirituelle reçue sur la terre, cela lui a permis de progresser vers la 7ème sphère du monde spirituel."
 menu_title: ""
-description: "La cousine d’Eugène Morgan est remerciante pour la guidance spirituelle reçue sur la terre, cela lui a permis de progresser vers la 7ème sphère du monde spirituel."
+description: "Minnie, reçu par James Padgett : « Permettez-moi de dire un mot, s’il vous plaît, car j’ai tellement envie d’écrire à Eugène, comme il m’a été promis, il … »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

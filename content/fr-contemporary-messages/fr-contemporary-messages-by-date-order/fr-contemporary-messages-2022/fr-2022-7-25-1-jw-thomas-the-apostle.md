@@ -1,7 +1,7 @@
 ---
 title: "L'âme touchée par Dieu est la vraie preuve"
 menu_title: ""
-description: "L'âme touchée par Dieu est la vraie preuve"
+description: "Thomas l’Apôtre, reçu par Jimbeau Walsh : « Je souhaite parler de la preuve et de l’évidence, qui sont nécessaires dans tant de domaines de la vie. »"
 date: 2022-06-01 06:00:01+00:141
 draft: False
 hidden: True

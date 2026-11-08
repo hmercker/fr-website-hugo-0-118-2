@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett est remerciante qu’à travers M.Padgett les deux généraux ont pu trouver l’Amour Divin"
 menu_title: ""
-description: "Hélène Padgett est remerciante qu’à travers M.Padgett les deux généraux ont pu trouver l’Amour Divin"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as eu des communications assez surprenantes ce soir. Nous avons pensé qu’il serait juste de laisser les deux … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

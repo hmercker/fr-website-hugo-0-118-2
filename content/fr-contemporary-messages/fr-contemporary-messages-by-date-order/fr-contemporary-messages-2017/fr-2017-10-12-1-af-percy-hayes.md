@@ -1,7 +1,7 @@
 ---
 title: "Salutations de Percy depuis le Royaume d'Amour de Dieu"
 menu_title: ""
-description: "Salutations de Percy depuis le Royaume d'Amour de Dieu"
+description: "Percy Hayes, reçu par Al Fike : « « Ho ho ho. » Quelle merveilleuse bénédiction de pouvoir vous parler à travers cet instrument. »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

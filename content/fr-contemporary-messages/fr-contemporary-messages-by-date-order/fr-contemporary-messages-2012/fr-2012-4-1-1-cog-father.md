@@ -1,7 +1,7 @@
 ---
 title: "Sens ton chemin vers moi"
 menu_title: ""
-description: "Sens ton chemin vers moi"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Cher enfant, tu as encore des doutes sur le fait que tu aies des conversations avec moi et tu demandes des … »"
 date: 2022-06-01 06:00:01+00:231
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La clé de la guérison de l'humanité réside dans l'Amour divin, et non dans les efforts humains"
 menu_title: ""
-description: "La clé de la guérison de l'humanité réside dans l'Amour divin, et non dans les efforts humains"
+description: "Aaron, reçu par Albert Fike : « Que l'Amour de Dieu pénètre vos âmes et y circule en grande abondance, vous guérissant et vous transformant à jamais. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

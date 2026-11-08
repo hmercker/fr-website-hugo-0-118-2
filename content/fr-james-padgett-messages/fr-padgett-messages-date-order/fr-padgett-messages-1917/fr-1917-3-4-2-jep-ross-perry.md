@@ -1,7 +1,7 @@
 ---
 title: "Perry se sent mieux et est reconnaissant pour toute l’aide que lui ont apportée M. Padgett et d’autres esprits aimants"
 menu_title: ""
-description: "Perry se sent mieux et est reconnaissant pour toute l’aide que lui ont apportée M. Padgett et d’autres esprits aimants"
+description: "Ross Perry, reçu par James Padgett : « Quelle chose merveilleuse est ce grand don que vous avez, et aucun esprit de tous les ténèbres, et d’une espérance … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

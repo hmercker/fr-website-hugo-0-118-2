@@ -1,7 +1,7 @@
 ---
 title: "Dieu vous tricote tous ensemble"
 menu_title: ""
-description: "Dieu vous tricote tous ensemble"
+description: "Augustin, reçu par Al Fike : « Cette grande chaîne de Lumière qui est venue de vous, de vos âmes dans les prières à Dieu, dans les prières communes, dans … »"
 date: 2022-06-01 06:00:01+00:1001
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Veuillez mettre à jour mon livre dont le texte est périmé"
 menu_title: ""
-description: "Veuillez mettre à jour mon livre dont le texte est périmé"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « Sachez que je soutiens vos efforts pour apporter les changements que vous jugez nécessaires afin de ne pas … »"
 date: 2022-06-01 06:00:01+00:1513
 draft: False
 hidden: True

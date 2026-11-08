@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Confucius, reçu par Al Fike : « Pouvez-vous imaginer la vie sans ce cadeau, ces bénédictions ? Pouvez-vous imaginer vivre une vie privée de Dieu ? »"
 date: 2022-06-01 06:00:01+00:1567
 draft: False
 hidden: True

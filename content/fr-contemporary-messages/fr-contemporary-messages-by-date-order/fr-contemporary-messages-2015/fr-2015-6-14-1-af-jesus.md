@@ -1,7 +1,7 @@
 ---
 title: "Vous marcherez le chemin de la renaissance de l'âme"
 menu_title: ""
-description: "Vous marcherez le chemin de la renaissance de l'âme"
+description: "Jésus, reçu par Al Fike : « Que l’amour du Père habite vos âmes et que Sa paix soit un manteau sur vos épaules. Nous tous, que nous soyons en esprit dans … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

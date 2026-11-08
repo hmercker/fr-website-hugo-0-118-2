@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes les précurseurs du nouveau monde - Épilogue de Laurelville"
 menu_title: ""
-description: "Vous êtes les précurseurs du nouveau monde - Épilogue de Laurelville"
+description: "St Matthieu, reçu par Albert Fike : « Je sais qu’il est difficile pour vous de comprendre le fonctionnement de votre âme ainsi que les subtilités et les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

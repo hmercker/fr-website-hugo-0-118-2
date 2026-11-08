@@ -1,7 +1,7 @@
 ---
 title: "Ne manquez pas les opportunités que Dieu vous propose"
 menu_title: ""
-description: "Ne manquez pas les opportunités que Dieu vous propose"
+description: "Seretta Kem, reçu par Albert Fike : « Le monde est posé à vos pieds, mes amis. Mais malheureusement, beaucoup d’entre vous n’ont pas les yeux pour voir ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

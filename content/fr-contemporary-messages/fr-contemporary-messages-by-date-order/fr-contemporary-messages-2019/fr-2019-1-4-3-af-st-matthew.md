@@ -1,7 +1,7 @@
 ---
 title: "Soyez un instrument de l’Amour de Dieu."
 menu_title: ""
-description: "Soyez un instrument de l’Amour de Dieu."
+description: "St Matthieu, reçu par Al Fike : « Alors que vous continuez à vous aventurer dans le monde avec un profond désir de servir Dieu, Dieu continue à ouvrir des … »"
 date: 2022-06-01 06:00:01+00:595
 draft: False
 hidden: True

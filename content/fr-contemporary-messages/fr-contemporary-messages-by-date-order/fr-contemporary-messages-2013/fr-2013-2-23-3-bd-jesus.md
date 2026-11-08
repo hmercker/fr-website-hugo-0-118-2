@@ -1,7 +1,7 @@
 ---
 title: "Priez pour que la puissance de l’Amour Divin emplisse votre monde"
 menu_title: ""
-description: "Priez pour que la puissance de l’Amour Divin emplisse votre monde"
+description: "Jésus, reçu par Barbara Davies : « Je vous demande de prier pour que la puissance de l’Amour Divin emplisse votre monde et protège toute vie par l’amour … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

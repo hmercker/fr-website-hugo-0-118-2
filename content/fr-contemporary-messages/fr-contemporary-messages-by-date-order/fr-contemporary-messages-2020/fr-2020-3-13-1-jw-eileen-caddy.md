@@ -1,7 +1,7 @@
 ---
 title: "Suggestions de Findhorn"
 menu_title: ""
-description: "Suggestions de Findhorn"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Maintenant que les événements sur terre conspirent pour inciter les gens à entrer dans leur âme au-delà de la … »"
 date: 2022-06-01 06:00:01+00:1025
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Henry Ward Beecher : Immortalité"
 menu_title: ""
-description: "Henry Ward Beecher : Immortalité"
+description: "Henry Ward Beecher, reçu par James Padgett : « Il m’a parlé de vous, et la facilité avec laquelle vous recevez les communications des esprits, et je veux … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

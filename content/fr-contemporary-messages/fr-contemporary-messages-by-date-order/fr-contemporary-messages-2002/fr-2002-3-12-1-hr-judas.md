@@ -1,7 +1,7 @@
 ---
 title: "Les démons et Marie Madeleine"
 menu_title: ""
-description: "Les démons et Marie Madeleine"
+description: "Judas, reçu par H : « Marc 16:9 - Jésus, étant ressuscité le matin du premier jour de la semaine, Il apparut d’abord à Marie Madeleine dont il avait … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

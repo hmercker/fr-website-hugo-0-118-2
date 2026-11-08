@@ -1,7 +1,7 @@
 ---
 title: "Ce sanctuaire"
 menu_title: ""
-description: "Ce sanctuaire"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Ce sanctuaire est un lieu de refuge pour beaucoup. Lorsque je marchais sur la terre avec mes amis dans … »"
 date: 2022-06-01 06:00:01+00:700
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Faire entrer la Volonté de Dieu dans ce monde"
 menu_title: ""
-description: "Faire entrer la Volonté de Dieu dans ce monde"
+description: "Marc, reçu par Al Fike : « Chacun de vous a été inspiré ces derniers temps. Chacun d’entre vous a une vision différente et des idées, des concepts et des … »"
 date: 2022-06-01 06:00:01+00:295
 draft: False
 hidden: True

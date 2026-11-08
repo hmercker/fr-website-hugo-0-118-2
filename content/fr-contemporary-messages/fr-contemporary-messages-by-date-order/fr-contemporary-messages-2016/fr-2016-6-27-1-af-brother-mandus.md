@@ -1,7 +1,7 @@
 ---
 title: "Vous allez remplir votre mandat de canal de l’Amour chez moi"
 menu_title: ""
-description: "Vous allez remplir votre mandat de canal de l’Amour chez moi"
+description: "Frère Mandus Nyquist, reçu par Al Fike : « Je dirais que le temps approche rapidement où les tables seront retournées et cette porte qui est ouverte vous … »"
 date: 2022-06-01 06:00:01+00:217
 draft: False
 hidden: True

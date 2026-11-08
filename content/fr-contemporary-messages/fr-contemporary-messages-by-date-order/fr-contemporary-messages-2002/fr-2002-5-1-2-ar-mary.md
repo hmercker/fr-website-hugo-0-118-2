@@ -1,7 +1,7 @@
 ---
 title: "Le Cœur Collectif"
 menu_title: ""
-description: "Le Cœur Collectif"
+description: "Marie, reçu par Amada Reza : « Cet amour a élevé la condition de mon âme au point que je me suis transformée en un nouvel être – un ange Céleste – qui … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

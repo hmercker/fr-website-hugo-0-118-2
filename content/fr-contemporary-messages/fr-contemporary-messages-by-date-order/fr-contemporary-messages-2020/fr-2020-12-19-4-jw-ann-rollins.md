@@ -1,7 +1,7 @@
 ---
 title: "Croyances erronées et Amour Divin"
 menu_title: ""
-description: "Croyances erronées et Amour Divin"
+description: "Anne Rollins, reçu par Jimbeau Walsh : « Comme vous me connaissez, je ne vois pas la nécessité de me présenter davantage. Je voudrais parler de la façon … »"
 date: 2022-06-01 06:00:01+00:1349
 draft: False
 hidden: True

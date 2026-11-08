@@ -1,7 +1,7 @@
 ---
 title: "Un écrivain de l’époque trouve l'Amour Divin - 2"
 menu_title: ""
-description: "Un écrivain de l’époque trouve l'Amour Divin - 2"
+description: "Jack Kerouac, reçu par FAB : « Il ne m'a pas fallu longtemps pour progresser. Un bel ange est venu me voir très tôt dans mon existence spirituelle. »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

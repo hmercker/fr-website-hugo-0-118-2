@@ -1,7 +1,7 @@
 ---
 title: "Un ancien esprit, raconte ses croyances alors qu’il était sur la terre"
 menu_title: ""
-description: "Un ancien esprit, raconte ses croyances alors qu’il était sur la terre"
+description: "Inaladocie, reçu par James Padgett : « De mon temps les hommes n’avaient pas l’ambition et la cupidité d’accumuler des possessions mondaines comme ils … »"
 date: 2022-06-01 06:00:01+00:271
 draft: False
 hidden: True

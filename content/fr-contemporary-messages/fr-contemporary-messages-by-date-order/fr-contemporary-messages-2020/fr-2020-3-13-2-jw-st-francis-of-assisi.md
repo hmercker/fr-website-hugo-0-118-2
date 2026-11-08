@@ -1,7 +1,7 @@
 ---
 title: "Le monde s'est ralenti pour laisser du temps à la prière"
 menu_title: ""
-description: "Le monde s'est ralenti pour laisser du temps à la prière"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « N’est-il pas étonnant de pouvoir voir et de savoir que les choses peuvent changer en un instant comme on … »"
 date: 2022-06-01 06:00:01+00:1026
 draft: False
 hidden: True

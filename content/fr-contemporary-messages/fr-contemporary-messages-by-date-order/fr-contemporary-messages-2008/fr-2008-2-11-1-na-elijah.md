@@ -1,7 +1,7 @@
 ---
 title: "La véritable âme sœur de Jésus"
 menu_title: ""
-description: "La véritable âme sœur de Jésus"
+description: "Élie, reçu par NA : « L'âme sœur parfaite pour Jésus est le Père. Le Père a créé l'âme de Jésus, sans âme sœur, ce qui diffère de la façon dont le Père … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

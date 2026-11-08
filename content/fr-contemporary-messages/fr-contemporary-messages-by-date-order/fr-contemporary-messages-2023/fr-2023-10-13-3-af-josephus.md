@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de votre volonté"
 menu_title: ""
-description: "Le pouvoir de votre volonté"
+description: "Flavius Josèphe, reçu par Albert Fike : « Que la grâce de l’Amour de Dieu soit la vôtre, la vôtre pour toujours, la vôtre qui est un voyage qui s’éveille … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

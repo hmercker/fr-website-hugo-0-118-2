@@ -1,7 +1,7 @@
 ---
 title: "Jésus n’a pas réalisé tous les miracles qui lui sont attribués"
 menu_title: ""
-description: "Jésus n’a pas réalisé tous les miracles qui lui sont attribués"
+description: "St Pierre, reçu par James Padgett : « J’ai vu ce que vous lisiez (l’Évangile de Luc). Je dois vous informer que bon nombre de soi-disant miracles de … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

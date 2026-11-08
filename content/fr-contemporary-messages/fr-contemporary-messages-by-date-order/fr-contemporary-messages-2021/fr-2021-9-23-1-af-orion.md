@@ -1,7 +1,7 @@
 ---
 title: "Toutes les âmes de l’univers sont créées avec le libre arbitre de suivre la voie naturelle ou Divine (Retraite Voix Directe 202I)"
 menu_title: ""
-description: "Toutes les âmes de l’univers sont créées avec le libre arbitre de suivre la voie naturelle ou Divine (Retraite Voix Directe 202I)"
+description: "Orion, reçu par Al Fike : « Je souhaite que vous sachiez que Dieu a ensemencé de nombreux endroits dans l’univers avec des âmes qui attendent leur voyage … »"
 date: 2022-06-01 06:00:01+00:1657
 draft: False
 hidden: True

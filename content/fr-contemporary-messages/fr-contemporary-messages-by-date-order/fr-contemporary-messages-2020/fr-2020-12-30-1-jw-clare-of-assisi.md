@@ -1,7 +1,7 @@
 ---
 title: "Accrochez-vous à l'espoir"
 menu_title: ""
-description: "Accrochez-vous à l'espoir"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Alors que nous approchons d’une nouvelle aube, vous pouvez vous sentir comme sur un précipice avec la vue d’un … »"
 date: 2022-06-01 06:00:01+00:1359
 draft: False
 hidden: True

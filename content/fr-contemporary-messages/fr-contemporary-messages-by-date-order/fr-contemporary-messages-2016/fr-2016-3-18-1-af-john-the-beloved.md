@@ -1,7 +1,7 @@
 ---
 title: "Au service de Dieu"
 menu_title: ""
-description: "Au service de Dieu"
+description: "Jean le Bien Aimé, reçu par Al Fike : « Et le service se présente de bien des façons et sous bien des formes. Dieu vous utilise de manières que vous ne … »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Rapprochez-vous de votre ange gardien Céleste"
 menu_title: ""
-description: "Rapprochez-vous de votre ange gardien Céleste"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Je me joins à vous dans cette prière, car vous aspirez à l’élévation spirituelle et à une connexion plus … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

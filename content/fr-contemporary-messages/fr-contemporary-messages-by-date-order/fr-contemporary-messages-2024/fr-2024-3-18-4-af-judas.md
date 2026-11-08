@@ -1,7 +1,7 @@
 ---
 title: "Amour de soi et Amour Divin"
 menu_title: ""
-description: "Amour de soi et Amour Divin"
+description: "Judas, reçu par Jimbeau Walsh : « Il a été dit que lorsqu’on s’attelle à une tâche, il n’y a rien de trop grand ou de trop petit qui ne puisse être accompli. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Sur l'abondance matérielle - 7"
 menu_title: ""
-description: "Sur l'abondance matérielle - 7"
+description: "Jésus, reçu par FAB : « Laisse-moi clarifier certaines pensées pour vous. J'ai affirmé que c'est une perception vraie que l'univers est abondant, et … »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Faites-vous confiance et faites confiance à Dieu"
 menu_title: ""
-description: "Faites-vous confiance et faites confiance à Dieu"
+description: "Eileen Caddy, reçu par Al Fike : « Le Maître Jésus est de nouveau ici (Eileen Caddy parlant). Combien ont des anges qui viennent à votre porte chaque jour … »"
 date: 2022-06-01 06:00:01+00:950
 draft: False
 hidden: True

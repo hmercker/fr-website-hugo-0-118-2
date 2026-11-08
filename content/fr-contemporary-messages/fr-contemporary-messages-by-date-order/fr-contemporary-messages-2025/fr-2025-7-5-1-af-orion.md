@@ -1,7 +1,7 @@
 ---
 title: "Je prie pour votre liberté"
 menu_title: ""
-description: "Je prie pour votre liberté"
+description: "Orion, reçu par Albert Fike : « Le changement est inévitable. C’est une constante dans l’univers, mais le changement que vous vivez est rare dans votre monde. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La prière, votre âme et le monde"
 menu_title: ""
-description: "La prière, votre âme et le monde"
+description: "Anne Rollins, reçu par Jimbeau Walsh : « Je vous invite à réfléchir à quelques points, que vous soyez nouveaux sur ce chemin ou que vous y cheminiez … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

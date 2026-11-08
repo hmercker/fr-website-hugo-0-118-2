@@ -1,7 +1,7 @@
 ---
 title: "Message pour H"
 menu_title: ""
-description: "Message pour H"
+description: "Martin Luther, reçu par Al Fike : « Tu as un profond désir d'aider tes frères et sœurs dans le pays d'origine (Allemagne) comme je l'ai fait quand j'y ai … »"
 date: 2022-06-01 06:00:01+00:267
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "S’abreuver de l’Amour de Dieu"
 menu_title: ""
-description: "S’abreuver de l’Amour de Dieu"
+description: "Confucius, reçu par Al Fike : « Le Souffle de Dieu vous soutient et vous transporte dans la Lumière. Où toute peur et toute douleur, toute erreur, se … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

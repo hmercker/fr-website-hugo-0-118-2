@@ -1,7 +1,7 @@
 ---
 title: "Le développement de l'âme vous mènera à une véritable compréhension de Dieu et de la spiritualité"
 menu_title: ""
-description: "Le développement de l'âme vous mènera à une véritable compréhension de Dieu et de la spiritualité"
+description: "Flavius Josèphe, reçu par Al Fike : « De mon vivant sur Terre, j’étais orateur, philosophe et écrivain. J’ai beaucoup utilisé mon intellect pour … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

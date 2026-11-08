@@ -1,7 +1,7 @@
 ---
 title: "M. Padgett a rencontré Bright Star lors d’une séance et l’aide maintenant à progresser spirituellement et elle dit que l’écriture automatique est supérieure aux séances des médiums parlant"
 menu_title: ""
-description: "M. Padgett a rencontré Bright Star lors d’une séance et l’aide maintenant à progresser spirituellement et elle dit que l’écriture automatique est supérieure aux séances des médiums parlant"
+description: "Bright Star, reçu par James Padgett : « Vous l’aimez certainement et elle vous aime encore plus car son amour est quelque chose que je n’ai jamais vu … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

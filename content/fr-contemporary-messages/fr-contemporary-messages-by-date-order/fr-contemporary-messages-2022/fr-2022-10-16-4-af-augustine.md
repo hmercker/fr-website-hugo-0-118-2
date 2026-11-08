@@ -1,7 +1,7 @@
 ---
 title: "Les cercles de lumière sont très importants"
 menu_title: ""
-description: "Les cercles de lumière sont très importants"
+description: "Augustin, reçu par Al Fike : « Les cercles de lumière sont très importants pour créer l’environnement et l’atmosphère où d’autres âmes pourraient venir et … »"
 date: 2023-09-01 06:00:01+00:55
 draft: False
 hidden: True

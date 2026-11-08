@@ -1,7 +1,7 @@
 ---
 title: "Lumière pour le monde - Retraite F.U.S.C."
 menu_title: ""
-description: "Lumière pour le monde - Retraite F.U.S.C."
+description: "Keea Atta Kem, reçu par Al Fike : « Lorsque vous vous réunissez en prière, vous attirez la lumière dans votre monde. Lorsque vous aspirez à apporter la … »"
 date: 2022-06-01 06:00:01+00:407
 draft: False
 hidden: True

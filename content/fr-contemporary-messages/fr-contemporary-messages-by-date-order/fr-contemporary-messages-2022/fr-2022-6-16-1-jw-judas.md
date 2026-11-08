@@ -1,7 +1,7 @@
 ---
 title: "Sonnez la cloche de la prière"
 menu_title: ""
-description: "Sonnez la cloche de la prière"
+description: "Judas, reçu par Jimbeau Walsh : « Alors que les changements sur la terre deviennent plus drastiques, que les polarités physiques et spirituelles … »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

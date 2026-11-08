@@ -1,7 +1,7 @@
 ---
 title: "Session de questions et réponses n° 4 : Changements de la Terre"
 menu_title: ""
-description: "Session de questions et réponses n° 4 : Changements de la Terre"
+description: "Jésus, reçu par Al Fike : « Que les vents du changement soufflent des bénédictions sur vos vies, éveillant davantage vos âmes et vos mentaux à tout ce qui … »"
 date: 2022-06-01 06:00:01+00:1437
 draft: False
 hidden: True

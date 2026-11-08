@@ -1,7 +1,7 @@
 ---
 title: "La loi de l'activation (3ème partie)"
 menu_title: ""
-description: "La loi de l'activation (3ème partie)"
+description: "Jésus, reçu par Révérend Dave Lampron : « Aujourd’hui, je désire aborde un sujet relatif au désir de l’humanité d’en savoir plus sur les Vérités du Père … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La Pentecôte dans les œuvres que vous pouvez accomplir : L'appel à être des disciples de l'Amour Divin"
 menu_title: ""
-description: "La Pentecôte dans les œuvres que vous pouvez accomplir : L'appel à être des disciples de l'Amour Divin"
+description: "Jésus, reçu par Albert Fike : « Je continue de prendre soin de mon troupeau. Je continue de servir tous ceux qui cherchent la vérité et qui reçoivent la … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

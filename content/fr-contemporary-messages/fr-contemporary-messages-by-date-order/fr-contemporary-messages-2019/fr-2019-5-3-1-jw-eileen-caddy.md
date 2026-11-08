@@ -1,7 +1,7 @@
 ---
 title: "Maintenir la puissance spirituelle des lieux bénis"
 menu_title: ""
-description: "Maintenir la puissance spirituelle des lieux bénis"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Merci d’avoir pris mon prompteur et votre volonté de me permettre de poursuivre ma conversation avec la … »"
 date: 2022-06-01 06:00:01+00:721
 draft: False
 hidden: True

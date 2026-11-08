@@ -1,7 +1,7 @@
 ---
 title: "Ce que vous créez ensemble nourrit ce grand chêne"
 menu_title: ""
-description: "Ce que vous créez ensemble nourrit ce grand chêne"
+description: "St Matthieu, reçu par Al Fike : « Je souhaite vous peindre une image qui pourrait décrire adéquatement le processus dans lequel vous êtes engagés et … »"
 date: 2022-06-01 06:00:01+00:1423
 draft: False
 hidden: True

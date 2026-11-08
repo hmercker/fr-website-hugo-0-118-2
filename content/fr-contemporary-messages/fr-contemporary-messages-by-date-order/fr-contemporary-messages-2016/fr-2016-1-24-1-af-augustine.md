@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur le désir de l'âme"
 menu_title: ""
-description: "Leçon sur le désir de l'âme"
+description: "Augustin, reçu par Al Fike : « Il est important de connaître le désir de votre âme, car le désir de votre âme peut être très différent des désirs de votre … »"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True

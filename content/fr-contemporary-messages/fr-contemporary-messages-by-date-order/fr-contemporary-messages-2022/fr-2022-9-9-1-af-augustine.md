@@ -1,7 +1,7 @@
 ---
 title: "Les portails de lumière ont un but"
 menu_title: ""
-description: "Les portails de lumière ont un but"
+description: "Augustin, reçu par Al Fike : « Vous demandez le don d’un portail, fille bien-aimée, et je tiens à dire que cette bénédiction n’est pas simplement donnée … »"
 date: 2022-06-01 06:00:01+00:174
 draft: False
 hidden: True

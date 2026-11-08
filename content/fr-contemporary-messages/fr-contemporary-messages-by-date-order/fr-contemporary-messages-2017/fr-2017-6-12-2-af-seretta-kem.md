@@ -1,7 +1,7 @@
 ---
 title: "Seretta Kem donne des instructions pour la préparation de Voix Directe"
 menu_title: ""
-description: "Seretta Kem donne des instructions pour la préparation de Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « C’est une indication de la nécessité d’ajuster certains aspects du sang et de limiter l’effort physique, car il n’est … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

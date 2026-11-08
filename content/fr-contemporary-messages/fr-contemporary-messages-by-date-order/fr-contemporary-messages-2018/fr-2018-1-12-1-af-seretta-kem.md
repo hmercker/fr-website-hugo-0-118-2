@@ -1,7 +1,7 @@
 ---
 title: "D'une graine naît un grand arbre"
 menu_title: ""
-description: "D'une graine naît un grand arbre"
+description: "Seretta Kem, reçu par Al Fike : « Oui les liens d’Amour continuent à vous lier tous dans une connexion étroite et dans l’Amour, et bien que vous ayez … »"
 date: 2022-06-01 06:00:01+00:300
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les Sentiments sont prioritaires"
 menu_title: ""
-description: "Les Sentiments sont prioritaires"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « C’est maintenant devenu une nécessité pour toi de t’asseoir tranquillement le matin, de contempler et d’écrire. »"
 date: 2022-06-01 06:00:01+00:241
 draft: False
 hidden: True

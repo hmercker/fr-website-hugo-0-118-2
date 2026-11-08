@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l'intention"
 menu_title: ""
-description: "Le pouvoir de l'intention"
+description: "Augustin, reçu par Albert Fike : « Que la puissance et la profondeur de vos intentions vous guident tout au long de votre vie, âmes bien-aimées. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

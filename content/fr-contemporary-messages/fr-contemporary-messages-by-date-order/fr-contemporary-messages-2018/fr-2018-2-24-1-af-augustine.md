@@ -1,7 +1,7 @@
 ---
 title: "Choisirez-vous de devenir une âme éveillée par l'Amour de Dieu ?"
 menu_title: ""
-description: "Choisirez-vous de devenir une âme éveillée par l'Amour de Dieu ?"
+description: "Augustin, reçu par Al Fike : « Dieu a créé ce monde, puis il a créé l’humanité. Il a donné à l’humanité un grand cadeau, un cadeau de ce monde. »"
 date: 2022-06-01 06:00:01+00:328
 draft: False
 hidden: True

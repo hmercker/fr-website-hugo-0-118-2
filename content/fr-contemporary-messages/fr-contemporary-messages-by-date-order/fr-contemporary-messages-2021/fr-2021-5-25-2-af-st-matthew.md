@@ -1,7 +1,7 @@
 ---
 title: "La lumière grandit en nous quand nous prions pour l'Amour Divin"
 menu_title: ""
-description: "La lumière grandit en nous quand nous prions pour l'Amour Divin"
+description: "St Matthieu, reçu par Al Fike : « Alors que les conditions mondaines entrent et sortent de votre vie, sachez que, parce que vous avez forgé cette fidélité … »"
 date: 2022-06-01 06:00:01+00:1514
 draft: False
 hidden: True

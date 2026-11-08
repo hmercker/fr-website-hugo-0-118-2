@@ -1,7 +1,7 @@
 ---
 title: "Un esprit errant cherche de l’aide car il est plus ou moins perdu"
 menu_title: ""
-description: "Un esprit errant cherche de l’aide car il est plus ou moins perdu"
+description: "Solomon P Brown, reçu par James Padgett : « Eh bien, je n’étais pas une très mauvaise personne, mais je n’ai simplement pas fait ce que j’aurais dû faire … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La joie spirituelle s'obtient dans la grâce"
 menu_title: ""
-description: "La joie spirituelle s'obtient dans la grâce"
+description: "Judas, reçu par Jimbeau Walsh : « Je sais que ce sont des temps éprouvants pour tant d'âmes. Tant de changements terrestres, tant de bouleversements, tant … »"
 date: 2026-09-08 16:00:01+00:01
 draft: False
 hidden: True

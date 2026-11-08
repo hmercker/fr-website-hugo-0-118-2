@@ -1,7 +1,7 @@
 ---
 title: "Faire progresser l'âme et détecter les changements"
 menu_title: ""
-description: "Faire progresser l'âme et détecter les changements"
+description: "Augustin, reçu par Helge Mercker : « Dans la progression de l'âme, beaucoup dépend de la volonté de l'âme, de l'individu, d'embrasser l'âme et d'embrasser … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

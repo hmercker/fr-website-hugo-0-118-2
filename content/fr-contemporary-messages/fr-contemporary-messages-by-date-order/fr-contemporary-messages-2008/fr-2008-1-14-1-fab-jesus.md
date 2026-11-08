@@ -1,7 +1,7 @@
 ---
 title: "Le regard positif de Jésus sur l'humanité"
 menu_title: ""
-description: "Le regard positif de Jésus sur l'humanité"
+description: "Jésus, reçu par FAB : « J'ai également toujours su que lorsque les gens agissent de façon désordonnée, c'est uniquement parce qu'ils ignorent leur … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

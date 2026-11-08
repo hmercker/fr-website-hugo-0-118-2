@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour le Cercle de Lumière de l'Amour Divin francophone"
 menu_title: ""
-description: "Conseils pour le Cercle de Lumière de l'Amour Divin francophone"
+description: "Augustin, Jeanne d'Arc, Jésus et Matthieu, reçu par Albert Fike : « Des âmes du monde entier arrivent à un lieu de recherche de la vérité. Des âmes du … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

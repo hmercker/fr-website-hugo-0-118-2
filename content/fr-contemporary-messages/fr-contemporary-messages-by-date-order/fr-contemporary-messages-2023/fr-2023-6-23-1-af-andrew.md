@@ -1,7 +1,7 @@
 ---
 title: "Accueille et bénit les invités de la retraite Voix Directe"
 menu_title: ""
-description: "Accueille et bénit les invités de la retraite Voix Directe"
+description: "André, reçu par Al Fike : « …Les bénédictions viennent au fur et à mesure que votre groupe grandit. Lorsque vous recherchez Dieu, ces conditions en vous … »"
 date: 2023-09-01 06:00:01+00:41
 draft: False
 hidden: True

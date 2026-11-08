@@ -1,7 +1,7 @@
 ---
 title: "Vous portez le message de l'Amour"
 menu_title: ""
-description: "Vous portez le message de l'Amour"
+description: "Confucius, reçu par Albert Fike : « Ainsi, j’ai vu que vous avez fait vos projets, mes enfants. Il est bon que vous construisiez les (…) ailes grâce … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

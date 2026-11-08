@@ -1,7 +1,7 @@
 ---
 title: "La grâce de la foi"
 menu_title: ""
-description: "La grâce de la foi"
+description: "William Tyndale, reçu par FAB : « Vous avez regardé ce soir un film sur ma vie. Je l’ai regardé avec vous. »"
 date: 2022-06-01 06:00:01+00:185
 draft: False
 hidden: True

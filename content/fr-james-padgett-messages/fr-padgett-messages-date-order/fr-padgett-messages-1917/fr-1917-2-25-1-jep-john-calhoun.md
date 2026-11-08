@@ -1,7 +1,7 @@
 ---
 title: "John Calhoun travaille toujours pour son pays"
 menu_title: ""
-description: "John Calhoun travaille toujours pour son pays"
+description: "John Calhoun, reçu par James Padgett : « Eh bien, comme vous le savez, lors de ma vie terrestre, je fus un démocrate et je croyais aux droits indépendants … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La foi sur la peur"
 menu_title: ""
-description: "La foi sur la peur"
+description: "Yogananda, reçu par Jimbeau Walsh : « Vous avez entendu l’expression « la foi sur la peur », dont le sens profond est que lorsque l’on connecte son âme à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

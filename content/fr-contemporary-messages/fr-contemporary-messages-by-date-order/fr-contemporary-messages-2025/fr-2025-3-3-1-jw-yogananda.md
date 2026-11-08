@@ -1,7 +1,7 @@
 ---
 title: "Les Voies du Monde et la Voie de l'Amour Divin"
 menu_title: ""
-description: "Les Voies du Monde et la Voie de l'Amour Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « En observant le monde matériel avec discernement et dans la prière, on peut facilement cerner les préoccupations de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

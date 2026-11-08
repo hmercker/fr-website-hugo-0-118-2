@@ -1,7 +1,7 @@
 ---
 title: "Voyage pour apporter l'égalité et l'amour à l'humanité"
 menu_title: ""
-description: "Voyage pour apporter l'égalité et l'amour à l'humanité"
+description: "Guru Nanak, reçu par Maureen Cardoso : « Lorsque j’étais enfant, les membres de ma famille savaient que j’avais quelque chose d’unique. »"
 date: 2022-06-01 06:00:01+00:1055
 draft: False
 hidden: True

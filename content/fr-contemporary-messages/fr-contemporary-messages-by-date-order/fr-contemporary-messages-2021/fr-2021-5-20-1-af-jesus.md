@@ -1,7 +1,7 @@
 ---
 title: "Leçon 9 : Aborde la fausse doctrine de la réincarnation"
 menu_title: ""
-description: "Leçon 9 : Aborde la fausse doctrine de la réincarnation"
+description: "Jésus, reçu par Al Fike : « Le sujet de ce message est la question de la réincarnation, qui est ce que vous appelez un sujet brûlant dans vos cercles … »"
 date: 2022-06-01 06:00:01+00:1510
 draft: False
 hidden: True

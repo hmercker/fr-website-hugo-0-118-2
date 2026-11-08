@@ -1,7 +1,7 @@
 ---
 title: "Parle de la loyauté (Reine d'Angleterre)"
 menu_title: ""
-description: "Parle de la loyauté (Reine d'Angleterre)"
+description: "Reine Victoria : « Vous avez écouté tant de leçons provenant de sources supérieures et maintenant je vous ramène aux conditions de la Terre et je vous … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

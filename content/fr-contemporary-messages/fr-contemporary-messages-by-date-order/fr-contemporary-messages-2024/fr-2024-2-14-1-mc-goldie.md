@@ -1,7 +1,7 @@
 ---
 title: "La substance de la JOIE !"
 menu_title: ""
-description: "La substance de la JOIE !"
+description: "Goldie, reçu par Maureen Cardoso : « Vous parlez des attributs de l’âme. J’apporte toujours de la joie dans le cercle. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

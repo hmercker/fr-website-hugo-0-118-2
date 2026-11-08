@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes tous essentiels au processus de transformation"
 menu_title: ""
-description: "Vous êtes tous essentiels au processus de transformation"
+description: "Orion, reçu par Albert Fike : « Nous poursuivons nos efforts pour votre développement individuel et collectif, des efforts visant à transformer votre … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

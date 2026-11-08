@@ -1,7 +1,7 @@
 ---
 title: "47ème Révélation : Le lieu de naissance de Jésus a été prédit dans une prophétie de Michée"
 menu_title: ""
-description: "47ème Révélation : Le lieu de naissance de Jésus a été prédit dans une prophétie de Michée"
+description: "Jésus, reçu par Dr Samuels : « Le fait est qu’il y a quelques centaines de passages isolés, dans l’Ancien Testament, qui ont été signalés comme … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

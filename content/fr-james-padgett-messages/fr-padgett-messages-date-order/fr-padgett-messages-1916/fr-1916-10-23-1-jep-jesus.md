@@ -1,7 +1,7 @@
 ---
 title: "En raison du programme chargé de M. Padgett avec les esprits sombres, même Jésus doit fixer un rendez-vous pour s’insérer dans on planning"
 menu_title: ""
-description: "En raison du programme chargé de M. Padgett avec les esprits sombres, même Jésus doit fixer un rendez-vous pour s’insérer dans on planning"
+description: "Jésus, reçu par James Padgett : « J’avais l’intention d’écrire un message ce soir, mais vous avez continué votre lecture jusqu’à ce qu’il soit trop tard. »"
 date: 2022-06-01 06:00:01+00:305
 draft: False
 hidden: True

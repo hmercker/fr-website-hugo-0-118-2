@@ -1,7 +1,7 @@
 ---
 title: "Décrit son voyage à travers les sphères"
 menu_title: ""
-description: "Décrit son voyage à travers les sphères "
+description: "James Reid, reçu par Albert Fike : « Je m’appelle James, James Reid. Être dans ce Cercle de Lumière est une bénédiction et un privilège. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

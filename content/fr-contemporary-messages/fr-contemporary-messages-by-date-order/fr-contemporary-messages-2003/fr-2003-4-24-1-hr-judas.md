@@ -1,7 +1,7 @@
 ---
 title: "Grandir dans Mon Amour"
 menu_title: ""
-description: "Grandir dans Mon Amour"
+description: "Judas, reçu par H : « Excuse-moi d’empiéter sur tes heures de repos. Mais j’ai quelque chose à cœur que je tiens à partager tout de suite. »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

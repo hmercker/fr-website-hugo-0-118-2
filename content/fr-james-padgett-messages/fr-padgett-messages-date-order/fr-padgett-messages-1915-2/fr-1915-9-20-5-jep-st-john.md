@@ -1,7 +1,7 @@
 ---
 title: "Jean déclare que très bientôt un grand effort sera fait par le spiritualiste Chrétien pour répandre la Vérité"
 menu_title: ""
-description: "Jean déclare que très bientôt un grand effort sera fait par le spiritualiste Chrétien pour répandre la Vérité"
+description: "St Jean, reçu par James Padgett : « Je n’écrirai pas longtemps, je souhaite simplement dire que vous devez continuer à avoir la foi et à prier. »"
 date: 2022-06-01 06:00:01+00:256
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le cœur spirituel reçoit sa vie de la prière"
 menu_title: ""
-description: "Le cœur spirituel reçoit sa vie de la prière"
+description: "Kahlil Gibran, reçu par Jimbeau Walsh : « Celui-ci a été en rapport avec moi ce jour-là. Le cœur, le cœur physique, reçoit l’oxygène des poumons dans le … »"
 date: 2022-06-01 06:00:01+00:1078
 draft: False
 hidden: True

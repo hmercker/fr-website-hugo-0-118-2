@@ -1,7 +1,7 @@
 ---
 title: "Le roi David et la guerre"
 menu_title: ""
-description: "Le roi David et la guerre"
+description: "Le roi David, reçu par FAB : « J’apprécie la façon dont vous m’avez aimé, et dont vous avez aimé les descriptions de mon personnage sur terre. »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

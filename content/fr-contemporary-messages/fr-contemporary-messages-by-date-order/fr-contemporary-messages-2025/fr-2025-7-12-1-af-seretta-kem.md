@@ -1,7 +1,7 @@
 ---
 title: "La chimie et l'alignement nécessaires pour libérer les incrustations de l'âme"
 menu_title: ""
-description: "La chimie et l'alignement nécessaires pour libérer les incrustations de l'âme"
+description: "Seretta Kem, reçu par Albert Fike : « Bénédictions à vous, mes amis. J’aimerais parler un peu de médiumnité. »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

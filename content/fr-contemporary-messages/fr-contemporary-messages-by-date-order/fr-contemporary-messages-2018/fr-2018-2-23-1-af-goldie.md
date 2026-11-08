@@ -1,7 +1,7 @@
 ---
 title: "Apportez la musique !"
 menu_title: ""
-description: "Apportez la musique !"
+description: "Goldie, reçu par Al Fike : « Ne vous prenez pas tellement au sérieux, l’œuvre de Dieu est une œuvre de joie. Les âmes répondront et elles seront attirées … »"
 date: 2022-06-01 06:00:01+00:326
 draft: False
 hidden: True

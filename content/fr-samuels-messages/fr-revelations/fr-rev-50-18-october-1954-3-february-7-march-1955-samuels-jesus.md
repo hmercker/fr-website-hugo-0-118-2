@@ -1,7 +1,7 @@
 ---
 title: "50ème Révélation : Les mots prétendument prononcés par Jésus sur la croix"
 menu_title: ""
-description: "50ème Révélation : Les mots prétendument prononcés par Jésus sur la croix"
+description: "Jésus, reçu par Dr Samuels : « C’est un sujet que j’aimerais bien oublier, ou du moins ne pas évoquer lorsqu’il existe aucune raison de le faire. »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

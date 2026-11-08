@@ -1,7 +1,7 @@
 ---
 title: "Le Maître sur Jeannette Rankin"
 menu_title: ""
-description: "Le Maître sur Jeannette Rankin"
+description: "Jésus, reçu par FAB : « Vous avez eu plusieurs canalisations de Jeannette Rankin. Elle a décrit sa vie de son point de vue, exactement de la façon dont … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

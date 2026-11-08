@@ -1,7 +1,7 @@
 ---
 title: "Le grec au temps de Jésus"
 menu_title: ""
-description: "Le grec au temps de Jésus"
+description: "St Jean, reçu par FAB : « Mais le groupe qui entourait Jésus ne le faisait pas. Le contexte de la naissance du mouvement que Jésus a fondé était Juif et … »"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True

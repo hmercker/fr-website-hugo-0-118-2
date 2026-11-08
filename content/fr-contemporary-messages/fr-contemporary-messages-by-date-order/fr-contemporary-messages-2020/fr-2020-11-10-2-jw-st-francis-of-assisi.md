@@ -1,7 +1,7 @@
 ---
 title: "Se tenir nu devant Dieu"
 menu_title: ""
-description: "Se tenir nu devant Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Je souhaite ajouter, si je le peux, aux remarques perspicaces de mon frère Yogananda. Quand je me suis … »"
 date: 2022-06-01 06:00:01+00:1308
 draft: False
 hidden: True

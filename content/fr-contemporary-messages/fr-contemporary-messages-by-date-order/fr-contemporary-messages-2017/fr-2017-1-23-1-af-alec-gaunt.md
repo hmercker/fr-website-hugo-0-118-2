@@ -1,7 +1,7 @@
 ---
 title: "Les changements que vous allez vivre"
 menu_title: ""
-description: "Les changements que vous allez vivre"
+description: "Alec Gaunt, reçu par Al Fike : « Chacun d'entre vous est au bord du précipice d'un grand changement. Il se passe beaucoup de choses en vous qui se … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

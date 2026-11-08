@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour le cercle de Guernesey"
 menu_title: ""
-description: "Conseils pour le cercle de Guernesey"
+description: "Augustin, reçu par Al Fike : « (Bénédictions) sur vous, âmes bien-aimées. Vous avez demandé des conseils et des orientations. »"
 date: 2023-09-01 06:00:01+00:86
 draft: False
 hidden: True

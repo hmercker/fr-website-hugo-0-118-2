@@ -1,7 +1,7 @@
 ---
 title: "Que chaque âme individuelle parvienne à connaître l’Amour de Dieu"
 menu_title: ""
-description: "Que chaque âme individuelle parvienne à connaître l’Amour de Dieu"
+description: "Jésus, reçu par Albert Fike : « Ne doutez pas de moi, mais approchez-vous, car nous sommes vraiment frères et sœurs dans l'Amour de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

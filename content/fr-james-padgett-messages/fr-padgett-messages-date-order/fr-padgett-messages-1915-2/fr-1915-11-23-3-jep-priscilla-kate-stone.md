@@ -1,7 +1,7 @@
 ---
 title: "Priscilla Stone et Sœur Kate ont écrit un message d’amour à Leslie R. Stone"
 menu_title: ""
-description: "Priscilla Stone et Sœur Kate ont écrit un message d’amour à Leslie R. Stone"
+description: "Priscilla & Kate Stone, reçu par James Padgett : « Oh, mon garçon, si seulement tu pouvais connaître le bonheur que tu as donné à ta mère en ayant … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

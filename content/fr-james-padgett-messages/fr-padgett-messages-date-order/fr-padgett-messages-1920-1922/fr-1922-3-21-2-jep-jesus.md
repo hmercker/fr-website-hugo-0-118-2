@@ -1,7 +1,7 @@
 ---
 title: "Jésus approuvant et insistant sur ce que Judas a écrit"
 menu_title: ""
-description: "Jésus approuvant et insistant sur ce que Judas a écrit"
+description: "Jésus, reçu par James Padgett : « J’approuve ce que Judas vous a écrit, je le souligne, et avec tout mon amour pour le simple homme, comme pour l’esprit … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Libérer les imaginations de l'esprit"
 menu_title: ""
-description: "Libérer les imaginations de l'esprit"
+description: "Augustin, reçu par Al Fike : « Vous entendez la cloche sonner, n'est-ce pas ? Je vous appelle au service. »"
 date: 2022-06-01 06:00:01+00:240
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Développer une relation avec Dieu"
 menu_title: ""
-description: "Développer une relation avec Dieu"
+description: "George Stokes, reçu par Elizabeth Mack : « Je souhaite la bienvenue à mes frères et sœurs dans ce cercle de prière. Nous sommes tous reconnaissants pour … »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

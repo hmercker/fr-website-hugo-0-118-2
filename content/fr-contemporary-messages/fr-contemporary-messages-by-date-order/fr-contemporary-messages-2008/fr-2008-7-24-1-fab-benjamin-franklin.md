@@ -1,7 +1,7 @@
 ---
 title: "Le jugement des Pères fondateurs"
 menu_title: ""
-description: "Le jugement des Pères fondateurs"
+description: "Benjamin Franklin, reçu par FAB : « Vous êtes en train de lire un livre sur les pères fondateurs, écrit par un homme qui est très critique envers ce que … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

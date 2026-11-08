@@ -1,7 +1,7 @@
 ---
 title: "Remettez vos soucis à Dieu"
 menu_title: ""
-description: "Remettez vos soucis à Dieu"
+description: "Jésus, reçu par Al Fike : « Cette ouverture vient avec le désir ardent et le désir intérieur. La vérité vient avec une âme réceptive, désireuse d’être en … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

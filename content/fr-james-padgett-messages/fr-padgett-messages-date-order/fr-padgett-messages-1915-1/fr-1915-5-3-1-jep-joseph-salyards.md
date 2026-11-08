@@ -1,7 +1,7 @@
 ---
 title: "Lois du monde spirituel (Suite)"
 menu_title: ""
-description: "Lois du monde spirituel (Suite)"
+description: "Professeur Salyards, reçu par James Padgett : « Eh bien, je désire continuer mon discours sur les lois du monde spirituel, comme les connaissent beaucoup … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

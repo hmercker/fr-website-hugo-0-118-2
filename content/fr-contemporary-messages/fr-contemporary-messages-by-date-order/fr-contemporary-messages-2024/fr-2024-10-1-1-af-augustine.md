@@ -1,7 +1,7 @@
 ---
 title: "La conscience de Dieu est consciente de tout dans sa création"
 menu_title: ""
-description: "La conscience de Dieu est consciente de tout dans sa création"
+description: "Augustin, reçu par Albert Fike : « Que le grand afflux de l’Amour de Dieu soit votre bénédiction aujourd’hui, beaux étudiants de la vérité. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

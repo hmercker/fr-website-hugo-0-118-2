@@ -1,7 +1,7 @@
 ---
 title: "Faites briller votre lumière"
 menu_title: ""
-description: "Faites briller votre lumière"
+description: "Keea atta Kem, reçu par Al Fike : « Et vous serez surpris de voir les personnes que vous rencontrerez alors que vous continuez à aller dans le monde et à … »"
 date: 2022-06-01 06:00:01+00:256
 draft: False
 hidden: True

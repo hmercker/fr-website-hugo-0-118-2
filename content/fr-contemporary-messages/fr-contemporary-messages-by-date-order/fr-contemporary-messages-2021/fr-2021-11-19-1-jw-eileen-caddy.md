@@ -1,7 +1,7 @@
 ---
 title: "Demandez en priant et vous recevrez"
 menu_title: ""
-description: "Demandez en priant et vous recevrez"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Je peux vous dire que lorsque vous vous réunissez avec un but singulier, vous apportez une force qui ne peut être … »"
 date: 2022-06-01 06:00:01+00:1719
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Chavouot – Pentecôte, Quatrième Célébration, Dimanche le plus proche du 50ème jour après le 2ème Samedi d’Avril"
 menu_title: ""
-description: "Chavouot – Pentecôte, Quatrième Célébration, Dimanche le plus proche du 50ème jour après le 2ème Samedi d’Avril"
+description: "Jésus, reçu par Dr Samuels Août : « Le commandement que j’ai donné à mes disciples lors de la Cène (dernier repas avant Pâques), de manifester, les uns … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

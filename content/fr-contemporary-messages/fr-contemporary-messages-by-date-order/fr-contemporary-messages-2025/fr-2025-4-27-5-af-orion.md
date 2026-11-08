@@ -1,7 +1,7 @@
 ---
 title: "Questions-réponses à Running Springs"
 menu_title: ""
-description: "Questions-réponses à Running Springs"
+description: "Orion, reçu par Albert Fike : « J’entends que vous souhaitez me poser des questions. Nous sommes ravis de vous retrouver parmi nous. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

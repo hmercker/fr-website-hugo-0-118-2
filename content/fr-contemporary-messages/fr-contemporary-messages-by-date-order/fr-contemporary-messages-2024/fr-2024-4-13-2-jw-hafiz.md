@@ -1,7 +1,7 @@
 ---
 title: "Une fenêtre de temps"
 menu_title: ""
-description: "Une fenêtre de temps"
+description: "Hafiz, reçu par Jimbeau Walsh : « Vous avez une fenêtre et il y a un oiseau juste à l’extérieur En train de discuter avec ses amis de l’autre côté de la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

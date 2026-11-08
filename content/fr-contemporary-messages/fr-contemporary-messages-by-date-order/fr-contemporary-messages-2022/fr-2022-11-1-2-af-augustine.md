@@ -1,7 +1,7 @@
 ---
 title: "Assaisonnez votre vie avec l'amour de Dieu"
 menu_title: ""
-description: "Assaisonnez votre vie avec l'amour de Dieu"
+description: "Augustin, reçu par Al Fike : « Tout dans votre vie a ses saisons. Vous avez entendu cette phrase de temps à auttre, selon laquelle en effet, dans votre … »"
 date: 2023-09-01 06:00:01+00:58
 draft: False
 hidden: True

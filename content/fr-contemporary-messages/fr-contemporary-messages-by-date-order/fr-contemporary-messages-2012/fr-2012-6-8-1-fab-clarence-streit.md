@@ -1,7 +1,7 @@
 ---
 title: "Idéalisme brisé"
 menu_title: ""
-description: "Idéalisme brisé"
+description: "Clarence Streit, reçu par FAB : « Je vois que vous lisez mon livre « Union Now », et je tiens à le commenter, autrement dit, à commenter l’idée, qui est … »"
 date: 2022-06-01 06:00:01+00:265
 draft: False
 hidden: True

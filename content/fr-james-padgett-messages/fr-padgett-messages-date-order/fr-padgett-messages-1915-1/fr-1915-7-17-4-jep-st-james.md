@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Jacques"
 menu_title: ""
-description: "Confirmation par St Jacques"
+description: "St Jacques, reçu par James Padgett : « Permettez-moi d’ajouter mon témoignage à ce que les autres ont écrit. J’ai vu les grandes manifestations de Dieu et … »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

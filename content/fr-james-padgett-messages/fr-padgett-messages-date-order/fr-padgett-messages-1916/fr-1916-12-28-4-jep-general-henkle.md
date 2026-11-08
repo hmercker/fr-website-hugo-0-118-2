@@ -1,7 +1,7 @@
 ---
 title: "Le Général Henkle est surpris d’apprendre qu’une âme peut quitter le corps matériel et visiter des personnes bien aimées dans le monde spirituel comme M. Padgett et Dr Stone ont pu le faire avec l’aide de personnes bien aimées"
 menu_title: ""
-description: "Le Général Henkle est surpris d’apprendre qu’une âme peut quitter le corps matériel et visiter des personnes bien aimées dans le monde spirituel comme M. Padgett et Dr Stone ont pu le faire avec l’aide de personnes bien aimées"
+description: "Le Général Henkle, reçu par James Padgett : « Je veux simplement dire que j’ai été présent toute la soirée et que j’ai entendu votre lecture des messages … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

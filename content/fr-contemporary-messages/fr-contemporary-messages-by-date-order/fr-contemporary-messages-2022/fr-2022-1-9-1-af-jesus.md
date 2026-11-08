@@ -1,7 +1,7 @@
 ---
 title: "Ne vous laissez pas distraire par les conditions matérielles"
 menu_title: ""
-description: "Ne vous laissez pas distraire par les conditions matérielles"
+description: "Jésus, reçu par Al Fike : « Ma prière pour vous est que vos âmes puissent continuer à s’ouvrir et à s’épanouir dans le don de l’Essence du Père qui est … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

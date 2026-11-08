@@ -1,7 +1,7 @@
 ---
 title: "La liberté par l'activation de l'âme-mental"
 menu_title: ""
-description: "La liberté par l'activation de l'âme-mental"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant Augustin. Tout comme vous vous promenez dans un jardin et appréciez les fleurs magnifiques et … »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

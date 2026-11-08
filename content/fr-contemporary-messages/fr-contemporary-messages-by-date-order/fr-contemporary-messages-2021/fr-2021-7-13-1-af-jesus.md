@@ -1,7 +1,7 @@
 ---
 title: "L’innocence pure de l’amour réside dans votre âme"
 menu_title: ""
-description: "L’innocence pure de l’amour réside dans votre âme"
+description: "Jésus, reçu par Al Fike : « Et en effet votre innocence réside dans votre âme, ce lieu pur de lumière. Âmes bien-aimées, vous êtes les enfants de Dieu et … »"
 date: 2022-06-01 06:00:01+00:1571
 draft: False
 hidden: True

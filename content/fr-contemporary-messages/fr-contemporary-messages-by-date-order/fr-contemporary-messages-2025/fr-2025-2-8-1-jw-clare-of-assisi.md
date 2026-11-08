@@ -1,7 +1,7 @@
 ---
 title: "Le cercle des cœurs ouverts"
 menu_title: ""
-description: "Le cercle des cœurs ouverts"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Lorsque vous priez et que votre œil devient unique, que votre volonté s’aligne sur la grande volonté du Père … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Décrit la différence entre l’amour de l’âme-sœur et l’amour d’une mère pour son fils"
 menu_title: ""
-description: "Décrit la différence entre l’amour de l’âme-sœur et l’amour d’une mère pour son fils"
+description: "Mary Kennedy, reçu par James Padgett : « J’ai très envie de dire à ce petit garçon assis en face de vous que sa Mary est là et l’aime toujours autant, et … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

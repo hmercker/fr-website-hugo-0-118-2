@@ -1,7 +1,7 @@
 ---
 title: "Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité"
 menu_title: ""
-description: "Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité"
+description: "Serreta Kem, reçu par Albert Fike : « Mes amis, je m’appelle Seretta Kem. Notre première procédure sera de vous aider à vous harmoniser tous ensemble, en … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Messages d'amour, de guidance et de compagnonnage venant du monde spirituel"
 menu_title: ""
-description: "Messages d'amour, de guidance et de compagnonnage venant du monde spirituel"
+description: "André, Jésus et Marie, reçu par Albert Fike : « André : En vérité, que l'Amour se déverse dans vos âmes, mes amis. Le monde manque d'une direction claire … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

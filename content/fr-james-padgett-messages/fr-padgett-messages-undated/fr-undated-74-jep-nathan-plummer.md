@@ -1,7 +1,7 @@
 ---
 title: "Nathan Plummer écrit sur sa progression et sa sortie des ténèbres"
 menu_title: ""
-description: "Nathan Plummer écrit sur sa progression et sa sortie des ténèbres"
+description: "Nathan Plummer, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes car j’ai hâte de dire au Docteur qu’il n’est pas le seul à savoir … »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

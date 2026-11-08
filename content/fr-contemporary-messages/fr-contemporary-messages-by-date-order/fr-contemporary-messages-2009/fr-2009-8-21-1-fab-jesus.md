@@ -1,7 +1,7 @@
 ---
 title: "Faire de l'argent - 2"
 menu_title: ""
-description: "Faire de l'argent - 2"
+description: "Jésus, reçu par FAB : « Permettez-moi de te transmettre un autre message sur la façon de gagner de l'argent, car je vois que vous manquez encore de clarté. »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

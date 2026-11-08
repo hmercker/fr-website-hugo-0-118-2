@@ -1,7 +1,7 @@
 ---
 title: "Devenez humble et silencieux"
 menu_title: ""
-description: "Devenez humble et silencieux"
+description: "St Matthieu : « A vous mes amis, je voudrais dire quelques mots. Beaucoup d'entre vous ont été guidés dans le passé par des dictons et des phrases … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

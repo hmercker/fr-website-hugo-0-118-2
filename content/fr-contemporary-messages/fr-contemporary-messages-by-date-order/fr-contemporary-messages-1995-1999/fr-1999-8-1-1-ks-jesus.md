@@ -1,7 +1,7 @@
 ---
 title: "Les canalisations du Dr Samuels"
 menu_title: ""
-description: "Les canalisations du Dr Samuels"
+description: "Jésus, reçu par Kathryn Stokes : « Cher Créateur, Parent Céleste, Source de Tout Amour, nous nous efforçons de suivre Ton Chemin, de nous rapprocher de Ta … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

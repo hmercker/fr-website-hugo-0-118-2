@@ -1,7 +1,7 @@
 ---
 title: "Le monde change"
 menu_title: ""
-description: "Le monde change"
+description: "Alec Gaunt, reçu par Al Fike : « Dieu vous bénit mes amis et que vos âmes soient pleines à ras bord de l’Amour de Dieu. Le climat de ce monde va changer … »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

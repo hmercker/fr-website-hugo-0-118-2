@@ -1,7 +1,7 @@
 ---
 title: "La vision et le but supérieurs de l'Amérique"
 menu_title: ""
-description: "La vision et le but supérieurs de l'Amérique"
+description: "Benjamin Franklin, reçu par FAB : « Le thème de ce message est : la vision et le but supérieurs de l'Amérique. Il est douloureusement évident, non … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

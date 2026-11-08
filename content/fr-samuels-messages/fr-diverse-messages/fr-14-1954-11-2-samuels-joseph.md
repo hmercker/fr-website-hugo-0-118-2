@@ -1,7 +1,7 @@
 ---
 title: "Le Père de Jésus a été appelé Alphée par des écrivains évangéliques"
 menu_title: ""
-description: "Le Père de Jésus a été appelé Alphée par des écrivains évangéliques"
+description: "Joseph, reçu par Dr Samuels : « Je voudrais dire quelques mots pour corroborer ce que mon fils Jésus de la Bible vous a écrit au sujet de mon nom caché … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

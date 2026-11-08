@@ -1,7 +1,7 @@
 ---
 title: "Priez pour que Dieu guérisse la faille entre chaque âme et Dieu"
 menu_title: ""
-description: "Priez pour que Dieu guérisse la faille entre chaque âme et Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite parler des causes profondes de ces conditions qui sont créées au sein de l’individu et qui ont besoin de … »"
 date: 2022-06-01 06:00:01+00:884
 draft: False
 hidden: True

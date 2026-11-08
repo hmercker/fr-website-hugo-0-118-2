@@ -1,7 +1,7 @@
 ---
 title: "Les commentaires d’Anne Rollins sur le message que Jésus a écrit à M. Padgett"
 menu_title: ""
-description: "Les commentaires d’Anne Rollins sur le message que Jésus a écrit à M. Padgett"
+description: "Anne Rollins, reçu par James Padgett : « Quel message véridique et important le Maître t’a écrit ; il sait que ce qu’il a dit est d’une importance vitale … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

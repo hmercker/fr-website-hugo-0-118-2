@@ -1,7 +1,7 @@
 ---
 title: "Vous faites partie de mon troupeau"
 menu_title: ""
-description: "Vous faites partie de mon troupeau"
+description: "Jésus, reçu par Al Fike : « Et nous allons tous travailler et peiner en votre nom pour vous rapprocher de la Grâce et de la Lumière aimante de Dieu. »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

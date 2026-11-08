@@ -1,7 +1,7 @@
 ---
 title: "Le chemin que vous parcourez ensemble"
 menu_title: ""
-description: "Le chemin que vous parcourez ensemble"
+description: "André, reçu par Al Fike : « Vous êtes vraiment des frères et des sœurs dans ce flux bien-aimé de l’Amour du Père, de Ses soins et de Sa garde, pour chacun … »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

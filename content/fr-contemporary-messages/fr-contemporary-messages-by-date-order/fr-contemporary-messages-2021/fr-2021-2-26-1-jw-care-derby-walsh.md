@@ -1,7 +1,7 @@
 ---
 title: "Il existe de nombreux médiums pour l’Amour"
 menu_title: ""
-description: "Il existe de nombreux médiums pour l’Amour"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « La musique est une forme de prière, lorsqu’elle vient des désirs de l’âme. Les films qui vous élèvent, qui … »"
 date: 2022-06-01 06:00:01+00:1422
 draft: False
 hidden: True

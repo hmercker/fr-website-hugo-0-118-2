@@ -1,7 +1,7 @@
 ---
 title: "L'unité de la prière"
 menu_title: ""
-description: "L'unité de la prière"
+description: "Luc, reçu par Al Fike : « Vous cherchez l'unité et l'unité est vôtre dans la prière. Elle est vôtre lorsque vous recevez et reconnaissez la bénédiction de … »"
 date: 2022-06-01 06:00:01+00:741
 draft: False
 hidden: True

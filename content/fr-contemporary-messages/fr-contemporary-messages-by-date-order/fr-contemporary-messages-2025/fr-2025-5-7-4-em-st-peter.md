@@ -1,7 +1,7 @@
 ---
 title: "La véritable Église est dans vos cœurs"
 menu_title: ""
-description: "La véritable Église est dans vos cœurs"
+description: "Pierre, reçu par Elizabeth Mack : « Mon Maître a dit qu’il bâtirait son Église sur ce Rocher. Je vous le dis, la véritable Église est dans vos cœurs. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

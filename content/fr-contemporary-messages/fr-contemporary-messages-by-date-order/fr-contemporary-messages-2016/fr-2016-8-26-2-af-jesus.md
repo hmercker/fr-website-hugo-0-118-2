@@ -1,7 +1,7 @@
 ---
 title: "Vous faites partie du salut de Dieu pour l’humanité"
 menu_title: ""
-description: "Vous faites partie du salut de Dieu pour l’humanité"
+description: "Jésus, reçu par Al Fike : « Vous avez répondu à mon appel, et vous vous rassemblerez en de nombreux lieux à travers le monde pour y instaurer ces grands … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

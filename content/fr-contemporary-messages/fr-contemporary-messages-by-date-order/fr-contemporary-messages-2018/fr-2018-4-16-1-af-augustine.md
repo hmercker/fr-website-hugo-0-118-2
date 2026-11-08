@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la prière pour provoquer le changement"
 menu_title: ""
-description: "Le pouvoir de la prière pour provoquer le changement"
+description: "Augustin, reçu par Al Fike : « (Le bébé Emery est présent) Pour les enfants, les bébés, les jeunes et les nouvelles âmes dans ce monde, déversez votre … »"
 date: 2022-06-01 06:00:01+00:381
 draft: False
 hidden: True

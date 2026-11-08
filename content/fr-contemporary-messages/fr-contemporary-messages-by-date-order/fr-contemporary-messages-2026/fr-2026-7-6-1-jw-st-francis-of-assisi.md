@@ -1,7 +1,7 @@
 ---
 title: "Indulgences et distractions"
 menu_title: ""
-description: "Indulgences et distractions"
+description: "François d'Assise, reçu par Jimbeau Walsh : « Si l'on pouvait simplement se détacher du monde et de tous ses artifices, de ses fardeaux, de ses ivresses … »"
 date: 2026-06-24 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Si vous souhaitez servir le monde"
 menu_title: ""
-description: "Si vous souhaitez servir le monde"
+description: "Barnabé, reçu par reçu par Jimbeau Walsh : « Si vous souhaitez servir le monde Esprit : Barnabé Médium : Jimbeau Walsh Lieu : Nashville, Tennessee Date  … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

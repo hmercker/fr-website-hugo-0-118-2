@@ -1,7 +1,7 @@
 ---
 title: "Assez est ennuyeux"
 menu_title: ""
-description: "Assez est ennuyeux"
+description: "Marie, reçu par Amada Reza : « Il est important de se rappeler que je n’étais qu’une femme tout comme mon fils n’était qu’un homme. »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

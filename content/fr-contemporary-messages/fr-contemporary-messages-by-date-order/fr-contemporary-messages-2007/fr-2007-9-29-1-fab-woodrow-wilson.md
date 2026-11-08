@@ -1,7 +1,7 @@
 ---
 title: "Les souffrances d'un président"
 menu_title: ""
-description: "Les souffrances d'un président"
+description: "Woodrow Wilson, reçu par FAB : « Je souhaite compléter ma canalisation du 20 Décembre 2006. Comme vous l'avez correctement supposé, je n'ai moi-même pas … »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

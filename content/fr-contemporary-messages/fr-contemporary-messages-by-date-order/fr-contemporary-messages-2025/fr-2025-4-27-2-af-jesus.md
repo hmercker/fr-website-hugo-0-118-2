@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour la retraite de Running Springs"
 menu_title: ""
-description: "Bénédiction pour la retraite de Running Springs"
+description: "Jésus, reçu par Albert Fike : « Je vous bénis dans la paix qui dépasse toute compréhension, dans la joie de l’amour divin. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

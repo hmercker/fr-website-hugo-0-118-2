@@ -1,7 +1,7 @@
 ---
 title: "Vous continuez à vous éveiller alors que vos âmes grandissent dans l'Amour du Père"
 menu_title: ""
-description: "Vous continuez à vous éveiller alors que vos âmes grandissent dans l'Amour du Père"
+description: "Seretta Kem, reçu par Al Fike : « Âmes bien-aimées, c’est Seretta Kem. Je souhaite assurer, à chacun d’entre vous, que vous serez guidés lorsque cela sera … »"
 date: 2022-06-01 06:00:01+00:870
 draft: False
 hidden: True

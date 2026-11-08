@@ -1,7 +1,7 @@
 ---
 title: "Mettez de côté vos peurs et vos préjugés"
 menu_title: ""
-description: "Mettez de côté vos peurs et vos préjugés"
+description: "Faith Nyquist, reçu par Albert Fike : « C’est Faith qui vous parle. Mon frère aîné Jésus s’est adressé à vous. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

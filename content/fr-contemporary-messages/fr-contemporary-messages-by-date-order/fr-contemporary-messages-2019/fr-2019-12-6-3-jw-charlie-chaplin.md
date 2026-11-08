@@ -1,7 +1,7 @@
 ---
 title: "Utilisez votre art pour répandre la vérité sur l'Amour de Dieu"
 menu_title: ""
-description: "Utilisez votre art pour répandre la vérité sur l'Amour de Dieu"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Il y a un certain temps que je n’ai pas pris la parole, mais je voudrais ajouter quelques mots. »"
 date: 2022-06-01 06:00:01+00:952
 draft: False
 hidden: True

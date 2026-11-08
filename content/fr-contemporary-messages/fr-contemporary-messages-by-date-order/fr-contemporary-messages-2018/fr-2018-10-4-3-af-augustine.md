@@ -1,7 +1,7 @@
 ---
 title: "Ayez foi dans le timing et la Volonté de Dieu"
 menu_title: ""
-description: "Ayez foi dans le timing et la Volonté de Dieu"
+description: "Augustin, reçu par Al Fike : « Vous savez que c’est Dieu qui vous a réunis. Vous voyez ce qui a transpiré dans vos relations et votre travail ensemble. »"
 date: 2022-06-01 06:00:01+00:499
 draft: False
 hidden: True

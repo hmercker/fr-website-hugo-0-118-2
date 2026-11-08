@@ -1,7 +1,7 @@
 ---
 title: "Saint Pierre sur le pardon du péché"
 menu_title: ""
-description: "Saint Pierre sur le pardon du péché"
+description: "St Pierre, reçu par James Padgett : « Comme vous ne le savez peut-être pas, il y a dans notre monde une loi qui fait souffrir l’âme de celui qui n’a pas … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

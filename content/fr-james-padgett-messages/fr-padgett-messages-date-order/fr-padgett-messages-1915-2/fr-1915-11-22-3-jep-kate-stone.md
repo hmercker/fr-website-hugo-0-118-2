@@ -1,7 +1,7 @@
 ---
 title: "Kate Stone exhorte Leslie à écrire à ses sœurs sur terre au sujet de la communication spirituelle"
 menu_title: ""
-description: "Kate Stone exhorte Leslie à écrire à ses sœurs sur terre au sujet de la communication spirituelle"
+description: "Kate Stone, reçu par James Padgett : « Permettez-moi d’écrire quelques mots, car je ne vous ai pas écrit depuis longtemps bien que, souvent, j’étais … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

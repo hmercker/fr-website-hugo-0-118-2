@@ -1,7 +1,7 @@
 ---
 title: "Les illusions de votre mental se dissoudront avec la progression de l'âme"
 menu_title: ""
-description: "Les illusions de votre mental se dissoudront avec la progression de l'âme"
+description: "Augustin, reçu par Albert Fike : « Je souhaite aborder un sujet qui est quelque peu conscient, mais important, à savoir les distorsions du mental et la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

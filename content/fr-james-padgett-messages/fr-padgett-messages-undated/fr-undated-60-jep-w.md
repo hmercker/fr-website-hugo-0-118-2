@@ -1,7 +1,7 @@
 ---
 title: "Aide donnée à un esprit"
 menu_title: ""
-description: "Aide donnée à un esprit"
+description: "W, reçu par James Padgett : « Permettez-moi écrire un peu. J’ai besoin de votre aide et je crois que vous pouvez m’aider, car on m’a dit que vous avez … »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Affirme qu’Orion est là pour nous aider sur Terre (Cercle de Prière en ligne)"
 menu_title: ""
-description: "Affirme qu’Orion est là pour nous aider sur Terre (Cercle de Prière en ligne)"
+description: "Jésus, reçu par Al Fike : « À tous égards, il est notre égal, à tous égards, il est synchronisé et en harmonie avec nous et les efforts qui sont faits … »"
 date: 2022-06-01 06:00:01+00:1671
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez forts, confiants et impatients d'embrasser un monde nouveau"
 menu_title: ""
-description: "Soyez forts, confiants et impatients d'embrasser un monde nouveau"
+description: "Augustin, reçu par Albert Fike : « Le monde est sur le point de s’ouvrir à vous, âmes bien-aimées. Vous êtes bien informés et conscients du monde matériel. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

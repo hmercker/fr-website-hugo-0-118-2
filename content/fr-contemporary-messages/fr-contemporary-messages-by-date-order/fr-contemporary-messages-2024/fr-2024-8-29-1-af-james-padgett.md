@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes des liens dans l’héritage"
 menu_title: ""
-description: "Vous êtes des liens dans l’héritage"
+description: "James Padgett, reçu par Albert Fike : « Quel privilège et quel honneur de vous parler. Pourtant, regardez ce que Dieu a pu accomplir à travers moi. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

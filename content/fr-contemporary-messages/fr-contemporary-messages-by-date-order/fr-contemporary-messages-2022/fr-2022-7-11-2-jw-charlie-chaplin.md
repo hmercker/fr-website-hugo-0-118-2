@@ -1,7 +1,7 @@
 ---
 title: "Rappelez-vous la lumière au bout du tunnel"
 menu_title: ""
-description: "Rappelez-vous la lumière au bout du tunnel"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Et les encouragements de ma chère mère m’ont donné le courage d’explorer ces dons à un âge précoce. »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Percy partage des aspects de son travail d'ange Céleste"
 menu_title: ""
-description: "Percy partage des aspects de son travail d'ange Céleste"
+description: "Percy Hayes, reçu par Albert Fike : « Quel bonheur d’avoir l’occasion de m’adresser à chacun d’entre vous et d’être entendu par la communauté. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

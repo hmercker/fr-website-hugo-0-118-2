@@ -1,7 +1,7 @@
 ---
 title: "Un siècle s’est écoulé"
 menu_title: ""
-description: "Un siècle s’est écoulé"
+description: "James Padgett, reçu par Al Fike : « Soyez bénis, c’est James Padgett et je souhaite vous remercier de poursuivre le travail que j’ai commencé il y a tant … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

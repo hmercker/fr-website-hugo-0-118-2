@@ -1,7 +1,7 @@
 ---
 title: "La Nouriture pour l'âme"
 menu_title: ""
-description: "La Nouriture pour l'âme"
+description: "Jésus, reçu par Révérend Dave Lampron : « Aujourd’hui, je souhaite vous parler d’un sujet d’une certaine importance qui concerne les vérités du Père et … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy a l’intention de permettre à l’esprit du Dr Stone de sortir de son corps pour lui montrer où elle vit, comme l’a fait Hélène avec M. Padgett"
 menu_title: ""
-description: "Mary Kennedy a l’intention de permettre à l’esprit du Dr Stone de sortir de son corps pour lui montrer où elle vit, comme l’a fait Hélène avec M. Padgett"
+description: "Mary Kennedy, reçu par James Padgett : « J’ai très envie d’écrire car j’attends depuis un certain temps de pouvoir envoyer une communication à mon cher … »"
 date: 2022-06-01 06:00:01+00:255
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reconnaîssez Jésus pour la vérité qu'il a apportée au monde"
 menu_title: ""
-description: "Reconnaîssez Jésus pour la vérité qu'il a apportée au monde"
+description: "Augustin, reçu par Al Fike : « Chaque acte d’amour est une brique sur ce chemin que vous vous créez en exprimant la lumière et l’amour dans le monde. »"
 date: 2023-09-01 06:00:01+00:62
 draft: False
 hidden: True

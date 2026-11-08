@@ -1,7 +1,7 @@
 ---
 title: "Désir d'être comme Jésus"
 menu_title: ""
-description: "Désir d'être comme Jésus"
+description: "St Jean : « De nombreuses âmes merveilleuses sont parmi vous et nous sommes tous bénis par la présence du Maître qui symbolise le plus grand instrument … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

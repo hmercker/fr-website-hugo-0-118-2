@@ -1,7 +1,7 @@
 ---
 title: "L’évolution du corps physique et les messages de James Padgett"
 menu_title: ""
-description: "L’évolution du corps physique et les messages de James Padgett"
+description: "Jésus, reçu par FAB : « Je souhaite écrire maintenant sur le sujet de l’évolution du corps physique en relation avec les messages reçus par James Padgett. »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

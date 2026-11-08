@@ -1,7 +1,7 @@
 ---
 title: "Honorer les soignants – S’occuper des autres"
 menu_title: ""
-description: "Honorer les soignants – S’occuper des autres"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Beaucoup dans le monde ne peuvent pas comprendre les défis de prendre soin des autres qui sont dans … »"
 date: 2022-06-01 06:00:01+00:1016
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La prière, l’Amour Divin et le fait d’être les instruments de Dieu dans le monde"
 menu_title: ""
-description: "La prière, l’Amour Divin et le fait d’être les instruments de Dieu dans le monde"
+description: "Jésus, reçu par Albert Fike : « Les lois sont respectées — et je fais partie de ces lois, tout comme les anges du ciel — afin d’œuvrer avec diligence … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

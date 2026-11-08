@@ -1,7 +1,7 @@
 ---
 title: "Ceci est le chemin"
 menu_title: ""
-description: "Ceci est le chemin"
+description: "Judas, reçu par Jimbeau Walsh : « Mes frères et sœurs, nous vivons une période de grands changements, et je vous dis quelque chose que vous ne savez pas … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

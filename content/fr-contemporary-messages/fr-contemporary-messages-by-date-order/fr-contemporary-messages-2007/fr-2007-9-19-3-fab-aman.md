@@ -1,7 +1,7 @@
 ---
 title: "Le language des premiers parents - 2"
 menu_title: ""
-description: "Le language des premiers parents - 2"
+description: "Aman, reçu par FAB : « J'ai décrit, dans mon channeling du 26 janvier 2007, le langage qu'Amon et moi utilisions comme étant assez primitif. »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

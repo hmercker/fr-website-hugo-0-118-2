@@ -1,7 +1,7 @@
 ---
 title: "Un message d’Hélène"
 menu_title: ""
-description: "Un message d’Hélène"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu as entendu beaucoup de messages, mais aucun comme le dernier. Je n’ai jamais été en … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

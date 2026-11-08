@@ -1,7 +1,7 @@
 ---
 title: "Mettez en pratique la Vérité de l'Amour de Dieu dans tout ce que vous faites"
 menu_title: ""
-description: "Mettez en pratique la Vérité de l'Amour de Dieu dans tout ce que vous faites"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant, Augustin. Que l’Amour du Père continue à remplir vos âmes en vous rapprochant toujours plus du … »"
 date: 2022-06-01 06:00:01+00:308
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "44ème Sermon – Jérémie à Jérusalem"
 menu_title: ""
-description: "44ème Sermon – Jérémie à Jérusalem"
+description: "Jésus, reçu par Dr Samuels : « Le chapitre 5 commence ainsi : « Parcourez les rues de Jérusalem » Jérémie avait vécu assez longtemps dans la capitale et … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

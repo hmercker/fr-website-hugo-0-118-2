@@ -1,7 +1,7 @@
 ---
 title: "Leytergus, un ancien esprit, a écrit un livre sur la description de la création et la chute de l’homme. Le livre de la Genèse a été copié sur ses écritures"
 menu_title: ""
-description: "Leytergus, un ancien esprit, a écrit un livre sur la description de la création et la chute de l’homme. Le livre de la Genèse a été copié sur ses écritures"
+description: "Leytergus, reçu par James Padgett : « J’étais originaire d’Arabie et j’ai vécu avant l’époque d’Abraham, le patriarche Juif. Le livre de la Genèse a été … »"
 date: 2022-06-01 06:00:01+00:187
 draft: False
 hidden: True

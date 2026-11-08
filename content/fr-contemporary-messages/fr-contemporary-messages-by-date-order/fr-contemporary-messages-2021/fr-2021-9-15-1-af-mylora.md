@@ -1,7 +1,7 @@
 ---
 title: "Accueille Lorraine à la retraite Voix Directe"
 menu_title: ""
-description: "Accueille Lorraine à la retraite Voix Directe"
+description: "Mylora, reçu par Al Fike : « Pendant cette période de patience, nous avons été en mesure d’accomplir beaucoup de choses avec elle et à travers elle afin … »"
 date: 2022-06-01 06:00:01+00:1642
 draft: False
 hidden: True

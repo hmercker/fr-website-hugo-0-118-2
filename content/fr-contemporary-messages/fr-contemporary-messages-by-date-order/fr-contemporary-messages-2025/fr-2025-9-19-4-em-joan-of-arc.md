@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu pour Ses Enfants"
 menu_title: ""
-description: "L'Amour de Dieu pour Ses Enfants"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Lorsque je vivais sur terre, j'habitais ici. Et maintenant, je vis avec Dieu dans le royaume Céleste, où de … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

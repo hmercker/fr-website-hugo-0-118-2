@@ -1,7 +1,7 @@
 ---
 title: "Exprime sa déception face aux changements culturels à la Barbade"
 menu_title: ""
-description: "Exprime sa déception face aux changements culturels à la Barbad"
+description: "James Tudor Sr, reçu par Albert Fike : « J'étais avec vous, ces quatre-là qui se sont réunis pour parler et discuter de cultures et de politique, de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

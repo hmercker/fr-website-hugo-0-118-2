@@ -1,7 +1,7 @@
 ---
 title: "Etablir un fondement de vérite, d'humilite, d'amour et de grace"
 menu_title: ""
-description: "Etablir un fondement de vérite, d'humilite, d'amour et de grace"
+description: "Bartholomée, reçu par Al Fike : « Alors que vous faites le compte de vos efforts, je vois que vous êtes bien content, et je souhaite que vous sachiez que … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

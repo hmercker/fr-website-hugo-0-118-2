@@ -1,7 +1,7 @@
 ---
 title: "La négativité dans la guerre - 2"
 menu_title: ""
-description: "La négativité dans la guerre - 2"
+description: "Wat Tyler, reçu par FAB : « Vous avez réfléchi au message que j'ai canalisé il y a deux jours. Vous vous demandez comment nous, les paysans, aurions pu … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

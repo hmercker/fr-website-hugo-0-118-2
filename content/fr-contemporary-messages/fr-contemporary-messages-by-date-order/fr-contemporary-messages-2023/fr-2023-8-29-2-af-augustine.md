@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de se préparer aux changements à venir dans le monde"
 menu_title: ""
-description: "Il est temps de se préparer aux changements à venir dans le monde"
+description: "Augustin, reçu par Albert Fike : « Bénédictions à vous, mes étudiants. Il est temps de redoubler d’efforts dans la prière, beaux chercheurs de vérité. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

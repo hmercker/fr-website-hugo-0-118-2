@@ -1,7 +1,7 @@
 ---
 title: "Conseils et affirmations pour prendre au sérieux les conseils de Jésus"
 menu_title: ""
-description: "Conseils et affirmations pour prendre au sérieux les conseils de Jésus"
+description: "Pierre, reçu par Albert Fike : « Le Maître a montré sa lumière et son autorité en vous parlant. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

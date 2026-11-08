@@ -1,7 +1,7 @@
 ---
 title: "14ème Révélation : Les prophéties de Daniel"
 menu_title: ""
-description: "14ème Révélation : Les prophéties de Daniel"
+description: "Jesus, reçu par Dr Samuels : « En effet, malheureusement, ils ne s’intéressaient pas aux prédictions de Daniel à cause de leur manque de spiritualité et … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

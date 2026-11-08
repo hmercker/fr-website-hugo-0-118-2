@@ -1,7 +1,7 @@
 ---
 title: "Suivez-nous au Royaume des Cieux"
 menu_title: ""
-description: "Suivez-nous au Royaume des Cieux"
+description: "Simon, reçu par Al Fike : « Que Dieu étende Sa grande couverture de lumière sur vous, âmes bien-aimées. Je réside dans le Royaume Céleste avec tous mes … »"
 date: 2022-06-01 06:00:01+00:1490
 draft: False
 hidden: True

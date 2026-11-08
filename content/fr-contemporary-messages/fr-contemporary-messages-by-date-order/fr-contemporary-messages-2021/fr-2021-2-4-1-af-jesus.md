@@ -1,7 +1,7 @@
 ---
 title: "Leçon 19 : La nature de l’univers et la place de l’humanité en son sein"
 menu_title: ""
-description: "Leçon 19 : La nature de l’univers et la place de l’humanité en son sein"
+description: "Jésus, reçu par Al Fike : « Que la grande bénédiction d’Amour Divin de Dieu coule dans vos âmes afin que vous soyez transformés et éveillés dans cette … »"
 date: 2022-06-01 06:00:01+00:1404
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les politiciens dans le monde des esprits"
 menu_title: ""
-description: "Les politiciens dans le monde des esprits"
+description: "William Howard Taft, reçu par FAB : « Permettez-moi de parler de mon destin ici, et de celui des politiciens de notre pays en général. »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

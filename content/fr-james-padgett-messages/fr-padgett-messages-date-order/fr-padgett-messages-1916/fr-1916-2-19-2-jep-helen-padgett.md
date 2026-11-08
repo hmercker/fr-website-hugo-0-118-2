@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente l’esprit précédant"
 menu_title: ""
-description: "Hélène commente l’esprit précédant"
+description: "Hélène Padgett, reçu par James Padgett : « Je n’écrirai qu’une ligne, car il est très tard. Je ne l’avais jamais vu auparavant, mais il venait des Sphères … »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

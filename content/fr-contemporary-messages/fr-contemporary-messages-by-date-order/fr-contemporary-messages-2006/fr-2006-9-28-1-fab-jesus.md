@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud - Les Femmes"
 menu_title: ""
-description: "Jésus et le Talmud - Les Femmes"
+description: "Jésus, reçu par FAB : « Aujourd'hui, je souhaite parler des femmes. Tout Juif sincère est fier du fait que l'héritage Juif honore les femmes d'une manière … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

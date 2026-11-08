@@ -1,7 +1,7 @@
 ---
 title: "Œuvres en coulisses"
 menu_title: ""
-description: "Œuvres en coulisses"
+description: "Anne (grand mère de Jésus), reçu par Elizabeth Mack : « J’invite les âmes à se rapprocher de nous afin que nous puissions leur témoigner notre amour. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

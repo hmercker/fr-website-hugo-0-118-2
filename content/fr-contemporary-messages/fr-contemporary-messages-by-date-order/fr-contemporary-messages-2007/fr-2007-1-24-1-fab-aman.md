@@ -1,7 +1,7 @@
 ---
 title: "Les premiers parents - une description physique"
 menu_title: ""
-description: "Les premiers parents - une description physique"
+description: "Aman, reçu par FAB : « Je vais maintenant tenter de décrire mon apparence physique et celle de mon partenaire, Amon. »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

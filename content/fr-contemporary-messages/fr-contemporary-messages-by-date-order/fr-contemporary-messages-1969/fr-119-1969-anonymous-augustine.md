@@ -1,7 +1,7 @@
 ---
 title: "L'homme doit avoir ces lois de Dieu"
 menu_title: ""
-description: "L'homme doit avoir ces lois de Dieu"
+description: "Augustin : « Certains d'entre vous donnent beaucoup de temps à ceux qui cherchent, mais lorsque la voix directe viendra, vous ne pourrez pas faire ce … »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

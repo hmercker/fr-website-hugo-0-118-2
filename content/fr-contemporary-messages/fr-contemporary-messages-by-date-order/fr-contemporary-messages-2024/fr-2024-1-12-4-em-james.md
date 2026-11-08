@@ -1,7 +1,7 @@
 ---
 title: "La lumière de vos âmes enflamme de nombreuses âmes sur cette île"
 menu_title: ""
-description: "La lumière de vos âmes enflamme de nombreuses âmes sur cette île"
+description: "Jacques, reçu par Elizabeth Mack : « Car vous êtes un groupe puissant et uni dans l'âme. Je vois qu'il ne faudra pas grand-chose pour allumer la flamme de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

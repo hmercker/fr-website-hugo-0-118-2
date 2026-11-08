@@ -1,7 +1,7 @@
 ---
 title: "Établir des portails, des centres et des cercles de lumières"
 menu_title: ""
-description: "Établir des portails, des centres et des cercles de lumières"
+description: "Augustin, reçu par Al Fike : « Il y a plusieurs années, nous vous avons donné l’instruction d’aller dans le monde et d’établir des Cercles et des Centres … »"
 date: 2022-06-01 06:00:01+00:906
 draft: False
 hidden: True

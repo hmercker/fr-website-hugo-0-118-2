@@ -1,7 +1,7 @@
 ---
 title: "Les bénédictions illimitées de l’Amour de Dieu"
 menu_title: ""
-description: "Les bénédictions illimitées de l’Amour de Dieu"
+description: "Faith, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père soient vôtres, mes amis. Bien que vous veniez de différentes régions du monde … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

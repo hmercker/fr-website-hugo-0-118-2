@@ -1,7 +1,7 @@
 ---
 title: "De magnifiques bénédictions d'un formidable pouvoir de guérison, de paix et d'amour se déverseront en abondance"
 menu_title: ""
-description: "De magnifiques bénédictions d'un formidable pouvoir de guérison, de paix et d'amour se déverseront en abondance"
+description: "Keea atta Kem, reçu par Albert Fike : « De magnifiques bénédictions viendront à chacun d’entre vous lors de vos moments ensemble, au sein de votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

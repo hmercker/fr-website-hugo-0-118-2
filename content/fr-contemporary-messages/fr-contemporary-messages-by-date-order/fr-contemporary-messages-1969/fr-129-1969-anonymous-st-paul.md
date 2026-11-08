@@ -1,7 +1,7 @@
 ---
 title: "Soyez purs dans vos pensées et dans votre vie"
 menu_title: ""
-description: "Soyez purs dans vos pensées et dans votre vie"
+description: "St Paul : « Que la paix et la sagesse qui vient d'une seule Source soit vôtre. Que vos désirs de grand Amour soient exaucés et que vous puissiez aller de … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

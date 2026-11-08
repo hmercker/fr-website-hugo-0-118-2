@@ -1,7 +1,7 @@
 ---
 title: "Accompagnement personnel pour la tournée de Septembre"
 menu_title: ""
-description: "Accompagnement personnel pour la tournée de Septembre"
+description: "Confucius, reçu par Albert Fike : « Je souhaite vous encourager dans vos voyages. Je vous suggère d’atteindre le plus grand nombre possible de personnes … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

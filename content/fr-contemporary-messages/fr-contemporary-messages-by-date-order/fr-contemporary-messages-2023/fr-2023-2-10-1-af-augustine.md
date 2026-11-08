@@ -1,7 +1,7 @@
 ---
 title: "Les obstacles à l'éveil de l'âme"
 menu_title: ""
-description: "Les obstacles à l'éveil de l'âme"
+description: "Augustin, reçu par Al Fike : « Dans votre monde occidental, comme vous l’appelez, vos enfants sont éduqués à un point tel que beaucoup de leurs capacités … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

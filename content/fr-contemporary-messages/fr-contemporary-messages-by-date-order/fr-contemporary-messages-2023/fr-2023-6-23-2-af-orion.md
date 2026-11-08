@@ -1,7 +1,7 @@
 ---
 title: "Les anges vous servent et vous protègent"
 menu_title: ""
-description: "Les anges vous servent et vous protègent"
+description: "Orion, reçu par Al Fike : « Que cette journée ensemble soit bénie. L’harmonie que vous ressentez est l’harmonie de vos âmes se réjouissant de votre … »"
 date: 2023-09-01 06:00:01+00:42
 draft: False
 hidden: True

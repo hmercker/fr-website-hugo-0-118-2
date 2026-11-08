@@ -1,7 +1,7 @@
 ---
 title: "L’expérimentation a son prix"
 menu_title: ""
-description: "L’expérimentation a son prix"
+description: "Kathryn Stokes, reçu par Albert Fike : « Je m’appelle Kathryn Stokes. J’ai connu ces deux belles âmes qui sont venues chez moi. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

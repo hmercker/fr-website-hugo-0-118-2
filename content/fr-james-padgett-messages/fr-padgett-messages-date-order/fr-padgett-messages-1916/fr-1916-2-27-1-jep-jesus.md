@@ -1,7 +1,7 @@
 ---
 title: "Reporte son message pour corriger la pensée de M. Padgett avant qu’il ne puisse écrire à nouveau"
 menu_title: ""
-description: "Reporte son message pour corriger la pensée de M. Padgett avant qu’il ne puisse écrire à nouveau"
+description: "Jésus, reçu par James Padgett : « Je vois que vous n’êtes pas en condition ce soir et je n’essaierai pas, car je ne serais pas capable de vous transmettre … »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

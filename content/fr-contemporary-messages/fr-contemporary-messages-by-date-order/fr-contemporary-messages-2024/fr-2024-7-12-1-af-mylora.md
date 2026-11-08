@@ -1,7 +1,7 @@
 ---
 title: "La paix qui dépasse toute intelligence"
 menu_title: ""
-description: "La paix qui dépasse toute intelligence"
+description: "Mylora, reçu par Albert Fike : « Que l’Amour de Dieu soit avec vous, âmes bien-aimées. Je m’engage auprès de chacun d’entre vous et je vous demande de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

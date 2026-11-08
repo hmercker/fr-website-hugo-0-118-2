@@ -1,7 +1,7 @@
 ---
 title: "Son amour merveilleux"
 menu_title: ""
-description: "Son amour merveilleux"
+description: "Goldie, reçu par Al Fike : « J'espère que vous pouvez ressentir ma joie et la joie de tous les beaux anges qui travaillent avec vous et voir vos lumières … »"
 date: 2022-06-01 06:00:01+00:218
 draft: False
 hidden: True

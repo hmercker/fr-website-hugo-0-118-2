@@ -1,7 +1,7 @@
 ---
 title: "41ème Révélation : Événements dans le jardin de Gethsémani; Pilate et Hérode"
 menu_title: ""
-description: "41ème Révélation : Événements dans le jardin de Gethsémani; Pilate et Hérode"
+description: "Jésus, reçu par Dr Samuels : « Donc, je ne vais pas vous écrire au sujet de la réincarnation, ce soir, bien que j’aie écouté votre conversation et vos … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

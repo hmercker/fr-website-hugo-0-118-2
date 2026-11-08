@@ -1,7 +1,7 @@
 ---
 title: "Dons de l'âme"
 menu_title: ""
-description: "Dons de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Vous avez tous de nombreux dons. Ces dons qui sont les plus évidents ne sont pas nécessairement les plus puissants que … »"
 date: 2022-06-01 06:00:01+00:702
 draft: False
 hidden: True

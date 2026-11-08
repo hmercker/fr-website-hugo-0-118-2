@@ -1,7 +1,7 @@
 ---
 title: "Cornelius, le centurion de la Bible et le premier Chrétien Païen à être dans les Cieux Célestes"
 menu_title: ""
-description: "Cornelius, le centurion de la Bible et le premier Chrétien Païen à être dans les Cieux Célestes"
+description: "Corneille, reçu par James Padgett : « Je n’écrirai que quelques lignes afin d’établir une relation avec vous en attendant de vous écrire plus longuement … »"
 date: 2022-06-01 06:00:01+00:273
 draft: False
 hidden: True

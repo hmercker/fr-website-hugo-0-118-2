@@ -1,7 +1,7 @@
 ---
 title: "Gardez vos prières simples"
 menu_title: ""
-description: "Gardez vos prières simples"
+description: "Moïse, reçu par reçu par Al Fike : « Que les bénédictions de notre Dieu bien-aimé soient sur vous. Vous portez la bannière de la Vérité, qui est le don de … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

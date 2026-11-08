@@ -1,7 +1,7 @@
 ---
 title: "Manifestations et expériences Sprituelles"
 menu_title: ""
-description: "Manifestations et expériences Sprituelles"
+description: "George Gurdjieff, reçu par Al Fike : « Que les bénédictions de l’Amour de Dieu soient sur vous. Vous qui avez voyagé loin et pourtant vous vous êtes … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Diversité, unité et généalogie"
 menu_title: ""
-description: "Diversité, unité et généalogie"
+description: "St Luc, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur vous, vous bénisse et vous guérisse. Qu’il vous élève et vous change. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

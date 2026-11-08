@@ -1,7 +1,7 @@
 ---
 title: "52ème Sermon – Les tribulations de Jérémie en tant que prophète pacifiste"
 menu_title: ""
-description: "52ème Sermon – Les tribulations de Jérémie en tant que prophète pacifiste"
+description: "Jésus, reçu par Dr Samuels : « Pendant ce temps, depuis 597 av J.-C. Sédécias maintenait son attitude d’hésitation en tant que vassal de Babylone, en … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

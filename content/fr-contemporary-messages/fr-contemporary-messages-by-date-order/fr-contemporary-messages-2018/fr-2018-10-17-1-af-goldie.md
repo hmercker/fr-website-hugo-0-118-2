@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu apporte la plus grande joie"
 menu_title: ""
-description: "L'Amour de Dieu apporte la plus grande joie"
+description: "Goldie, reçu par Al Fike : « La plus grande joie vient de l’Amour de Dieu, n’est-ce pas, alors que vos âmes chantent dans la joie et la reconnaissance de … »"
 date: 2022-06-01 06:00:01+00:519
 draft: False
 hidden: True

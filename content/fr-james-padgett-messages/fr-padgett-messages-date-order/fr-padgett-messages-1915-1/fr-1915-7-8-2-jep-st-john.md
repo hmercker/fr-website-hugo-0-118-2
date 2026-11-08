@@ -1,7 +1,7 @@
 ---
 title: "St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel"
 menu_title: ""
-description: "St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel"
+description: "St Jean, reçu par James Padgett : « Je vous parlerai d’amour, car c’est pour cela que vous m’avez appelé. L’amour que j’ai enseigné sur terre est l’Amour … »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

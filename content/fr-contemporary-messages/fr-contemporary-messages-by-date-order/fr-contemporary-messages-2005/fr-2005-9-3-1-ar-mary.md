@@ -1,7 +1,7 @@
 ---
 title: "Un don à Dieu"
 menu_title: ""
-description: "Un don à Dieu"
+description: "Marie, reçu par Amada Reza : « Je souhaite partager mes pensées sur le libre arbitre et la façon dont ce don est utilisé par l’individu qui aspire à … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

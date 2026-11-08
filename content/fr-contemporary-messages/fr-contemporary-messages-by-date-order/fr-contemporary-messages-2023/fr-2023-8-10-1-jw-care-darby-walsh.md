@@ -1,7 +1,7 @@
 ---
 title: "Aide Céleste"
 menu_title: ""
-description: "Aide Céleste"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Non seulement à cause du lieu où je réside, mais pour vous voir tous édifiés et commencer à voir le voyage à … »"
 date: 2023-09-01 06:00:01+00:60
 draft: False
 hidden: True

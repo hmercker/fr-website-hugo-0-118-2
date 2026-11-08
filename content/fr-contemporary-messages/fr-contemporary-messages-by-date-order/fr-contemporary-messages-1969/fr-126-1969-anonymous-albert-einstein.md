@@ -1,7 +1,7 @@
 ---
 title: "L'énergie de l'atmosphère"
 menu_title: ""
-description: "L'énergie de l'atmosphère"
+description: "Albert Einstein : « J'ai attendu longtemps pour venir vous parler, mes amis et je vais m'efforcer de vous parler sans accent et essayer de vous parler en … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

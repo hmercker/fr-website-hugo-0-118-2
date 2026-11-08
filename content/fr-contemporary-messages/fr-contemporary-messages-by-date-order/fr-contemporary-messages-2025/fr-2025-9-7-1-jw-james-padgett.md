@@ -1,7 +1,7 @@
 ---
 title: "L'humilité est la clé"
 menu_title: ""
-description: "L'humilité est la clé"
+description: "James Padgett, reçu par Jimbeau Walsh : « Vous honorez mon travail en suggérant à tous la vérité qu'il contient, la vérité que j'ai reçue, et je vous en … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

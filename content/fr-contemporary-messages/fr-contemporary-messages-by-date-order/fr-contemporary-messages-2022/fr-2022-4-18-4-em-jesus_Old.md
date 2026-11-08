@@ -1,7 +1,7 @@
 ---
 title: "Vous portez en vous des vérités sacrées"
 menu_title: ""
-description: "Vous portez en vous des vérités sacrées"
+description: "Jésus, reçu par Elizabeth Mack : « Nous avons la grâce de nous joindre à vous et de vous bénir de l’Amour du Père. Vous portez en vous une vérité sacrée à … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

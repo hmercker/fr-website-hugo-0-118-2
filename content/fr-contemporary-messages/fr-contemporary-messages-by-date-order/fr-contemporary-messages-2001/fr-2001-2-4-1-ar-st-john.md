@@ -1,7 +1,7 @@
 ---
 title: "Laissez-vous aller et soyez juste Amour"
 menu_title: ""
-description: "Laissez-vous aller et soyez juste Amour"
+description: "St Jean, reçu par Amada Reza : « Tu peux voir l'évidence de l'Amour de Dieu dans la beauté de cette terre naturelle et réaliser humblement le pouvoir de … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

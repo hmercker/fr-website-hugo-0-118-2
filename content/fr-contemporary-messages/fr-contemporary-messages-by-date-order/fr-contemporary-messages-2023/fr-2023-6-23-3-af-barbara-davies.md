@@ -1,7 +1,7 @@
 ---
 title: "N'ayez pas peur"
 menu_title: ""
-description: "N'ayez pas peur"
+description: "Barbara Davies, reçu par Al Fike : « Je connais bien chacun d’entre vous. Nous avons eu de nombreuses conversations ensemble dans votre état de sommeil … »"
 date: 2023-09-01 06:00:01+00:43
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Transcender l'esprit égoïste : Un avertissement Céleste"
 menu_title: ""
-description: "Transcender l'esprit égoïste : Un avertissement Céleste"
+description: "Augustin, reçu par Albert Fike : « Que Dieu te bénisse, ma chère fille, ton maître Augustin est ici. Lorsque nous t’ obligeons sur le plan terrestre à … »"
 date: 2023-09-01 06:00:01+00:48
 draft: False
 hidden: True

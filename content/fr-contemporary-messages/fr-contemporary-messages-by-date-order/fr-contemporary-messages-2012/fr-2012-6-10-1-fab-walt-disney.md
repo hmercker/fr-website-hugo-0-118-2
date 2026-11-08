@@ -1,7 +1,7 @@
 ---
 title: "Inharmonie et Boomerang"
 menu_title: ""
-description: "Inharmonie et Boomerang"
+description: "Walt Disney, reçu par FAB : « Alors que vous poursuivez la lecture de ma vie, je tiens à préciser que j’ai dû répondre de certaines choses que j’ai dites … »"
 date: 2022-06-01 06:00:01+00:267
 draft: False
 hidden: True

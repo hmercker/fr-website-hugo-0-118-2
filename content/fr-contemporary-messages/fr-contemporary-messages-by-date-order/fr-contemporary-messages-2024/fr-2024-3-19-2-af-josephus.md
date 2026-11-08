@@ -1,7 +1,7 @@
 ---
 title: "Répond à la question de Geoff Cutler"
 menu_title: ""
-description: "Répond à la question de Geoff Cutler"
+description: "Flavius Josèphe, reçu par Albert Fike : « Question : Nous comprenons parfaitement les sept sphères qui se trouvent sur le chemin d’un humain après sa … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

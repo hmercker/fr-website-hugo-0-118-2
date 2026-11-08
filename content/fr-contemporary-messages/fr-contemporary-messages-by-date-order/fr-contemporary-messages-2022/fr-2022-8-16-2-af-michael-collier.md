@@ -1,7 +1,7 @@
 ---
 title: "La chance d'avoir une communauté"
 menu_title: ""
-description: "La chance d'avoir une communauté"
+description: "Michael Collier, reçu par Al Fike : « Que le grand don de l’amour pénètre dans vos âmes, mes amis. Puissiez-vous être réceptifs à cet afflux alors que … »"
 date: 2023-09-01 06:00:01+00:41
 draft: False
 hidden: True

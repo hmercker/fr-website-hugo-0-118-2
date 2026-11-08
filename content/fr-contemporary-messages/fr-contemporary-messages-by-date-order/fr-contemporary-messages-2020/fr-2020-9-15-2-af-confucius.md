@@ -1,7 +1,7 @@
 ---
 title: "Puissante bénédiction de guérison"
 menu_title: ""
-description: "Puissante bénédiction de guérison"
+description: "Confucius, reçu par Al Fike : « Je vous apporte une bénédiction de guérison. Je touche chacun de vous avec un baume de guérison pour vous apporter la paix … »"
 date: 2022-06-01 06:00:01+00:1251
 draft: False
 hidden: True

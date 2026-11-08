@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous enfants de Dieu et son amour est accessible à tous"
 menu_title: ""
-description: "Nous sommes tous enfants de Dieu et son amour est accessible à tous"
+description: "Jésus, reçu par Albert Fike : « Je ne suis pas le Jésus que beaucoup prétendent être. C'est le message que j'ai partagé il y a tant d'années et que je … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

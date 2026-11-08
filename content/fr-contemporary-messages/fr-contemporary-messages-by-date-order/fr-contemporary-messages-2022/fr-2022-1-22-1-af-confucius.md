@@ -1,7 +1,7 @@
 ---
 title: "Partager nos dons de guérison"
 menu_title: ""
-description: "Partager nos dons de guérison"
+description: "Confucius, reçu par Al Fike : « Dieu ouvre de nombreuses voies pour qu'il en soit ainsi. C'est à vous de vous éveiller à ces choses, de les désirer, de … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

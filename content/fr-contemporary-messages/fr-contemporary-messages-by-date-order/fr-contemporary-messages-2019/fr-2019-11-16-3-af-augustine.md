@@ -1,7 +1,7 @@
 ---
 title: "Venez à Dieu avec humilité"
 menu_title: ""
-description: "Venez à Dieu avec humilité"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, précieuses pour Dieu, vous devez vous approcher de Dieu avec humilité, confiance et foi. »"
 date: 2022-06-01 06:00:01+00:912
 draft: False
 hidden: True

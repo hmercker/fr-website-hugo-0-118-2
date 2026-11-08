@@ -1,7 +1,7 @@
 ---
 title: "Allez plus profondément pour être dans vos âmes"
 menu_title: ""
-description: "Allez plus profondément pour être dans vos âmes"
+description: "Barbara Davies, reçu par Albert Fike : « Beaucoup sont venus vers moi à cause de ma nature maternelle. Beaucoup se sont sentis réconfortés et bénis, mais … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

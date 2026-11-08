@@ -1,7 +1,7 @@
 ---
 title: "Perry, un vieil ami de M. Padgett a écrit au sujet de son suicide et de sa condition dans l’obscurité"
 menu_title: ""
-description: "Perry, un vieil ami de M. Padgett a écrit au sujet de son suicide et de sa condition dans l’obscurité"
+description: "Ross Perry, reçu par James Padgett : « Je sais que vous pouvez trouver étrange que je n’aie pas écouté M. Riddle lorsque vous l’avez mis en relation avec … »"
 date: 2022-06-01 06:00:01+00:290
 draft: False
 hidden: True

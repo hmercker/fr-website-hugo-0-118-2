@@ -1,7 +1,7 @@
 ---
 title: "Soyez courageux et portez la flamme de la vérité"
 menu_title: ""
-description: "Soyez courageux et portez la flamme de la vérité"
+description: "Faith Nyquist, reçu par Al Fike : « Merci pour cette belle prière, mon frère. Cela nous réchauffe le cœur, nous qui sommes au Royaume Céleste, de vous … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

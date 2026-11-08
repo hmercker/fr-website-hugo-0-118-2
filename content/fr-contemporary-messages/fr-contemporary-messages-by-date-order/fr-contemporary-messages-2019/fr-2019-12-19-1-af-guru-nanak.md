@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de réconfort et d'amour sur votre parcours"
 menu_title: ""
-description: "Bénédiction de réconfort et d'amour sur votre parcours"
+description: "Guru Nanak, reçu par Al Fike : « Un voyage formidable, mes amis, un voyage qui ne fait souvent pas partie de la vie dans votre monde, un voyage qui exige … »"
 date: 2022-06-01 06:00:01+00:964
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Donnez votre amour"
 menu_title: ""
-description: "Donnez votre amour"
+description: "Jérémie et Salomon, reçu par CC : « Cher C.C., nous sommes heureux d’être à nouveau en relation avec toi. Cela fait un moment, en termes de temps mortel … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

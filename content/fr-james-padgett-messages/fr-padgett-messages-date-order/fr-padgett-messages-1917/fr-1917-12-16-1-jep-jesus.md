@@ -1,7 +1,7 @@
 ---
 title: "Jésus dit que le monde devient plus spirituel et a besoin de nourriture spirituelle et que la guerre amène les personnes à réfléchir davantage à l’après-vie"
 menu_title: ""
-description: "Jésus dit que le monde devient plus spirituel et a besoin de nourriture spirituelle et que la guerre amène les personnes à réfléchir davantage à l’après-vie"
+description: "Jésus, reçu par James Padgett : « Je regrette qu’il en soit ainsi, mais c’est un fait, et nous devrons attendre encore un peu, ce qui ne devrait pas être … »"
 date: 2022-06-01 06:00:01+00:191
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Saint Étienne travaille à renforcer la foi de M. Padgett"
 menu_title: ""
-description: "Saint Étienne travaille à renforcer la foi de M. Padgett"
+description: "St Étienne, reçu par James Padgett : « Ayez la foi et vous verrez que tous vos désirs se réaliseront et vous pourrez bientôt recevoir ces messages sans … »"
 date: 2022-06-01 06:00:01+00:259
 draft: False
 hidden: True

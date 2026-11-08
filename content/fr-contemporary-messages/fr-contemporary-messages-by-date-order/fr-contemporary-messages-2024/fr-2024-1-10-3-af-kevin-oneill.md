@@ -1,7 +1,7 @@
 ---
 title: "Exprime ses regrets"
 menu_title: ""
-description: "Exprime ses regrets"
+description: "Kevin O'Neill, reçu par Albert Fike : « Bien trop humain à mon époque sur Terre, rempli de nombreux défauts, indulgences et peurs, toutes choses humaines. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Salomon écrit sur la sélection de M. Padgett par Jésus"
 menu_title: ""
-description: "Salomon écrit sur la sélection de M. Padgett par Jésus"
+description: "Salomon, reçu par James Padgett : « Votre sélection pour faire ce travail n’est pas une décision récente. Pendant longtemps les esprits les plus élevés … »"
 date: 2022-06-01 06:00:01+00:292
 draft: False
 hidden: True

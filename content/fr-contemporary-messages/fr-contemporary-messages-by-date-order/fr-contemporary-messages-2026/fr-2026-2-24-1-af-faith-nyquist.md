@@ -1,7 +1,7 @@
 ---
 title: "Éveillez-vous du sommeil du matérialisme"
 menu_title: ""
-description: "Éveillez-vous du sommeil du matérialisme"
+description: "Faith Nyquist, reçu par Al Fike : « Il est essentiel que le monde s'éveille. Tant de personnes dorment encore. »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

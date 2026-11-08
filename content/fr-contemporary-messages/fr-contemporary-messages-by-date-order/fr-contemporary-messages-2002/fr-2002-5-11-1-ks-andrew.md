@@ -1,7 +1,7 @@
 ---
 title: "Les yeux de l’Amour"
 menu_title: ""
-description: "Les yeux de l’Amour"
+description: "André, reçu par Kathryn Stokes : « Nous avons toujours des sujets sur lesquels nous pouvons nous étendre pour votre plus grande illumination et votre … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

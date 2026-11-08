@@ -1,7 +1,7 @@
 ---
 title: "Orientation"
 menu_title: ""
-description: "Orientation"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Comprenez-vous cette partie vitale en vous qui continue à rechercher la bénédiction de l’Amour de Dieu et qui a … »"
 date: 2023-09-01 06:00:01+00:07
 draft: False
 hidden: True

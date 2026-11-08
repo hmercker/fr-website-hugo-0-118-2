@@ -1,7 +1,7 @@
 ---
 title: "Mise en place de portails"
 menu_title: ""
-description: "Mise en place de portails"
+description: "Seretta Kem, reçu par Al Fike : « Tout d’abord, je voudrais discuter de l’importance de reconnaître et de réaliser le pouvoir de la loi de la … »"
 date: 2022-06-01 06:00:01+00:617
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu"
 menu_title: ""
-description: "Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Que l’Amour de Dieu coule dans nos âmes. La prière n’est-elle pas le désir du cœur d’être rempli d’amour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

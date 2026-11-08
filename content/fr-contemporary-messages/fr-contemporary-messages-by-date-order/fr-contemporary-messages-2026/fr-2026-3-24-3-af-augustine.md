@@ -1,7 +1,7 @@
 ---
 title: "Selon vos dons, vous recevrez le soutien et les bénédictions d’un ange qui vous accompagnera"
 menu_title: ""
-description: "Selon vos dons, vous recevrez le soutien et les bénédictions d’un ange qui vous accompagnera"
+description: "Augustin, reçu par Al Fike : « Comme vous pouvez le constater, en fonction de vos dons, vous recevrez le soutien et les bénédictions d’un ange qui vous … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jean dit que le moyen le plus efficace de rétablir le rapport est de prier plus sincèrement et plus fréquemment le Père pour l’afflux de Son Amour"
 menu_title: ""
-description: "Jean dit que le moyen le plus efficace de rétablir le rapport est de prier plus sincèrement et plus fréquemment le Père pour l’afflux de Son Amour"
+description: "St Jean, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, car je vois que vous vous attendez à ce que certains des esprits supérieurs … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

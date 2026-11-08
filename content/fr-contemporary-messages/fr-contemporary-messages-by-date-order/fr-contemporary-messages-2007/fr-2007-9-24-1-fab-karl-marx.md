@@ -1,7 +1,7 @@
 ---
 title: "Le célèbre révolutionnaire connaît la confusion"
 menu_title: ""
-description: "Le célèbre révolutionnaire connaît la confusion"
+description: "Karl Marx, reçu par FAB : « J’ai toujours été du genre à examiner la réalité et les faits concrets. Un fait que j’ai observé dans ce monde spirituel est … »"
 date: 2022-06-01 06:00:01+00:165
 draft: False
 hidden: True

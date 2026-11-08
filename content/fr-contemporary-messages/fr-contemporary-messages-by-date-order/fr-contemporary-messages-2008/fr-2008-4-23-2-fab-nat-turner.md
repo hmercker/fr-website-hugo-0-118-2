@@ -1,7 +1,7 @@
 ---
 title: "Le meurtre n’est pas justifié"
 menu_title: ""
-description: "Le meurtre n’est pas justifié"
+description: "Nat Turner, reçu par FAB : « Ce que je souhaite dire au monde, c’est qu’un meurtre est un meurtre, même si le meurtrier a été injustement traité. »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

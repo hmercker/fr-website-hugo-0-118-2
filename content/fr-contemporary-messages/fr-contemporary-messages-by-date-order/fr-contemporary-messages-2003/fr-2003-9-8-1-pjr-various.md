@@ -1,7 +1,7 @@
 ---
 title: "Il voit ton désir de le trouver"
 menu_title: ""
-description: "Il voit ton désir de le trouver"
+description: "Divers, reçu par PJR : « Même si tu te tournes davantage vers la vie terrestre, et les sujets qui y sont reliés, tu es toujours un enfant de Dieu et Son … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

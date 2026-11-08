@@ -1,7 +1,7 @@
 ---
 title: "Votre état d'âme"
 menu_title: ""
-description: "Votre état d'âme"
+description: "Judas, reçu par reçu par Jimbeau Walsh : « Frères et sœurs, vous qui venez à l’Amour de Dieu, en prenant le temps de vous retirer du monde, ne serait-ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

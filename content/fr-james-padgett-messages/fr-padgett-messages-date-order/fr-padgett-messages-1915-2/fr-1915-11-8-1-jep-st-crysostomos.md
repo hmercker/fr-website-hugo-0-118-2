@@ -1,7 +1,7 @@
 ---
 title: "Saint Chrysostome souhaite être inclus dans le livre puisqu’il aide M. Padgett dans son travail"
 menu_title: ""
-description: "Saint Chrysostome souhaite être inclus dans le livre puisqu’il aide M. Padgett dans son travail"
+description: "St Chrysostome, reçu par James Padgett : « Je sais que beaucoup d’esprits vous aideront et qu’un pouvoir merveilleux sera exercé par les esprits et … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

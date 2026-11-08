@@ -1,7 +1,7 @@
 ---
 title: "Vous devez être des exemples"
 menu_title: ""
-description: "Vous devez être des exemples"
+description: "Alec Gaunt, reçu par Al Fike : « Que l’Amour parfait de Dieu trouve un grand afflux dans vos âmes, mes amis, et que cet Amour vous transforme comme il le … »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

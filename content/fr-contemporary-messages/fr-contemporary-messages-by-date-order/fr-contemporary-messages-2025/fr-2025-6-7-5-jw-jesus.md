@@ -1,7 +1,7 @@
 ---
 title: "C'est l'univers du chant"
 menu_title: ""
-description: "C'est l'univers du chant"
+description: "Jésus, reçu par reçu par Jimbeau Walsh : « L’amour du Père répond à l’espoir de paix de ce monde, au désir du cœur d’être aimé, au souhait de l’esprit … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

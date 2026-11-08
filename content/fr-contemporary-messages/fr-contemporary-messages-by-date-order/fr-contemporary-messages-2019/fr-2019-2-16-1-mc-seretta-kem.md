@@ -1,7 +1,7 @@
 ---
 title: "Le processus d'expiation"
 menu_title: ""
-description: "Le processus d'expiation"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Je souhaite utiliser l’exemple de l’expérience récente de cette chère âme car elle est prête à me permettre de … »"
 date: 2022-06-01 06:00:01+00:645
 draft: False
 hidden: True

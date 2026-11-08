@@ -1,7 +1,7 @@
 ---
 title: "Portez l'Amour dans vos âmes"
 menu_title: ""
-description: "Portez l'Amour dans vos âmes"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « J’ai suivi votre conversation et croyez-moi, je peux sentir les intentions de vos cœurs et de vos âmes. »"
 date: 2022-06-01 06:00:01+00:1116
 draft: False
 hidden: True

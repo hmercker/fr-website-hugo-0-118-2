@@ -1,7 +1,7 @@
 ---
 title: "Dieu parle à chaque âme"
 menu_title: ""
-description: "Dieu parle à chaque âme"
+description: "Seretta Kem, reçu par Al Fike : « Comment, parfois, parler à travers un corps a ses limites et ses surprises. Pouvons-nous recommencer ? »"
 date: 2022-06-01 06:00:01+00:1336
 draft: False
 hidden: True

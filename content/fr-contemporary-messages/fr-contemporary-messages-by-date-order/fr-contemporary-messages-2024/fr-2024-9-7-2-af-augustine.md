@@ -1,7 +1,7 @@
 ---
 title: "Il faut notre puissance de prière pour rapprocher Dieu et les anges"
 menu_title: ""
-description: "Il faut notre puissance de prière pour rapprocher Dieu et les anges"
+description: "Augustin, reçu par Albert Fike : « Que l’Amour du Père soit sur vous, mes âmes bien-aimées, enfants de la vérité. N’oubliez pas qu’il faut beaucoup … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

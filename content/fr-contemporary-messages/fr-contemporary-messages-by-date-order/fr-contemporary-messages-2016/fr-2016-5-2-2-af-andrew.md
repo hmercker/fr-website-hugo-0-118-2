@@ -1,7 +1,7 @@
 ---
 title: "André sur deux choix – deux voies"
 menu_title: ""
-description: "André sur deux choix – deux voies"
+description: "André, reçu par Al Fike : « Et lorsque vous vivez en tant qu’esprit, ces souvenirs inondent votre conscience et ces perturbations profondes en vous, bien … »"
 date: 2022-06-01 06:00:01+00:200
 draft: False
 hidden: True

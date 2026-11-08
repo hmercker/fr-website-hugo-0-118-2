@@ -1,7 +1,7 @@
 ---
 title: "Riddle confirme que le martyr espagnol est celui qu’il prétend être"
 menu_title: ""
-description: "Riddle confirme que le martyr espagnol est celui qu’il prétend être"
+description: "Albert Riddle, reçu par James Padgett : « J’écris simplement pour expliquer que l’esprit qui prétend être un martyr espagnol est bien celui qu’il prétend … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

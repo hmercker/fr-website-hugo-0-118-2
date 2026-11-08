@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin va changer le monde, en commençant par vous"
 menu_title: ""
-description: "L’Amour Divin va changer le monde, en commençant par vous"
+description: "Augustin, reçu par Al Fike : « Malheureusement, cela ne me donne pas une grande satisfaction, car une grande partie de ce que j'ai établi et des … »"
 date: 2022-06-01 06:00:01+00:244
 draft: False
 hidden: True

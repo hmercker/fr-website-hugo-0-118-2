@@ -1,7 +1,7 @@
 ---
 title: "Les pouvoirs de Moïse"
 menu_title: ""
-description: "Les pouvoirs de Moïse"
+description: "Moïse, reçu par FAB : « Vous avez lu dans le message de James Padgett, que mon frère Aaron a reçu des pouvoirs inhabituels lors de notre combat contre … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

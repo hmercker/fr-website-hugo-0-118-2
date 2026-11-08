@@ -1,7 +1,7 @@
 ---
 title: "38ème Sermon – Le jour du jugement comme visionné par Sophonie"
 menu_title: ""
-description: "38ème Sermon – Le jour du jugement comme visionné par Sophonie"
+description: "Jésus, reçu par Dr Samuels : « Sophonie de Cushi, le prophète de la dite journée de la colère de Dieu, est né à Jérusalem, sous le règne du roi Manassé … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

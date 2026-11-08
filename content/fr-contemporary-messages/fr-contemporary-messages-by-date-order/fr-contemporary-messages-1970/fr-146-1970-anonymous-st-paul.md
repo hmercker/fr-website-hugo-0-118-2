@@ -1,7 +1,7 @@
 ---
 title: "Consacrer notre temps et notre amour au service de Dieu"
 menu_title: ""
-description: "Consacrer notre temps et notre amour au service de Dieu"
+description: "St Paul : « Il y a tant de paix et de beauté ici, mes amis, et tant d'amour. C'est si merveilleux de se réunir ainsi. »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

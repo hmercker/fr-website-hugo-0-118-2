@@ -1,7 +1,7 @@
 ---
 title: "Q/R La loi de la lumière : Pouvons-nous libérer les incrustations de nos âmes ?"
 menu_title: ""
-description: "Q/R La loi de la lumière : Pouvons-nous libérer les incrustations de nos âmes ?"
+description: "Flavius Josèphe, reçu par Al Fike : « Maintenant que vous vous êtes rafraîchis, nous pouvons poursuivre notre discours et nos questions. »"
 date: 2022-06-01 06:00:01+00:775
 draft: False
 hidden: True

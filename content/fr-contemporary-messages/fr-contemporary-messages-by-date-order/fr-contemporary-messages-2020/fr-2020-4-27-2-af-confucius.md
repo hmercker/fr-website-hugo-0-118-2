@@ -1,7 +1,7 @@
 ---
 title: "Vous créez un portail de lumière en vous unifiant dans la prière"
 menu_title: ""
-description: "Vous créez un portail de lumière en vous unifiant dans la prière"
+description: "Confucius, reçu par Al Fike : « Permettez aux bénédictions de l’Amour du Père d’atteindre les profondeurs de vos âmes. En recueillant ce Grand Cadeau … »"
 date: 2022-06-01 06:00:01+00:1077
 draft: False
 hidden: True

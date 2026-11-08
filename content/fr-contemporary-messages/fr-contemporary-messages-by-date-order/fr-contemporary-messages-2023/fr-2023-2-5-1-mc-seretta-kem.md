@@ -1,7 +1,7 @@
 ---
 title: "Dernières recommandations"
 menu_title: ""
-description: "Dernières recommandations"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Âmes bien-aimées, c’est Seretta Kem. C’est par cette prière que je vais formellement clore notre communication … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

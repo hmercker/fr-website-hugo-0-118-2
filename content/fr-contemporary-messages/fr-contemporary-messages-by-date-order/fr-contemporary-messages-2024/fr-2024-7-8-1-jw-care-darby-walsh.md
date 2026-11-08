@@ -1,7 +1,7 @@
 ---
 title: "Détente spirituelle, sanctuaire et responsabilité personnelle"
 menu_title: ""
-description: "Détente spirituelle, sanctuaire et responsabilité personnelle"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Des âmes qui aspirent vraiment à recevoir l’Amour de Dieu et à être transformées, malgré toutes les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

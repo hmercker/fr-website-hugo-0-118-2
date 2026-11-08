@@ -1,7 +1,7 @@
 ---
 title: "Jésus: l’importance du travail qui reste à faire pour M. Padgett. Il est nécessaire d’être en condition pour faire ce travail"
 menu_title: ""
-description: "Jésus: l’importance du travail qui reste à faire pour M. Padgett. Il est nécessaire d’être en condition pour faire ce travail"
+description: "Jésus, reçu par James Padgett : « Je n’écrirai donc pas sur ce sujet, comme je le voulais, mais je le reporterai à une date ultérieure. »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

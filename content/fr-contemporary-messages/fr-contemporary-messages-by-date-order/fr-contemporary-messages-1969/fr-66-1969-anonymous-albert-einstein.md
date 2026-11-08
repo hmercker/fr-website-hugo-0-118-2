@@ -1,7 +1,7 @@
 ---
 title: "La force créatrice de la vie"
 menu_title: ""
-description: "La force créatrice de la vie"
+description: "Albert Einstein : « Je ne pensais pas, lorsque j'étais sur Terre, que je devrais utiliser la gorge d'une femme pour parler aux peuples de la Terre, mais … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

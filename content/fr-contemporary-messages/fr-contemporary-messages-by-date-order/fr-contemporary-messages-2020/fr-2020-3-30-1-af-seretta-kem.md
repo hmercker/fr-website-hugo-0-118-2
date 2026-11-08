@@ -1,7 +1,7 @@
 ---
 title: "Chaque individu vit son voyage spirituel d’une manière unique"
 menu_title: ""
-description: "Chaque individu vit son voyage spirituel d’une manière unique"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite développer davantage l’exposé que notre bien-aimé Flavius Josèphe a fait l’autre jour. »"
 date: 2022-06-01 06:00:01+00:1046
 draft: False
 hidden: True

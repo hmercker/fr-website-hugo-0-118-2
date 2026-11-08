@@ -1,7 +1,7 @@
 ---
 title: "Le fondateur de la religion sikh apporte inspiration et conseils des Cieux Célestes"
 menu_title: ""
-description: "Le fondateur de la religion sikh apporte inspiration et conseils des Cieux Célestes"
+description: "Guru Nanak, reçu par Albert Fike : « Malheureusement, il se trompe. En effet, tout esprit progressiste qui recherche le plus grand don, la bénédiction et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

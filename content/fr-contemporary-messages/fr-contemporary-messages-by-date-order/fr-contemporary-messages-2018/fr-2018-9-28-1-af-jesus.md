@@ -1,7 +1,7 @@
 ---
 title: "Écoutez avec les oreilles de vos âmes"
 menu_title: ""
-description: "Écoutez avec les oreilles de vos âmes"
+description: "Jésus, reçu par Al Fike : « Vous continuez à spéculer sur votre avenir en tant que serviteurs de Dieu dans ce monde. Et je vous le dis, il viendra un … »"
 date: 2022-06-01 06:00:01+00:488
 draft: False
 hidden: True

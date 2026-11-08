@@ -1,7 +1,7 @@
 ---
 title: "Les vents du changement"
 menu_title: ""
-description: "Les vents du changement"
+description: "Augustin, reçu par Al Fike : « Chers doux étudiants, c’est Augustin. Oui les vents du changement soufflent en vous mes chers enfants. »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ayez de la compassion pour vous-mêmes"
 menu_title: ""
-description: "Ayez de la compassion pour vous-mêmes"
+description: "Keea Atta Kem, reçu par Al Fike : « Vous devez vous traiter avec tendresse, âmes bien-aimées, car à ce stade de développement, vous êtes assez vulnérables. »"
 date: 2022-06-01 06:00:01+00:202
 draft: False
 hidden: True

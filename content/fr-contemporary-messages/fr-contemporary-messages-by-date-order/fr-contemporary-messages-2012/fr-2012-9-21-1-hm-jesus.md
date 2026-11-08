@@ -1,7 +1,7 @@
 ---
 title: "Fais partie de notre voyage"
 menu_title: ""
-description: "Fais partie de notre voyage"
+description: "Jésus, reçu par Helge Mercker : « Parfois, je dois te laisser Me sentir davantage pour que tu puisses te connecter à Moi. Je veux que tu fasses partie de … »"
 date: 2022-06-01 06:00:01+00:292
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Considérer ce que c’est que d’être transformé en Amour Divin (Cercle de prière de Gibson)"
 menu_title: ""
-description: "Considérer ce que c’est que d’être transformé en Amour Divin (Cercle de prière de Gibson)"
+description: "St Pierre, reçu par Jimbeau Walsh : « Mes chers frères et sœurs dans l’Amour de Dieu, je demande à chacun de considérer du fond du cœur, de l’âme, ce que … »"
 date: 2022-06-01 06:00:01+00:1675
 draft: False
 hidden: True

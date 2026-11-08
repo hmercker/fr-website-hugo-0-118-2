@@ -1,7 +1,7 @@
 ---
 title: "Respectez les dispositions de la Terre Mère"
 menu_title: ""
-description: "Respectez les dispositions de la Terre Mère"
+description: "Mylora, reçu par Maureen Cardoso : « Alors que vous vous réunissez en compagnie les uns des autres et échangez votre conscience de votre connexion à la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

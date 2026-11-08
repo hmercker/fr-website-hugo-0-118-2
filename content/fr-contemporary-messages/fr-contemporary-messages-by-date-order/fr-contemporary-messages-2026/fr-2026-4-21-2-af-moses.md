@@ -1,7 +1,7 @@
 ---
 title: "Moïse décrit son voyage spirituel et le pouvoir transformateur de l'Amour Divin"
 menu_title: ""
-description: "Moïse décrit son voyage spirituel et le pouvoir transformateur de l'Amour Divin"
+description: "Moïse, reçu par Al Fike : « J’ai vécu de nombreuses années dans le monde spirituel, ignorant cet Amour, car il n’a été offert à l’humanité qu’avec la … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

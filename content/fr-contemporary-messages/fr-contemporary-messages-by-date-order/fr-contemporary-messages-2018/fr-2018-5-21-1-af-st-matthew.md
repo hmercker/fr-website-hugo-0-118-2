@@ -1,7 +1,7 @@
 ---
 title: "S'éveiller au plus grand Amour"
 menu_title: ""
-description: "S'éveiller au plus grand Amour"
+description: "St Matthieu, reçu par Al Fike : « « Bénis ceux, Tes enfants, qui cherchent à connaître leur âme, qui continuent à poursuivre le chemin pour Te connaître … »"
 date: 2022-06-01 06:00:01+00:397
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Saint-Sébastien intéressé par le travail du Maître par l’intermédiaire de M. Padgett"
 menu_title: ""
-description: "Saint-Sébastien intéressé par le travail du Maître par l’intermédiaire de M. Padgett"
+description: "St Sébastien, reçu par James Padgett : « Je ne fus pas un très grand Chrétien dans le sens d’avoir eu un grand degré de développement d’âme, mais j’avais … »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "45ème Sermon – Jérémie traduit en justice au Temple"
 menu_title: ""
-description: "45ème Sermon – Jérémie traduit en justice au Temple"
+description: "Jésus, reçu par Dr Samuels : « Maintenant, Pharaon Necho, je le répète, fut vaincu à la bataille de Karkemish, par Nabuchodonosor, le monarque babylonien … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

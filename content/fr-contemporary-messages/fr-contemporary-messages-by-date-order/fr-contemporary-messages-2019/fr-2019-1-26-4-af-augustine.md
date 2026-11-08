@@ -1,7 +1,7 @@
 ---
 title: "Questions concernant les directives sur les changements terrestres"
 menu_title: ""
-description: "Questions concernant les directives sur les changements terrestres"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant Augustin. Puisse l’Amour du Père continuer à se déverser dans vos âmes en une toujours plus grande … »"
 date: 2022-06-01 06:00:01+00:615
 draft: False
 hidden: True

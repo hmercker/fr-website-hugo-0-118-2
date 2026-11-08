@@ -1,7 +1,7 @@
 ---
 title: "Je viens avec compassion, élévation, guérison et paix"
 menu_title: ""
-description: "Je viens avec compassion, élévation, guérison et paix"
+description: "Jésus, reçu par Al Fike : « Le désir sincère de notre cher frère qui souhaite que le monde ne connaisse plus la souffrance et la douleur qui l’affligent … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conseils sur la manière de freiner la dégénérescence de la condition spirituelle"
 menu_title: ""
-description: "Conseils sur la manière de freiner la dégénérescence de la condition spirituelle"
+description: "Seretta Kem, reçu par Al Fike : « Une fois de plus, nous nous réunissons en prière, pour être ensemble dans la Lumière de l’Amour de Dieu, pour rechercher … »"
 date: 2022-06-01 06:00:01+00:305
 draft: False
 hidden: True

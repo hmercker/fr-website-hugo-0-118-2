@@ -1,7 +1,7 @@
 ---
 title: "L'inconscient"
 menu_title: ""
-description: "L'inconscient"
+description: "Jésus, reçu par FAB : « Il y a plusieurs endroits dans les messages de James Padgett où la réalité de l'inconscient est niée, mais dans votre canalisation … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

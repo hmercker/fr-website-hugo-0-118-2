@@ -1,7 +1,7 @@
 ---
 title: "Divinité"
 menu_title: ""
-description: "Divinité"
+description: "Augustin, reçu par Elizabeth Mack : « Vous êtes bénis de bien des manières, chers enfants de Dieu. Pourtant, vous ne croyez toujours pas. »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

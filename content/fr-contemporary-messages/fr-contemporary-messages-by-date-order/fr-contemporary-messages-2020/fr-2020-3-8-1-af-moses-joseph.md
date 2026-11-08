@@ -1,7 +1,7 @@
 ---
 title: "Dieu appelle les leaders à prendre responsabilité"
 menu_title: ""
-description: "Dieu appelle les leaders à prendre responsabilité"
+description: "Moïse & Joseph, reçu par Al Fike : « J’ai conduit mon peuple hors des dangers et de l’agitation des conditions obscures du monde pendant mon séjour sur … »"
 date: 2022-06-01 06:00:01+00:1019
 draft: False
 hidden: True

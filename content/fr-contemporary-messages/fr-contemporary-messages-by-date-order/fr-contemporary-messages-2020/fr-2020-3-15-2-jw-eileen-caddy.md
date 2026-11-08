@@ -1,7 +1,7 @@
 ---
 title: "Fondations de Findhorn"
 menu_title: ""
-description: "Fondations de Findhorn"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Je ne prendrai pas beaucoup de votre temps car je sais que vous avez un calendrier à respecter. »"
 date: 2022-06-01 06:00:01+00:1032
 draft: False
 hidden: True

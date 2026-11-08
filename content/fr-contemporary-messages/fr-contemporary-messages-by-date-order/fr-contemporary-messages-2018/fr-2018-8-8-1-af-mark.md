@@ -1,7 +1,7 @@
 ---
 title: "Le choix de connaître Dieu vous appartient"
 menu_title: ""
-description: "Le choix de connaître Dieu vous appartient"
+description: "Marc, reçu par Al Fike : « Chacun d’entre vous a reçu le don de la vie et dans cette vie, il y a de nombreuses possibilités et potentiels, des choix à … »"
 date: 2022-06-01 06:00:01+00:441
 draft: False
 hidden: True

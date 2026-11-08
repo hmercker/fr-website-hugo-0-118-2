@@ -1,7 +1,7 @@
 ---
 title: "Jésus a assisté au service avec M. Padgett et commente les croyances de la congrégation"
 menu_title: ""
-description: "Jésus a assisté au service avec M. Padgett et commente les croyances de la congrégation"
+description: "Jésus, reçu par James Padgett : « J’ai entendu ce que Paul a écrit, et je corrobore à tout ce qu’il a dit, et j’ajoute que ces personnes poursuivent le … »"
 date: 2022-06-01 06:00:01+00:230
 draft: False
 hidden: True

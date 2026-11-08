@@ -1,7 +1,7 @@
 ---
 title: "Leçon 13 : Changements terrestres à venir"
 menu_title: ""
-description: "Leçon 13 : Changements terrestres à venir"
+description: "Jésus, reçu par Al Fike : « C’est l’humanité qui s’est causée de si grandes difficultés et qui a érigé de telles barrières contre le flux naturel et … »"
 date: 2022-06-01 06:00:01+00:1553
 draft: False
 hidden: True

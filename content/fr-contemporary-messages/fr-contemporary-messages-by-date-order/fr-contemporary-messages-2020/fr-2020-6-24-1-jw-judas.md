@@ -1,7 +1,7 @@
 ---
 title: "Ce que vous recevrez sera largement suffisant"
 menu_title: ""
-description: "Ce que vous recevrez sera largement suffisant"
+description: "Judas, reçu par Jimbeau Walsh : « J'ai été absorbé dans votre conversation et encore plus dans votre prière. Je souhaite vous expliquer pourquoi il y a un … »"
 date: 2022-06-01 06:00:01+00:1154
 draft: False
 hidden: True

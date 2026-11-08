@@ -1,7 +1,7 @@
 ---
 title: "Vivre dans l’Amour"
 menu_title: ""
-description: "Vivre dans l’Amour"
+description: "Joseph, reçu par Kathryn Stokes : « Merci d’avoir répondu à ma présence. Comme il vous l’a été dit, nous sommes souvent prêts à délivrer des écrits, mais … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

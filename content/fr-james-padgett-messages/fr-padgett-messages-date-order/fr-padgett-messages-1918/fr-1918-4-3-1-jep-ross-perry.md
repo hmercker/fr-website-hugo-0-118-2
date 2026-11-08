@@ -1,7 +1,7 @@
 ---
 title: "Ross Perry s’est suffisamment sorti de l’obscurité pour aider d’autres esprits des ténèbres qui traversent les mêmes conditions que les siennes"
 menu_title: ""
-description: "Ross Perry s’est suffisamment sorti de l’obscurité pour aider d’autres esprits des ténèbres qui traversent les mêmes conditions que les siennes"
+description: "Ross Perry, reçu par James Padgett : « J’étais à la séance de ce soir et je vous ai parlé, à vous et à Middleton ; et à part moi, il y avait Carrington et … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

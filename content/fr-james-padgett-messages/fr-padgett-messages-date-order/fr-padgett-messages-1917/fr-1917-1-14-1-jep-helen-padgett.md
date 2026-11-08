@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett commente le livre que M. Padgett lisait (la Grande Controverse) et explique que l’auteur regrette son contenu"
 menu_title: ""
-description: "Hélène Padgett commente le livre que M. Padgett lisait (la Grande Controverse) et explique que l’auteur regrette son contenu"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, je vois que tu as lu un livre (The Great Controversy : La Grande Contreverse, une publication … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

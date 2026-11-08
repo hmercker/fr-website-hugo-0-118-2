@@ -1,7 +1,7 @@
 ---
 title: "L’image que se fait d’elle-même une politicienne Américaine – 1"
 menu_title: ""
-description: "L’image que se fait d’elle-même une politicienne Américaine – 1"
+description: "Jeannette Rankin, reçu par FAB : « Vous avez tout à fait raison, je vous ai donné des impressions de pensée sur mes opinions alors que vous lisiez ma … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

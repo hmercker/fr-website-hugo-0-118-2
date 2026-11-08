@@ -1,7 +1,7 @@
 ---
 title: "Sonder les eaux et guérir nos blessures"
 menu_title: ""
-description: "Sonder les eaux et guérir nos blessures"
+description: "Augustin, reçu par Albert Fike : « Chaque jour apporte son lot d’opportunités et de choix. Vous pouvez choisir de perpétuer vos vieux schémas … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

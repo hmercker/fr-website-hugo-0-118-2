@@ -1,7 +1,7 @@
 ---
 title: "Votre Créateur et le mien"
 menu_title: ""
-description: "Votre Créateur et le mien"
+description: "Confucius : « Il y a longtemps que je ne suis pas venu vous parler, mes enfants. Les hommes ne peuvent trouver le bonheur que lorsqu'ils sont prêts à être … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

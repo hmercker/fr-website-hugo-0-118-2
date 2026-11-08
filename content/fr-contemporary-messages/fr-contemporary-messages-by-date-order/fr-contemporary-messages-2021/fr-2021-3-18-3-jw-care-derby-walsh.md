@@ -1,7 +1,7 @@
 ---
 title: "Quand vous appelez, nous venons !"
 menu_title: ""
-description: "Quand vous appelez, nous venons !"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je souhaite dire qu’à mesure que la lumière de ce cercle continue de s’étendre, nous pouvons voir la lumière … »"
 date: 2022-06-01 06:00:01+00:1446
 draft: False
 hidden: True

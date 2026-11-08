@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett dans un premier message décrit sa maison dans la 7ème Sphère"
 menu_title: ""
-description: "La grand-mère de M. Padgett dans un premier message décrit sa maison dans la 7ème Sphère"
+description: "Anne Rollins, reçu par James Padgett : « Ton esprit est trop perturbé pour apprécier ma visite comme tu le ferais dans d’autres circonstances, mais je … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

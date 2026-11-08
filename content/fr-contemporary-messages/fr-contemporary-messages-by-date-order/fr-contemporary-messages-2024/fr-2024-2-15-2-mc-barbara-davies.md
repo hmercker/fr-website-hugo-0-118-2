@@ -1,7 +1,7 @@
 ---
 title: "Apportez vos obstacles à Dieu"
 menu_title: ""
-description: "Apportez vos obstacles à Dieu"
+description: "Barbara Davies, reçu par Maureen Cardoso : « Chère âme, qui attend que son amie bien-aimée reçoive des messages des anges, je veux qu’elle sache que je … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

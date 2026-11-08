@@ -1,7 +1,7 @@
 ---
 title: "Kentor – Visiteur d’une autre galaxie."
 menu_title: ""
-description: "Kentor – Visiteur d’une autre galaxie."
+description: "Kentor d'une autre galaxie : « J'ai été intéressé et j'ai passé la plupart de la journée dans votre belle ville, à observer les gens et il est très … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

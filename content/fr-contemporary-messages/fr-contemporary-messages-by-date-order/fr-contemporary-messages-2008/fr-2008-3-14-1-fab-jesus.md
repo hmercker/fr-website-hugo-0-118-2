@@ -1,7 +1,7 @@
 ---
 title: "La guerre et le choix humain"
 menu_title: ""
-description: "La guerre et le choix humain"
+description: "Jésus, reçu par FAB : « Vous êtes perplexe parce que vos canalisations ont dit que les esprits ont souffert ou n’ont pas souffert en fonction des … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'âme sage s'approche de Dieu"
 menu_title: ""
-description: "L'âme sage s'approche de Dieu"
+description: "Confucius, reçu par Al Fike : « Vous êtes des âmes précieuses, chacune précieuse, une perle hors de prix, une belle Lumière dans ce monde. »"
 date: 2022-06-01 06:00:01+00:309
 draft: False
 hidden: True

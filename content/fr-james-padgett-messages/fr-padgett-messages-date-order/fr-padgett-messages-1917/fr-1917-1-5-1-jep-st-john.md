@@ -1,7 +1,7 @@
 ---
 title: "Jean affirme à Monsieur Padgett que tous ses besoins matériels seront satisfaits"
 menu_title: ""
-description: "Jean affirme à Monsieur Padgett que tous ses besoins matériels seront satisfaits"
+description: "St Jean, reçu par James Padgett : « Je veux simplement vous dire que vous devez rester courageux et croire que tout s’accomplira comme nous vous l’avons … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

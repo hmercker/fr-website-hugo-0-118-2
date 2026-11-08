@@ -1,7 +1,7 @@
 ---
 title: "Justice économique - 2ème partie"
 menu_title: ""
-description: "Justice économique - 2ème partie"
+description: "Jésus, reçu par FAB : « Vous savez que vous n'êtes pas un économiste (et nous le savons aussi), il y a donc beaucoup de choses en économie que vous ne … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

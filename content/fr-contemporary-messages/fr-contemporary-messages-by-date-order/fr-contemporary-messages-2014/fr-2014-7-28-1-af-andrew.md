@@ -1,7 +1,7 @@
 ---
 title: "Qui suis-je vraiment ?"
 menu_title: ""
-description: "Qui suis-je vraiment ?"
+description: "André, reçu par Al Fike : « Vous suivez la voie divine ; vous implorez avec ferveur notre Père céleste de vous faire don de Son Amour. »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

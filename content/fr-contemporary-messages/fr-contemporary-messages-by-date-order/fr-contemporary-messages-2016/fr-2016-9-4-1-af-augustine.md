@@ -1,7 +1,7 @@
 ---
 title: "Continuez à servir"
 menu_title: ""
-description: "Continuez à servir"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant Augustin. Je crois que vous avez appris de nombreuses leçons avec ce rassemblement d’âmes dans … »"
 date: 2022-06-01 06:00:01+00:235
 draft: False
 hidden: True

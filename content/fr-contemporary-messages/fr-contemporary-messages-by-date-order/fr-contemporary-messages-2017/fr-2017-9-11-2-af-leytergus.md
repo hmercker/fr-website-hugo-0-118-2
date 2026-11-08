@@ -1,7 +1,7 @@
 ---
 title: "Relation entre le mental matériel et le mental de l'âme"
 menu_title: ""
-description: "Relation entre le mental matériel et le mental de l'âme"
+description: "Leytergus, reçu par Al Fike : « Je fus, autrefois, dans les temps anciens, bien avant que Jésus ne vienne en ce monde, un philosophe. »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

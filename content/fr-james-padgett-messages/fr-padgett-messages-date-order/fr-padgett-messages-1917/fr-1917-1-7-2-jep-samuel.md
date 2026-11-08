@@ -1,7 +1,7 @@
 ---
 title: "Samuel souscrit à ce que Jean a écrit au sujet de la progression matérielle et spirituelle de M. Padgett"
 menu_title: ""
-description: "Samuel souscrit à ce que Jean a écrit au sujet de la progression matérielle et spirituelle de M. Padgett"
+description: "Samuel, reçu par James Padgett : « Je ne dirai que quelques mots. Vous pouvez chercher de meilleures conditions maintenant. »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

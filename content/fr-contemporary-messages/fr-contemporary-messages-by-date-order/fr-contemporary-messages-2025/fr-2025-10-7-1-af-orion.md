@@ -1,7 +1,7 @@
 ---
 title: "Vous devez guérir vos blessures pour aller de l'avant"
 menu_title: ""
-description: "Vous devez guérir vos blessures pour aller de l'avant"
+description: "Orion, reçu par Albert Fike : « Le changement est une constante dans l'univers. Tout tend vers une plus grande harmonie. »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

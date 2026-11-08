@@ -1,7 +1,7 @@
 ---
 title: "Le Père de M. Padgett écrit sur la condition spirituelle présente de ses amis et la souffrance qu’il doit traverser avant qu’il commence à voir la lumière"
 menu_title: ""
-description: "Le Père de M. Padgett écrit sur la condition spirituelle présente de ses amis et la souffrance qu’il doit traverser avant qu’il commence à voir la lumière"
+description: "John Padgett, reçu par James Padgett : « J’ai été très intéressé par ta conversation de ce soir, et je vois que tes deux amis croient fermement au … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

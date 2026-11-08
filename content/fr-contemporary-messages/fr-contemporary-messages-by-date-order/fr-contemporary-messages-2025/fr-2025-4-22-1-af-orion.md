@@ -1,7 +1,7 @@
 ---
 title: "Célébrons la joie de vivre !"
 menu_title: ""
-description: "Célébrons la joie de vivre !"
+description: "Orion, reçu par Albert Fike : « Les bénédictions d’une âme qui aspire à Dieu. Elles vous sont offertes gratuitement. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

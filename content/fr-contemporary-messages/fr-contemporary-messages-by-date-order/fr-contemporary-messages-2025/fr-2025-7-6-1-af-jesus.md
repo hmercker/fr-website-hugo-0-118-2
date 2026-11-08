@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu vous met au service de l'humanité"
 menu_title: ""
-description: "L'Amour de Dieu vous met au service de l'humanité"
+description: "Jésus, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père soient vôtres, chers enfants de la vérité. Car nous sommes tous frères et sœurs … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

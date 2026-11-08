@@ -1,7 +1,7 @@
 ---
 title: "Le retour de Joseph et Marie à Nazareth"
 menu_title: ""
-description: "Le retour de Joseph et Marie à Nazareth"
+description: "Judas, reçu par H : « Comme je l’ai dit hier, nous allons continuer avec le récit de Joseph et de sa famille en Égypte. »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

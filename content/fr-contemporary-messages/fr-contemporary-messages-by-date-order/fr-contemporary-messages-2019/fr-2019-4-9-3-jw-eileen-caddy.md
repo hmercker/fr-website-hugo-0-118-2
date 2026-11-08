@@ -1,7 +1,7 @@
 ---
 title: "Findhorn restauré dans l'Amour de Dieu"
 menu_title: ""
-description: "Findhorn restauré dans l'Amour de Dieu"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Je me suis retrouvée là-bas, vivant dans une caravane avec mon mari de l'époque, à me demander « Qu'allons-nous … »"
 date: 2022-06-01 06:00:01+00:706
 draft: False
 hidden: True

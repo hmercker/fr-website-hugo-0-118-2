@@ -1,7 +1,7 @@
 ---
 title: "59ème Sermon – Ézéchiel a gagné le titre de « Père du Judaïsme »"
 menu_title: ""
-description: "59ème Sermon – Ézéchiel a gagné le titre de « Père du Judaïsme »"
+description: "Jésus, reçu par Dr Samuels : « Dans le signe des deux bâtons, Chapitre 37, Ézéchiel continue d’avoir Dieu dire que le peuple sera uni comme une seule … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

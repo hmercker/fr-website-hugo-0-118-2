@@ -1,7 +1,7 @@
 ---
 title: "Un message d’Anne Rollins"
 menu_title: ""
-description: "Un message d’Anne Rollins"
+description: "Anne Rollins, reçu par James Padgett : « Tu ne dois pas croire que, parce que le Maître a dit que Dieu est une personnification de l’amour, de la … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

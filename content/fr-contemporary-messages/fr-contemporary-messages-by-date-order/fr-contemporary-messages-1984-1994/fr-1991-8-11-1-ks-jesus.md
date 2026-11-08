@@ -1,7 +1,7 @@
 ---
 title: "Publication du volume II des messages"
 menu_title: ""
-description: "Publication du volume II des messages"
+description: "Jésus, reçu par Kathryn Stokes : « Notre cher frère en Christ, Dave, aimerait savoir si le travail d'édition qu'il a effectué sur le volume II vous … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

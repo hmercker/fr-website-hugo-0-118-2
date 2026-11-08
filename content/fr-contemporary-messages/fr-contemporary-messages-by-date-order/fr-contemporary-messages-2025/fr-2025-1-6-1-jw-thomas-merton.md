@@ -1,7 +1,7 @@
 ---
 title: "Une once d'Amour Divin"
 menu_title: ""
-description: "Une once d'Amour Divin"
+description: "Thomas Merton, reçu par Jimbeau Walsh : « J’ai attendu, comme on dit, dans les coulisses, pour parler et j’ai été encouragé à le faire par ceux qui m’ont … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

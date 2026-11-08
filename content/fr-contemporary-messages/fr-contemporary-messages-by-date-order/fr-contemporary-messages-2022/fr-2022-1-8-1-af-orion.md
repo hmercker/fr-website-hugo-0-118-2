@@ -1,7 +1,7 @@
 ---
 title: "Lumière = Intention x Effort = Résultat"
 menu_title: ""
-description: "Lumière = Intention x Effort = Résultat"
+description: "Orion, reçu par Al Fike : « Puissiez-vous continuer à grandir dans la lumière et à être véritablement les enfants de Dieu dans la lumière. »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La progression de l’âme telle que je l’ai vécue"
 menu_title: ""
-description: "La progression de l’âme telle que je l’ai vécue"
+description: "Albert Riddle, reçu par James Padgett : « Je souhaite t’écrire ce soir sur un sujet qui, je pense, sera intéressant, mais il est tard maintenant et … »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

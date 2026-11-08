@@ -1,7 +1,7 @@
 ---
 title: "Les facultés intellectuelles des premiers parents"
 menu_title: ""
-description: "Les facultés intellectuelles des premiers parents"
+description: "Aman, reçu par FAB : « Vous venez de lire dans le synopsis du Dr Samuels sur les messages de Padgett l'affirmation suivante : »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

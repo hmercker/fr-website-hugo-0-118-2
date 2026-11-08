@@ -1,7 +1,7 @@
 ---
 title: "Les vagues de changement sont imminentes"
 menu_title: ""
-description: "Les vagues de changement sont imminentes"
+description: "André, reçu par Al Fike : « Vous pouvez les voir déferler sur le rivage en ce moment même, et elles s’intensifieront et apporteront des conditions … »"
 date: 2023-09-01 06:00:01+00:36
 draft: False
 hidden: True

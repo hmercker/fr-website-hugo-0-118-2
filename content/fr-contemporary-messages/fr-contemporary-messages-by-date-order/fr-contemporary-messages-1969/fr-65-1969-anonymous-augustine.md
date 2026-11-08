@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes unis"
 menu_title: ""
-description: "Nous sommes unis"
+description: "Augustin : « C'est tellement merveilleux d'avoir l'opportunité de venir vous parler une fois de plus et de voir toutes les merveilleuses âmes qui ont été … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

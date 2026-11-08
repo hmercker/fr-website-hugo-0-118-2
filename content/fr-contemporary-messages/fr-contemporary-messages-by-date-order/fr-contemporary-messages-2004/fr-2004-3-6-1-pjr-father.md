@@ -1,7 +1,7 @@
 ---
 title: "Vos tentatives pour vous adresser à moi"
 menu_title: ""
-description: "Vos tentatives pour vous adresser à moi"
+description: "Le Père Céleste, reçu par PJR : « Tu n’as pas à t’inquiéter que je sois inattentif à tes tentatives de t’adresser à moi avec un désir suffisant pour … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les conditions des esprits et leurs expériences et croyances pour ceux qui sont sous les Cieux Célestes ; comment ils se rassemblent ensemble"
 menu_title: ""
-description: "Les conditions des esprits et leurs expériences et croyances pour ceux qui sont sous les Cieux Célestes ; comment ils se rassemblent ensemble"
+description: "St Jacques, reçu par James Padgett : « Permettez-moi de partager avec vous quelques petites choses concernant le monde des esprits, c’est le monde qui se … »"
 date: 2022-06-01 06:00:01+00:270
 draft: False
 hidden: True

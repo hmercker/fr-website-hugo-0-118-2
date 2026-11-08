@@ -1,7 +1,7 @@
 ---
 title: "Le voyage de la Nouvelle Naissance"
 menu_title: ""
-description: "Le voyage de la Nouvelle Naissance"
+description: "Jésus, reçu par Maureen Cardoso : « Que le Souffle de Dieu soit sur vous et que l’Amour coule profondément dans vos âmes. En aidant les âmes à passer de … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

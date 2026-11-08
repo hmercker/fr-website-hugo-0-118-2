@@ -1,7 +1,7 @@
 ---
 title: "L'homme doit chercher à développer davantage son âme"
 menu_title: ""
-description: "L'homme doit chercher à développer davantage son âme"
+description: "Mahatma Gandhi : « J'ai également travaillé avec l'être aimé dans le cabinet, car j'ai un grand désir de venir parler directement à la Terre une fois de plus. »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

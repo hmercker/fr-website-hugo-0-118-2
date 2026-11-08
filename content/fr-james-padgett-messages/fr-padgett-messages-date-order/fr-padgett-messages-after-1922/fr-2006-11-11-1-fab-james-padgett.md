@@ -1,7 +1,7 @@
 ---
 title: "La première vie de M. Padgett"
 menu_title: ""
-description: "La première vie de M. Padgett"
+description: "James Padgett, reçu par FAB : « Oh, c’est une telle joie pour moi d’être à l’autre bout de la médiumnité avec vous ! Nous exultons tous de cette … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

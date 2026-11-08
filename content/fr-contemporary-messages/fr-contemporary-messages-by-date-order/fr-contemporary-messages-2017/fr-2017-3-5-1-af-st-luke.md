@@ -1,7 +1,7 @@
 ---
 title: "Se lier d’amitié avec son âme"
 menu_title: ""
-description: "Se lier d’amitié avec son âme"
+description: "St Luc, reçu par Al Fike : « Bienvenue dans ce Cercle de Lumière, cette oasis de Paix, votre sanctuaire d’Amour. Alors que vous avez rassemblé les âmes … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

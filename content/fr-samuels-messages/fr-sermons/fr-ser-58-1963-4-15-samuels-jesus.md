@@ -1,7 +1,7 @@
 ---
 title: "58ème Sermon – La perte de Jérusalem pour Dieu est symbolisée par la mort de l’épouse du prophète"
 menu_title: ""
-description: "58ème Sermon – La perte de Jérusalem pour Dieu est symbolisée par la mort de l’épouse du prophète"
+description: "Jésus, reçu par Dr Samuels : « En ce qui concerne Jérusalem, cependant, il semblait pour Ézéchiel que Dieu avait complètement détourné son visage de la … »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

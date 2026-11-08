@@ -1,7 +1,7 @@
 ---
 title: "L'expérience spirituelle d'un militant gay"
 menu_title: ""
-description: "L'expérience spirituelle d'un militant gay"
+description: "Harvey Milk, reçu par FAB : « Je n'étais pas un saint, mais j'avais un sens aigu de la justice. Je sais que c'est évident, mais je voulais mettre ces deux … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

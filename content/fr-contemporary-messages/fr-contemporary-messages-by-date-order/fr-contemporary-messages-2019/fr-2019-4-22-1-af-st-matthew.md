@@ -1,7 +1,7 @@
 ---
 title: "Tendre la main et étendre le treillis de la lumière"
 menu_title: ""
-description: "Tendre la main et étendre le treillis de la lumière"
+description: "St Matthieu, reçu par Al Fike : « Il est évident que vos âmes continuent de s'étendre dans la lumière. Chacune de vous, âmes bien-aimées, grandit dans … »"
 date: 2022-06-01 06:00:01+00:717
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les conseils s'appuient sur une base solide d'Amour Divin et de pratique"
 menu_title: ""
-description: "Les conseils s'appuient sur une base solide d'Amour Divin et de pratique"
+description: "Keea-atta-Kem, reçu par Albert Fike : « C’est à la fois un art et une science de faire pénétrer la Volonté de Dieu dans votre conscience, de vous en … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

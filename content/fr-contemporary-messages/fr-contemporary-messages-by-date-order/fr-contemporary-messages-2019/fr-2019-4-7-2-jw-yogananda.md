@@ -1,7 +1,7 @@
 ---
 title: "Laissez la prière pour l'Amour Divin devenir votre rituel"
 menu_title: ""
-description: "Laissez la prière pour l'Amour Divin devenir votre rituel"
+description: "Yogananda, reçu par Jimbeau Walsh : « Bien qu'il soit réticent à recevoir dans son esprit, dans son âme, il est ouvert à ce cadeau. »"
 date: 2022-06-01 06:00:01+00:699
 draft: False
 hidden: True

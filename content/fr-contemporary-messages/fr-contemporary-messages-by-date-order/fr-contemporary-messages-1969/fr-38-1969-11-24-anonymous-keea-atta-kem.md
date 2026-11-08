@@ -1,7 +1,7 @@
 ---
 title: "Vivez tranquillement ces vérités"
 menu_title: ""
-description: "Vivez tranquillement ces vérités"
+description: "Keea Atta Kem : « Nous sommes heureux des progrès réalisés ce soir. Nous avons testé et testé chacun d'entre vous et construit les conditions pour le don … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

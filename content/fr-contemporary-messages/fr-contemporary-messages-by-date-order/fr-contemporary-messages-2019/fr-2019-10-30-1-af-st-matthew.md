@@ -1,7 +1,7 @@
 ---
 title: "Sur les aspects de l’âme"
 menu_title: ""
-description: "Sur les aspects de l’âme"
+description: "St Matthieu, reçu par Al Fike : « En raison de sa complexité, nous devons profiter d’un esprit clair. J’ai déjà expliqué dans le passé que l’âme est comme … »"
 date: 2022-06-01 06:00:01+00:888
 draft: False
 hidden: True

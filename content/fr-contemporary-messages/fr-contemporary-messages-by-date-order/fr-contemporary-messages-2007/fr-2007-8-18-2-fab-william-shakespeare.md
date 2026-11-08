@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - commentaires sur les messages passés"
 menu_title: ""
-description: "Shakespeare - commentaires sur les messages passés"
+description: "William Shakespeare, reçu par FAB : « Lorsque j'ai dit dans mon message du 14 Août 2007 que « mon premier emploi dans le théâtre fut en tant que doublure … »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

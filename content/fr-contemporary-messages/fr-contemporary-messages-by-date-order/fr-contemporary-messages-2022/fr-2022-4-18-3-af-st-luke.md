@@ -1,7 +1,7 @@
 ---
 title: "Les braises de l'amour qui brûlent dans vos âmes sont ressenties à travers le monde"
 menu_title: ""
-description: "Les braises de l'amour qui brûlent dans vos âmes sont ressenties à travers le monde"
+description: "Saint Luc, reçu par Al Fike : « Vos âmes commencent à s’éveiller à leurs dons et capacités de nature spirituelle, dons que Dieu vous a offerts. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

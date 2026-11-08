@@ -1,7 +1,7 @@
 ---
 title: "Éveillez-vous de votre somnolence"
 menu_title: ""
-description: "Éveillez-vous de votre somnolence"
+description: "Jésus, reçu par Al Fike : « Ainsi, vous pourrez connaître la gloire et la beauté, la grâce et la puissance qui résident en vous, en attendant l’afflux de … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

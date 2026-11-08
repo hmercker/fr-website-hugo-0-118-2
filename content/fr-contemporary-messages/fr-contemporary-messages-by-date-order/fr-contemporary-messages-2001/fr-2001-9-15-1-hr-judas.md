@@ -1,7 +1,7 @@
 ---
 title: "Que pouvons-nous faire pour compenser les effets du mal ?"
 menu_title: ""
-description: "Que pouvons-nous faire pour compenser les effets du mal ?"
+description: "Judas, reçu par H : « Mon cher frère H , dans ce contexte de guerres et de vengeances, je crois qu’il est nécessaire d’exprimer quelques réflexions à cet … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

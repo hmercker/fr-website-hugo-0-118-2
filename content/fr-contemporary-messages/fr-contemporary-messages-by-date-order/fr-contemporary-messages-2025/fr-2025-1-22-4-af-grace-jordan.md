@@ -1,7 +1,7 @@
 ---
 title: "Décrit comment Barbara et elle ont suivi des chemins parallèles sur Terre"
 menu_title: ""
-description: "Décrit comment Barbara et elle ont suivi des chemins parallèles sur Terre"
+description: "Grace Jordan, reçu par Albert Fike : « Pourtant, le désir de servir l’humanité brûlait en moi, comme chez ma chère sœur. Bien que nous ayons suivi un … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

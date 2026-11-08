@@ -1,7 +1,7 @@
 ---
 title: "Rangez votre bouclier et votre armure et dirigez avec amour"
 menu_title: ""
-description: "Rangez votre bouclier et votre armure et dirigez avec amour"
+description: "André, reçu par Al Fike : « C’est une nation sans confiance. Chaque âme, semble-t-il, dans ce lieu est craintive et trouve très difficile de faire … »"
 date: 2022-06-01 06:00:01+00:242
 draft: False
 hidden: True

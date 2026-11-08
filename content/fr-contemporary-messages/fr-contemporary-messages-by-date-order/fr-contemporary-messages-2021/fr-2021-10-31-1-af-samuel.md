@@ -1,7 +1,7 @@
 ---
 title: "Fait briller sa lumière sur la voie de l’Amour Divin et ses adeptes (Cercle de prière en ligne)"
 menu_title: ""
-description: "Fait briller sa lumière sur la voie de l’Amour Divin et ses adeptes (Cercle de prière en ligne)"
+description: "Samuel, reçu par Al Fike : « Dieu, qui est le Créateur de l’univers, concentre Son amour sur ce monde. Ce monde qui est en transition, continue d’être en … »"
 date: 2022-06-01 06:00:01+00:1699
 draft: False
 hidden: True

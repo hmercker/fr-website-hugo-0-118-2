@@ -1,7 +1,7 @@
 ---
 title: "Changements terrestres – Le temps est venu"
 menu_title: ""
-description: "Changements terrestres – Le temps est venu"
+description: "Seretta Kem, reçu par Al Fike : « Je vous souhaite à tous la bienvenue dans ce bercail, ce temps de prière et votre désir de servir Dieu de ces diverses … »"
 date: 2022-06-01 06:00:01+00:589
 draft: False
 hidden: True

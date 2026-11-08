@@ -1,7 +1,7 @@
 ---
 title: "Brisez les chaînes de l’obscurité et libérez vos âmes"
 menu_title: ""
-description: "Brisez les chaînes de l’obscurité et libérez vos âmes"
+description: "Jésus, reçu par Albert Fike : « Bien que la parole de Dieu persiste dans le cœur des hommes, elle n’est ni entendue ni reconnue. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

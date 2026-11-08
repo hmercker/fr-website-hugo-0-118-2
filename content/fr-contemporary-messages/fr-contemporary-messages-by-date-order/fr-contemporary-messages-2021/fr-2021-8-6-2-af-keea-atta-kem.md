@@ -1,7 +1,7 @@
 ---
 title: "Le treillis de lumière apporte la lumière au monde entier"
 menu_title: ""
-description: "Le treillis de lumière apporte la lumière au monde entier"
+description: "Keea Atta Kem, reçu par Al Fike : « Nous ajoutons vos lumières à celles d’autres personnes qui prient également pour votre monde et travaillent à y … »"
 date: 2022-06-01 06:00:01+00:1592
 draft: False
 hidden: True

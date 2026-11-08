@@ -1,7 +1,7 @@
 ---
 title: "Une question sur l’épître aux Éphésiens"
 menu_title: ""
-description: "Une question sur l’épître aux Éphésiens"
+description: "Judas, reçu par H : « Mon cher H , avant de poursuivre l’histoire de mon voyage à travers les sphères du monde spirituel, je voudrais répondre à la … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

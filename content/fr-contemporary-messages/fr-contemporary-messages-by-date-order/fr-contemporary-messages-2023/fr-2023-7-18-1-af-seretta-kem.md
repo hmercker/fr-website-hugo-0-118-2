@@ -1,7 +1,7 @@
 ---
 title: "Offre son point de vue et ses encouragements au groupe des douze"
 menu_title: ""
-description: "Offre son point de vue et ses encouragements au groupe des douze"
+description: "Seretta Kem, reçu par Albert Fike : « Nous travaillons avec beaucoup d’entre vous sur votre plan terrestre. Nos approches varient en fonction des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

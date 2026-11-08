@@ -1,7 +1,7 @@
 ---
 title: "M. Forrest commence à réaliser, avec l’aide de la femme et de la grand-mère de M. Padgett, qu’il doit y avoir un Dieu de miséricorde et d’amour"
 menu_title: ""
-description: "M. Forrest commence à réaliser, avec l’aide de la femme et de la grand-mère de M. Padgett, qu’il doit y avoir un Dieu de miséricorde et d’amour"
+description: "Edwin Forrest, reçu par James Padgett : « Eh bien, Ned, je veux t’écrire quelques lignes, et comme ta femme est ici, et dit que je peux écrire, je vais le … »"
 date: 2022-06-01 06:00:01+00:295
 draft: False
 hidden: True

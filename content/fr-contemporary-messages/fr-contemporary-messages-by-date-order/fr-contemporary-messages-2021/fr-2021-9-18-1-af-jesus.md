@@ -1,7 +1,7 @@
 ---
 title: "Jésus nous bénit et prie avec nous (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "Jésus nous bénit et prie avec nous (Retraite Voix Directe 2021)"
+description: "Jésus, reçu par Al Fike : « Où que vous soyez, où que vous alliez, cette flamme est avec vous, signifiant que vous êtes vraiment des enfants de Dieu … »"
 date: 2022-06-01 06:00:01+00:1651
 draft: False
 hidden: True

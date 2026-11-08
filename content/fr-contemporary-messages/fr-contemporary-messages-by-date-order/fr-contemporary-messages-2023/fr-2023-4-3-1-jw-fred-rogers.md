@@ -1,7 +1,7 @@
 ---
 title: "Habitudes, Dépendances  et Guérison"
 menu_title: ""
-description: "Habitudes, Dépendances  et Guérison"
+description: "Fred Rogers, reçu par Jimbeau Walsh : « Dernièrement, la plupart des choses pour lesquelles vous avez prié dans l’Amour du Père ont été des guérisons. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Aide au suicide et symboles chrétiens"
 menu_title: ""
-description: "Aide au suicide et symboles chrétiens"
+description: "Judas, reçu par H : « Ne me dis pas que tu es surpris, parce que tu voulais toi-même me rencontrer. Je me souviens non seulement de ces questions, mais … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

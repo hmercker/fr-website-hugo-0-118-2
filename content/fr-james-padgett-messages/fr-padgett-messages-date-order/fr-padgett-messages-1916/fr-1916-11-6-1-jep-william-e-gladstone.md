@@ -1,7 +1,7 @@
 ---
 title: "Fut Premier Ministre de Grande Bretagne. Est profondément horrifié devant la guerre qui fait rage"
 menu_title: ""
-description: "Fut Premier Ministre de Grande Bretagne. Est profondément horrifié devant la guerre qui fait rage"
+description: "William E Gladstone, reçu par James Padgett : « Et comme les dirigeants sont aveugles au bien-être de l’humanité ! Mais je ne dois pas écrire ce soir, car … »"
 date: 2022-06-01 06:00:01+00:324
 draft: False
 hidden: True

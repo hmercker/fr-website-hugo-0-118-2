@@ -1,7 +1,7 @@
 ---
 title: "Soyez unis dans une joie pleine de grâce et dans un engagement empreint d'amour"
 menu_title: ""
-description: "Soyez unis dans une joie pleine de grâce et dans un engagement empreint d'amour"
+description: "Jésus, reçu par Albert Fike : « Pour beaucoup d’entre vous, la lutte pour la vérité a été intense. Beaucoup ont dû surmonter des obstacles intérieurs … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

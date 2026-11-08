@@ -1,7 +1,7 @@
 ---
 title: "Reconnaissez la création unique de votre âme"
 menu_title: ""
-description: "Reconnaissez la création unique de votre âme"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Sentez-vous le contact de Dieu, le souffle de Dieu sur vos âmes ? Prenez ce moment, sentez et recevez cet amour. »"
 date: 2022-06-01 06:00:01+00:646
 draft: False
 hidden: True

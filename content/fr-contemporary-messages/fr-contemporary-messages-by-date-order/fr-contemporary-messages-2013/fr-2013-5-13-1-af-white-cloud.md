@@ -1,7 +1,7 @@
 ---
 title: "Tant de gens dans ce monde se détournent de la Vérité"
 menu_title: ""
-description: "Tant de gens dans ce monde se détournent de la Vérité"
+description: "Nuage Blanc, reçu par Albert Fike : « En vérité, elle a porté un lourd fardeau au cours de sa vie. Elle a lutté et surmonté bien des obstacles. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

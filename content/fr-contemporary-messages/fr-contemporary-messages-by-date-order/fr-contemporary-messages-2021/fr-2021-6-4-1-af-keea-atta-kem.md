@@ -1,7 +1,7 @@
 ---
 title: "Vos prières apporteront de la clarté lors des changements à venir"
 menu_title: ""
-description: "Vos prières apporteront de la clarté lors des changements à venir"
+description: "Keea Atta Kem, reçu par Al Fike : « Il est bon que vous priiez pour les grandes bénédictions de lumière et d’amour pour votre monde. »"
 date: 2022-06-01 06:00:01+00:1529
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Liés pour l'éternité"
 menu_title: ""
-description: "Liés pour l'éternité"
+description: "Augustin, reçu par Al Fike : « Oui en effet les chaînes ont été brisées, les chaînes de la condition humaine autour de vous tous. »"
 date: 2022-06-01 06:00:01+00:272
 draft: False
 hidden: True

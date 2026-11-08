@@ -1,7 +1,7 @@
 ---
 title: "Poursuivez vos efforts pour éveiller votre âme"
 menu_title: ""
-description: "Poursuivez vos efforts pour éveiller votre âme"
+description: "Jocelyne Harleston, reçu par Al Fike : « Je souhaite parler à mon bel ami et étudiant de l’Amour de Dieu. Frère bien-aimé, continue dans tes efforts pour … »"
 date: 2022-06-01 06:00:01+00:557
 draft: False
 hidden: True

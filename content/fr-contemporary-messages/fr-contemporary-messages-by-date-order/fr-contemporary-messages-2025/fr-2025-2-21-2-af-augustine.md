@@ -1,7 +1,7 @@
 ---
 title: "Seul votre esprit peut vous séparer de Dieu"
 menu_title: ""
-description: "Seul votre esprit peut vous séparer de Dieu"
+description: "Augustin, reçu par Albert Fike : « Une seule chose vous retient, âmes bien-aimées, dans l’œuvre de Dieu. La seule chose, comme nous vous l’avons répété à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

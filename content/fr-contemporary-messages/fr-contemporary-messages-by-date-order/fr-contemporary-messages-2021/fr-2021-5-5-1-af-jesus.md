@@ -1,7 +1,7 @@
 ---
 title: "Leçon 6 : Exigences pour le développement des dons, y compris la voix directe"
 menu_title: ""
-description: "Leçon 6 : Exigences pour le développement des dons, y compris la voix directe"
+description: "Jésus, reçu par Al Fike : « Il y a certains individus et groupes dans le monde qui sont sérieux dans ces efforts. Divers esprits du monde spirituel et … »"
 date: 2022-06-01 06:00:01+00:1492
 draft: False
 hidden: True

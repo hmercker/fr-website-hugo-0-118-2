@@ -1,7 +1,7 @@
 ---
 title: "Annr Rollins, devenue aveugle et sourde sur terre, n’était pas malheureuse, et le le secret était qu’elle avait dans son âme l’Amour du Père"
 menu_title: ""
-description: "RAnne Rollins, devenue aveugle et sourde sur terre, n’était pas malheureuse, et le le secret était qu’elle avait dans son âme l’Amour du Père"
+description: "Anne Rollins, reçu par James Padgett : « Eh bien, mon cher fils, cela fait un certain temps que je ne t’ai pas écrit, et je sens que je dois partager … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

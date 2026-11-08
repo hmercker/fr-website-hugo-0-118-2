@@ -1,7 +1,7 @@
 ---
 title: "Notre objectif à la Barbade"
 menu_title: ""
-description: "Notre objectif à la Barbade"
+description: "Barthélémy, reçu par Albert Fike : « Comme le dit mon cher frère, il n’y a pas de temps à perdre. En effet, lorsque vous vous réunissez, âmes dévouées et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

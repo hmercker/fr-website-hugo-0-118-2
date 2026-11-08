@@ -1,7 +1,7 @@
 ---
 title: "Une salutation de Jésus"
 menu_title: ""
-description: "Une salutation de Jésus"
+description: "Jésus, reçu par Al Fike : « C’est Jésus, je vous aime. Vous serez les avant-gardes pour cela de bien des façons et vous vous joindrez à d’autres qui se … »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

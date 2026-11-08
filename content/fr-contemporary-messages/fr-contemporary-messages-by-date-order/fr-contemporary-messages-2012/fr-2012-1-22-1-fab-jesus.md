@@ -1,7 +1,7 @@
 ---
 title: "Un appel à la préparation"
 menu_title: ""
-description: "Un appel à la préparation"
+description: "Jésus, reçu par FAB : « J’ai pu utiliser efficacement le Dr Samuels dans ces sermons parce que son âme Juive se prêtait facilement à la description de son … »"
 date: 2022-06-01 06:00:01+00:213
 draft: False
 hidden: True

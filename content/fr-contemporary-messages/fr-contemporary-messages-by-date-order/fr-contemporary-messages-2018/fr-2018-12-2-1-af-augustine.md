@@ -1,7 +1,7 @@
 ---
 title: "Discours sur la Vérité - Partie 2"
 menu_title: ""
-description: "Discours sur la Vérité - Partie 2"
+description: "Augustin, reçu par Al Fike : « Je souhaite compléter mon message du 28 Novmebre dernier sur la façon dont on arrive à la vérité. »"
 date: 2022-06-01 06:00:01+00:586
 draft: False
 hidden: True

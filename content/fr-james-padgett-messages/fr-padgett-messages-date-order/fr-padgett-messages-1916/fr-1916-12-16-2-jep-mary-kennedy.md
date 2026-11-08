@@ -1,7 +1,7 @@
 ---
 title: "Mary dit que son amour d’âme sœur pour Leslie est comme une flamme dévorante. C’est le grand amour en dehors de l’Amour du Père"
 menu_title: ""
-description: "Mary dit que son amour d’âme sœur pour Leslie est comme une flamme dévorante. C’est le grand amour en dehors de l’Amour du Père"
+description: "Mary Kennedy, reçu par James Padgett : « Eh bien, je ne serai pas abandonnée ce soir comme je l’ai été il y a quelques nuits lorsque Kate a écrit son … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

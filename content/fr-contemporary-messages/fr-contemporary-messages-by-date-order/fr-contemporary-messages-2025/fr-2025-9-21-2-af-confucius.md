@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture de la retraite de Fontainebleau"
 menu_title: ""
-description: "Message de clôture de la retraite de Fontainebleau"
+description: "Confucius, reçu par Albert Fike : « Bientôt, vous vous envolerez et retrouverez votre place dans le monde. Je vous exhorte à transmettre au monde les … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

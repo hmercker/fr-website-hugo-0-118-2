@@ -1,7 +1,7 @@
 ---
 title: "Flavius Josèphe – La création des premiers parents. Différence dans leurs qualités, égalité dans leur relation envers Dieu"
 menu_title: ""
-description: "Flavius Josèphe – La création des premiers parents. Différence dans leurs qualités, égalité dans leur relation envers Dieu"
+description: "Flavius Josèphe, reçu par James Padgett : « Je ne veux pas dire que je désire corriger tout le livre, mais certaines faits que vous avez lus. »"
 date: 2022-06-01 06:00:01+00:237
 draft: False
 hidden: True

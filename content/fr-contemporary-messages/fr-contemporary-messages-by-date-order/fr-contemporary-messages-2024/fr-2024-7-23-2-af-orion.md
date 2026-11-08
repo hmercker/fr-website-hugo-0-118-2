@@ -1,7 +1,7 @@
 ---
 title: "Affirme son dévouement à notre progression"
 menu_title: ""
-description: "Affirme son dévouement à notre progression"
+description: "Orion, reçu par Albert Fike : « Nous passons beaucoup de temps, tous déployés autour de vous, pour vous aider à vous développer et à vous préparer à ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

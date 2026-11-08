@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett confirme que c’est Jésus qui vient de lui écrire et le rassure sur le grand amour que Jésus avait pour lui"
 menu_title: ""
-description: "La grand-mère de M. Padgett confirme que c’est Jésus qui vient de lui écrire et le rassure sur le grand amour que Jésus avait pour lui"
+description: "Anne Rollins, reçu par James Padgett : « Tu es certainement béni et favorisé. C’était Jésus et il était si aimant et si gracieux que je ne sais pas quoi dire. »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

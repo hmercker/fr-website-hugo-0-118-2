@@ -1,7 +1,7 @@
 ---
 title: "Nourrir ce centre de lumière ouvrira de nombreuses portes à l'avenir"
 menu_title: ""
-description: "Nourrir ce centre de lumière ouvrira de nombreuses portes à l'avenir"
+description: "Augustin, reçu par Al Fike : « Le rythme du changement dans votre monde s’accélère, âmes bien-aimées, et le rythme du changement dans vos propres vies … »"
 date: 2022-06-01 06:00:01+00:592
 draft: False
 hidden: True

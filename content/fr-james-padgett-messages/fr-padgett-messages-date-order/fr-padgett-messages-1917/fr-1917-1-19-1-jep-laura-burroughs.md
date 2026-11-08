@@ -1,7 +1,7 @@
 ---
 title: "La cousine Laura Burroughs raconte sa rencontre avec son âme sœur"
 menu_title: ""
-description: "La cousine Laura Burroughs raconte sa rencontre avec son âme sœur"
+description: "Laura Burroughs, reçu par James Padgett : « Je voulais simplement dire ceci, car cela me rend très heureuse de venir à vous de cette façon. »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

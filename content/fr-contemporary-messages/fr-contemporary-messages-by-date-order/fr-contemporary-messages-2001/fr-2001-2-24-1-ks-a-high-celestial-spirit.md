@@ -1,7 +1,7 @@
 ---
 title: "Tendre l’autre joue"
 menu_title: ""
-description: "Tendre l’autre joue"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Nous sommes toujours heureux lorsque tu décides de te permettre d’être un canal pour nos pensées. »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Connexion d'amour instantanée"
 menu_title: ""
-description: "Connexion d'amour instantanée"
+description: "Jésus, reçu par Helge Mercker : « Que Dieu te bénisse comme je t’apporte ma bénédiction, cher enfant aimé de Dieu, notre Père. »"
 date: 2022-06-01 06:00:01+00:1227
 draft: False
 hidden: True

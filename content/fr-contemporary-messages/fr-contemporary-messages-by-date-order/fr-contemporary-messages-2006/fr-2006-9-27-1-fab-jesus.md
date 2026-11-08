@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud - La parabole"
 menu_title: ""
-description: "Jésus et le Talmud - La parabole"
+description: "Jésus, reçu par FAB : « Je veux maintenant parler des paraboles. Comme tout le monde le sait, c'était une de mes méthodes favorites pour enseigner les … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

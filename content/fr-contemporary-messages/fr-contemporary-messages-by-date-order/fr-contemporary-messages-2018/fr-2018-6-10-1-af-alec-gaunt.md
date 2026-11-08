@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C."
 menu_title: ""
-description: "L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C."
+description: "Alec Gaunt, reçu par Al Fike : « Moi aussi, j’ai fait partie de votre église il y a de nombreuses années, à ses débuts. Moi aussi, j’ai eu mes défis et … »"
 date: 2022-06-01 06:00:01+00:412
 draft: False
 hidden: True

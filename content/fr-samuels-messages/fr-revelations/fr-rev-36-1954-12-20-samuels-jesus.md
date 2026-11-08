@@ -1,7 +1,7 @@
 ---
 title: "36ème Révélation : Joseph et Marie; l’expiation déléguée; l’interprétation erronée concernant les Gentils"
 menu_title: ""
-description: "36ème Révélation : Joseph et Marie; l’expiation déléguée; l’interprétation erronée concernant les Gentils"
+description: "Jésus, reçu par Dr Samuels : « En premier lieu, il y a une preuve dans le Nouveau Testament pour montrer, qu’environ neuf mois avant la crucifixion, mon … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

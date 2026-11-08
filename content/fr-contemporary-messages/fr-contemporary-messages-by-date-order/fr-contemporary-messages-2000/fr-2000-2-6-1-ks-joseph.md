@@ -1,7 +1,7 @@
 ---
 title: "Joseph : Sur Joseph d’Arimathie"
 menu_title: ""
-description: "Joseph : Sur Joseph d’Arimathie"
+description: "Joseph, reçu par Kathryn Stokes : « Nous savons qu’il y a beaucoup de gens à l’esprit scientifique qui recherchent la vérité à leur façon. »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Priez avec nous pour apporter une plus grande lumière au monde"
 menu_title: ""
-description: "Priez avec nous pour apporter une plus grande lumière au monde"
+description: "Anne Rollins, reçu par Albert Fike : « Que l’Amour du Père continue à remplir vos âmes. En effet, chaque fois que vous priez, vous apportez une plus … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

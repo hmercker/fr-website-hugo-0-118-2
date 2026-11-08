@@ -1,7 +1,7 @@
 ---
 title: "Marie décrit la bénédiction du toucher de Dieu sur elle ; Jésus bénit le groupe"
 menu_title: ""
-description: "Marie décrit la bénédiction du toucher de Dieu sur elle ; Jésus bénit le groupe"
+description: "Marie et Jésus, reçu par Albert Fike : « Marie : Que les bénédictions de l’Amour du Père soient vôtres. Dans un monde tel que celui-ci, Dieu dispense Ses … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

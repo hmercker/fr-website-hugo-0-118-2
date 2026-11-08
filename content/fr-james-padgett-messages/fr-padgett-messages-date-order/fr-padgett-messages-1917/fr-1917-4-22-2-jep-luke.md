@@ -1,7 +1,7 @@
 ---
 title: "Luc confirmant ce que le Maître a écrit"
 menu_title: ""
-description: "Luc confirmant ce que le Maître a écrit"
+description: "St Luc, reçu par James Padgett : « Je vais seulement dire un mot, parce que je vois comment vous vous sentez et à quel point il est important que vous … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Je viens bénir ce lieu"
 menu_title: ""
-description: "Je viens bénir ce lieu"
+description: "Jésus, reçu par Al Fike : « Et je vous supplie de me suivre, de marcher dans la Lumière de cet Amour qui est au-delà de tout autre Amour, cette puissance … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

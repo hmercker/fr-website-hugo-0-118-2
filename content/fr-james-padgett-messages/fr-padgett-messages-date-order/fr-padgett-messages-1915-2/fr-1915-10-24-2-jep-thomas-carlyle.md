@@ -1,7 +1,7 @@
 ---
 title: "Commente les écrits de Luc sur la dématérialisation du corps terrestre de Jésus"
 menu_title: ""
-description: "Commente les écrits de Luc sur la dématérialisation du corps terrestre de Jésus"
+description: "Thomas Carlyle, reçu par James Padgett : « Je veux simplement dire que j’étais présent lorsque Luc a écrit et j’ai entendu ce qu’il a dit et fut très … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

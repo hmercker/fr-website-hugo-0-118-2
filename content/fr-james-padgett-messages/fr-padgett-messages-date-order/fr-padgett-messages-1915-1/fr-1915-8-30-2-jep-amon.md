@@ -1,7 +1,7 @@
 ---
 title: "Amon, la mère de tous les humains, partage son expérience, sa tentation et désobéissance"
 menu_title: ""
-description: "Amon, la mère de tous les humains, partage son expérience, sa tentation et désobéissance"
+description: "Amon, reçu par James Padgett : « Nous avons été créés par Dieu en même temps, et nous étions prêts, juste après notre création, à vivre la vie des êtres … »"
 date: 2022-06-01 06:00:01+00:221
 draft: False
 hidden: True

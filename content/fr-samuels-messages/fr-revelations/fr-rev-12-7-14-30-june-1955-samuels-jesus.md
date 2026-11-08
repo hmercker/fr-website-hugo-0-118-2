@@ -1,7 +1,7 @@
 ---
 title: "12ème Révélation : Jésus explique certains passages de l’Évangile de Jean"
 menu_title: ""
-description: "12ème Révélation : Jésus explique certains passages de l’Évangile de Jean"
+description: "Jésus, reçu par Dr Samuels : « Dans l’Évangile selon Jean, chapitre 5, verset 22, la phrase « Le Père ne juge personne, mais il a remis tout jugement au … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

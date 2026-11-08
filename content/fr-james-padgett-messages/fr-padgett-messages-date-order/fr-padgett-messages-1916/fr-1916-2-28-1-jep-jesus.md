@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu"
 menu_title: ""
-description: "Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu"
+description: "Jésus, reçu par James Padgett : « Ce soir, je désire vous écrire sur le sujet : « Comment une âme doit recevoir l’Amour Divin du Père afin de devenir une … »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

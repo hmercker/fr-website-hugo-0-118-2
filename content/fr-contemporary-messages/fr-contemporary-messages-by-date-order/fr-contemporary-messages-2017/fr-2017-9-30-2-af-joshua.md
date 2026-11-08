@@ -1,7 +1,7 @@
 ---
 title: "Réduire les différences avec amour"
 menu_title: ""
-description: "Réduire les différences avec amour"
+description: "Josué, reçu par Al Fike : « Ces instruments ont beaucoup voyagé dans le monde et ont fait l'expérience des différentes cultures et attitudes de leurs … »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Q&R : S'éveiller grâce à l'Amour du Père permet d'accéder soi-même à la vérité"
 menu_title: ""
-description: "Q&R : S'éveiller grâce à l'Amour du Père permet d'accéder soi-même à la vérité"
+description: "Flavius Josèphe, reçu par Al Fike : « Je répondrai à vos questions, âmes bien-aimées. Nous souhaitons donc faciliter son désir de le faire et pour ceux … »"
 date: 2022-06-01 06:00:01+00:769
 draft: False
 hidden: True

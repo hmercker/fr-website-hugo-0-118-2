@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu de toucher les recoins blessés et sombres de vos âmes"
 menu_title: ""
-description: "Permettez à Dieu de toucher les recoins blessés et sombres de vos âmes"
+description: "Jésus, reçu par Al Fike : « Son Amour atteint les profondeurs de vos âmes, il atteint les profondeurs en remplissant ces espaces où vous gardez votre … »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

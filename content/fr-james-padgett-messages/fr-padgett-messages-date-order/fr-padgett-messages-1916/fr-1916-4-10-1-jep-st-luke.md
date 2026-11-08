@@ -1,7 +1,7 @@
 ---
 title: "Luc apporte quelques corrections sur le message précédent"
 menu_title: ""
-description: "Luc apporte quelques corrections sur le message précédent"
+description: "St Luc, reçu par James Padgett : « Je désire apporter quelques corrections à mon message d’hier soir et je vous remercie de les recevoir. »"
 date: 2022-06-01 06:00:01+00:199
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Je serai avec chacun de vous dans votre voyage"
 menu_title: ""
-description: "Je serai avec chacun de vous dans votre voyage"
+description: "Jésus, reçu par Al Fike : « Nous ferons donc ensemble le voyage amoureux au-delà des limites de ce monde matériel, à travers le voyage vers l’esprit et … »"
 date: 2023-09-01 06:00:01+00:78
 draft: False
 hidden: True

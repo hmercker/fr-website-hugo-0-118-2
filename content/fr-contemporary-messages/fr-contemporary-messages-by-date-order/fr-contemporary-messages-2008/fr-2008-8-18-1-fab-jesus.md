@@ -1,7 +1,7 @@
 ---
 title: "La jeunesse de Jésus"
 menu_title: ""
-description: "La jeunesse de Jésus"
+description: "Jésus, reçu par FAB : « Laissez-moi vous parler de ma jeunesse. Depuis mon enfance, je ressentais un désir ardent dans mon âme. »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

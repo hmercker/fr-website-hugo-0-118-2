@@ -1,7 +1,7 @@
 ---
 title: "Louisa R. Connell a eu une carrière théâtrale et est dans l’obscurité avec d’autres personnes de la même profession"
 menu_title: ""
-description: "Louisa R. Connell a eu une carrière théâtrale et est dans l’obscurité avec d’autres personnes de la même profession"
+description: "Louisa R Connell, reçu par James Padgett : « Je n’étais pas une très bonne femme lorsque j’étais sur terre, ni une très mauvaise femme comme je le pensais … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'humilité avant l'ego"
 menu_title: ""
-description: "L'humilité avant l'ego"
+description: "Augustin, reçu par Albert Fike : « Il s’agit d’un groupe formidable, rassemblé dans un Cercle de Lumière, qui a le pouvoir de changer le monde, même si … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

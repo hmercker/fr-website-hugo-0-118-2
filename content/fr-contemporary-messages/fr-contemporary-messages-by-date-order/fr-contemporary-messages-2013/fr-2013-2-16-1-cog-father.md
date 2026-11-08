@@ -1,7 +1,7 @@
 ---
 title: "Je n'ai besoin que de ton désir"
 menu_title: ""
-description: "Je n'ai besoin que de ton désir"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Je n’ai besoin que de ton cœur. Je n’ai besoin que de ton désir. »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

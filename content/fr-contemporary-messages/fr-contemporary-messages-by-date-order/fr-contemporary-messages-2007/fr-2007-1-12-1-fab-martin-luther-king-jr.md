@@ -1,7 +1,7 @@
 ---
 title: "La Terre Promise"
 menu_title: ""
-description: "La Terre Promise"
+description: "Martin Luther King jr, reçu par FAB : « À l'approche de mon anniversaire, je voudrais que le monde sache que j'ai effectivement vu \"la Terre promise\" et … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

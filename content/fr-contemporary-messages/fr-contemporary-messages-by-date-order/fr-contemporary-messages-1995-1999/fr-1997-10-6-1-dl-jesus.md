@@ -1,7 +1,7 @@
 ---
 title: "Le travail qui nous attend"
 menu_title: ""
-description: "Le travail qui nous attend"
+description: "Jésus, reçu par Révérend Dave Lampron : « En vérité, j'avais l'intention de le faire sans votre demande formelle, car je voulais aussi vous transmettre … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

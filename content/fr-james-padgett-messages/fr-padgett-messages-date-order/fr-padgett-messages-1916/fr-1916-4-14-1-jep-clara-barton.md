@@ -1,7 +1,7 @@
 ---
 title: "Clara Barton, fondatrice de la Société de la Croix-Rouge, est toujours dans le plan terrestre et ne s’intéresse pas trop à la progression spirituelle"
 menu_title: ""
-description: "Clara Barton, fondatrice de la Société de la Croix-Rouge, est toujours dans le plan terrestre et ne s’intéresse pas trop à la progression spirituelle"
+description: "Clara Barton, reçu par James Padgett : « J’ai vu que d’autres écrivaient à travers vous et j’ai pensé que j’aimerais essayer, et donc avec la permission … »"
 date: 2022-06-01 06:00:01+00:200
 draft: False
 hidden: True

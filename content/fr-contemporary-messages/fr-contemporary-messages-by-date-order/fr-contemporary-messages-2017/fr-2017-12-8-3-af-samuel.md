@@ -1,7 +1,7 @@
 ---
 title: "Les choix de l'âme - Le bien contre le mal"
 menu_title: ""
-description: "Les choix de l'âme - Le bien contre le mal"
+description: "Samuel, reçu par Al Fike : « J'ai écouté votre conversation concernant l'âme et je souhaite commenter et, je l'espère, dissiper certains malentendus que … »"
 date: 2022-06-01 06:00:01+00:261
 draft: False
 hidden: True

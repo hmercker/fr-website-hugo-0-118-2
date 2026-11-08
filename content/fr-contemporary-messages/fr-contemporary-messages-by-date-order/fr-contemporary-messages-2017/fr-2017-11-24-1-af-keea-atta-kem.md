@@ -1,7 +1,7 @@
 ---
 title: "Le 19ème mille"
 menu_title: ""
-description: "Le 19ème mille"
+description: "Keea Atta Kem, reçu par Al Fike : « Oui j'ai écouté votre discussion sur l'énergie et notre bien-aimée Fleur de Lotus a très bien exprimé les concepts … »"
 date: 2022-06-01 06:00:01+00:235
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett parle de son amour pour M. Padgett"
 menu_title: ""
-description: "Hélène Padgett parle de son amour pour M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Mon cher Ned, tu en as assez écrit pour ce soir. Je veux te dire que je t’aime de tout mon cœur et de toute mon … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

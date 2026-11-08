@@ -1,7 +1,7 @@
 ---
 title: 	"Il y a beaucoup à préparer"
 menu_title: ""
-description: "Il y a beaucoup à préparer"
+description: "Orion, reçu par Albert Fike : « Il y a beaucoup de choses à préparer, un monde qui change autour de vous. Ces changements ne sont pas très évidents ni … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La cinquième sphère"
 menu_title: ""
-description: "La cinquième sphère"
+description: "Judas, reçu par H : « Nous avons déjà fait un long voyage ensemble à travers plusieurs sphères, et tu as déjà une idée à leur sujet que tu as reçue d’Anne … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un baiser d’amour"
 menu_title: ""
-description: "Un baiser d’amour"
+description: "André, reçu par Al Fike : « Alors que Dieu place sa main sur vous et tend la main pour vous donner un baiser, un baiser d’amour, un baiser de … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

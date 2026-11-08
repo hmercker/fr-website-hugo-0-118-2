@@ -1,7 +1,7 @@
 ---
 title: "Indignation vertueuse III"
 menu_title: ""
-description: "Indignation vertueuse III"
+description: "Jérémie, reçu par FAB : « J'étais une personne qui avait une indignation vertueuse. Je voyais des choses qui n'étaient pas bonnes, et je voulais qu'elles … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

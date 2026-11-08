@@ -1,7 +1,7 @@
 ---
 title: "La Joie de vivre"
 menu_title: ""
-description: "La Joie de vivre"
+description: "Goldie, reçu par Al Fike : « Rappelez-vous qu’il y a beaucoup de belles choses dans le monde. Regardez le ciel bleu, le soleil, même les bénédictions de … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

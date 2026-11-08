@@ -1,7 +1,7 @@
 ---
 title: "Atteindre la conscience de l'âme"
 menu_title: ""
-description: "Atteindre la conscience de l'âme"
+description: "Augustin, reçu par Albert Fike : « La conscience de l'âme est une réalité, elle existe. Mais souvent, cela vous est insaisissable sur le plan terrestre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le message de Jean sur les portraits de Jésus"
 menu_title: ""
-description: "Hélène commente le message de Jean sur les portraits de Jésus"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu une lettre plutôt inhabituelle de Jean, et je dois dire que, les portraits de … »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

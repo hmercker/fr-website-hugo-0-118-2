@@ -1,7 +1,7 @@
 ---
 title: "La canalisation et l’influence des croyances enracinées"
 menu_title: ""
-description: "La canalisation et l’influence des croyances enracinées"
+description: "Judas, reçu par H : « Nous ne sentons pas « la pression de leur regard », mais leurs pensées. Pas dans le sens où nous lisons leurs pensées, mais plutôt … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

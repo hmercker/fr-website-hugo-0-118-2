@@ -1,7 +1,7 @@
 ---
 title: "Le changement de perspective de Woodrow Wilson"
 menu_title: ""
-description: "Le changement de perspective de Woodrow Wilson"
+description: "Woodrow Wilson, reçu par FAB : « D'après ce que vous avez lu à mon sujet, vous niez ce que j'ai dit dans mes canalisations, mais j'ai parlé comme je … »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

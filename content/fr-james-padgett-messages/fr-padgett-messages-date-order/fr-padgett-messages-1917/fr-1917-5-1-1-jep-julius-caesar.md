@@ -1,7 +1,7 @@
 ---
 title: "Jules César partage ses expériences après avoir reçu l’aide d’un Esprit Divin"
 menu_title: ""
-description: "Jules César partage ses expériences après avoir reçu l’aide d’un Esprit Divin"
+description: "Jules César, reçu par James Padgett : « J’ai commencé à prier le Père pour l’afflux de ce grand Amour Divin dont le bon esprit m’avait parlé, et j’ai … »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

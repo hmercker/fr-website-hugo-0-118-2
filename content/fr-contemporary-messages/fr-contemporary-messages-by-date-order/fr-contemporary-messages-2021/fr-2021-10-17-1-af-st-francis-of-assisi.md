@@ -1,7 +1,7 @@
 ---
 title: "Nous implore d’apporter une plus grande lumière dans le monde (Cercle de Prière en ligne)"
 menu_title: ""
-description: "Nous implore d’apporter une plus grande lumière dans le monde (Cercle de Prière en ligne)"
+description: "St François d'Assise, reçu par Al Fike : « De bien, bien des façons différentes, il y a une grande douleur et une grande souffrance sur (dans) votre monde. »"
 date: 2022-06-01 06:00:01+00:1680
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Être guidé par l'Amour de Dieu"
 menu_title: ""
-description: "Être guidé par l'Amour de Dieu"
+description: "Augustin : « Combien de choses nous aurions pu faire sur Terre si nous avions une plus grande compréhension. »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Faites face aux changements à venir dans le monde avec la prière"
 menu_title: ""
-description: "Faites face aux changements à venir dans le monde avec la prière"
+description: "Seretta Kem, reçu par Al Fike : « Pourtant, tant de personnes ne ressentent aujourd’hui aucune joie ou reconnaissance de ce temps de gratitude et cela … »"
 date: 2022-06-01 06:00:01+00:591
 draft: False
 hidden: True

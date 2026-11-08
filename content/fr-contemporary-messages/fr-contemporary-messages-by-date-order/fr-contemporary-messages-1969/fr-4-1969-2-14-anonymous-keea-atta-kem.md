@@ -1,7 +1,7 @@
 ---
 title: "Demandez au Père d'ouvrir vos âmes"
 menu_title: ""
-description: "Demandez au Père d'ouvrir vos âmes"
+description: "Keea Atta Kem : « Nous venons à vous pour vous montrer le chemin afin que vous puissiez avoir la joie et le bonheur et le meilleur de nous tous sur ces plans. »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

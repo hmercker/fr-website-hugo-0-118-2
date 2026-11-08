@@ -1,7 +1,7 @@
 ---
 title: "Agir avec Amour"
 menu_title: ""
-description: "Agir avec Amour"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Je souhaite dire quelques cmots sur l’action en relation avec le fait de marcher dans le monde chaque jour. »"
 date: 2022-06-01 06:00:01+00:213
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reconnaît les changements terrestres et la différence que l'amour des femmes et des mères a eue dans le monde"
 menu_title: ""
-description: "Reconnaît les changements terrestres et la différence que l'amour des femmes et des mères a eue dans le monde"
+description: "André, reçu par Albert Fike : « Il nous est difficile d’établir un lien aujourd’hui avec cet instrument en raison des conditions et des énergies qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

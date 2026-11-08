@@ -1,7 +1,7 @@
 ---
 title: "Aime son travail en esprit comme il l'a aimé sur terre"
 menu_title: ""
-description: "Aime son travail en esprit comme il l'a aimé sur terre "
+description: "Fred Rogers, reçu par Jimbeau Walsh : « Ne s’agit-il pas d’un quartier ? N’est-ce pas une famille ? »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "S'avancer pour Dieu"
 menu_title: ""
-description: "S'avancer pour Dieu"
+description: "Jeanne d'Arc, reçu par Al Fike : « J'ai un profond désir d'apporter des changements à votre monde qui a tant besoin du réconfort de Dieu, de l'Amour de Dieu. »"
 date: 2022-06-01 06:00:01+00:202
 draft: False
 hidden: True

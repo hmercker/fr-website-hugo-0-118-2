@@ -1,7 +1,7 @@
 ---
 title: "Remerciements du cercle de prière en ligne, encouragements pour la Voix Directe"
 menu_title: ""
-description: "Remerciements du cercle de prière en ligne, encouragements pour la Voix Directe"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Je souhaite reconnaître vos efforts aujourd’hui en remarquant que vous avez attiré dans de nombreuses personnes … »"
 date: 2022-06-01 06:00:01+00:525
 draft: False
 hidden: True

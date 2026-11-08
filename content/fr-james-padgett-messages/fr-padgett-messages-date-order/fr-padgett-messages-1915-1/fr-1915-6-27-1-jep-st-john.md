@@ -1,7 +1,7 @@
 ---
 title: "St Jean corrobore que Jésus écrit à travers M. Padgett"
 menu_title: ""
-description: "St Jean corrobore que Jésus écrit à travers M. Padgett"
+description: "St Jean, reçu par James Padgett : « Non, et pas plus qu’aucun esprit dans tout l’univers de Dieu. Lui, Jésus, est celui qui aime le Père à un degré plus … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

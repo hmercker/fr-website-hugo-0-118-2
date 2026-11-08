@@ -1,7 +1,7 @@
 ---
 title: "Laissez les choses de l'âme vous stimuler"
 menu_title: ""
-description: "Laissez les choses de l'âme vous stimuler"
+description: "Yogananda, reçu par Maureen Cardoso : « Votre discussion m'attire vers vous. Ce sujet stimule, pour certains, les facultés mentales ; il offre l'occasion … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

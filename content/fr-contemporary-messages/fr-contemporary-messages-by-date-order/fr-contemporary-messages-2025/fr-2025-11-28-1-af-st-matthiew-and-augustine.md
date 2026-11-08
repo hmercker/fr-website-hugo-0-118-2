@@ -1,7 +1,7 @@
 ---
 title: "Votre Destinée en tant qu'Instruments de Dieu : Rayonner de Vérité et d'Amour dans le Monde"
 menu_title: ""
-description: "Votre Destinée en tant qu'Instruments de Dieu : Rayonner de Vérité et d'Amour dans le Monde"
+description: "St Matthieu et Augustin, reçu par Albert Fike : « Vous êtes d’intrépides chercheurs de vérité. Chacun de vous a consacré sa vie à rechercher l’harmonie … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

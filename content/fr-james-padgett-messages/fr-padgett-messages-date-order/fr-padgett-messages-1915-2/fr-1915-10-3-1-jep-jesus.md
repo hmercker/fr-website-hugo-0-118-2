@@ -1,7 +1,7 @@
 ---
 title: "Est souvent allé avec M. Padgett aux offices religieux auxquels il assistait à Washington, puis il écrivait sur la croyance des prédicateurs et leur développement spirituel"
 menu_title: ""
-description: "Est souvent allé avec M. Padgett aux offices religieux auxquels il assistait à Washington, puis il écrivait sur la croyance des prédicateurs et leur développement spirituel"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous ce soir et vous n’avez pas été très impressionné par les pensées exprimées par l’orateur , parce qu’il … »"
 date: 2022-06-01 06:00:01+00:295
 draft: False
 hidden: True

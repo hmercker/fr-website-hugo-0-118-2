@@ -1,7 +1,7 @@
 ---
 title: "Encourage l'unité au sein de la famille de l'Amour Divin"
 menu_title: ""
-description: Encourage l'unité au sein de la famille de l'Amour Divin "
+description: "Jésus, reçu par Albert Fike : « La conscience doit venir à l’humanité, car comment le monde va-t-il changer et être guéri si l’humanité ne vient pas à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

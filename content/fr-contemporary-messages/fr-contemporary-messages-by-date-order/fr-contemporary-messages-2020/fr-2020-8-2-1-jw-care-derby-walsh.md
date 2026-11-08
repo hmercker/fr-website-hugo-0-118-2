@@ -1,7 +1,7 @@
 ---
 title: "Dans l’Amour de Dieu, il n’y a pas de mauvais choix"
 menu_title: ""
-description: "Dans l’Amour de Dieu, il n’y a pas de mauvais choix"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Votre travail est tout pour nous et votre valeur est sans commune mesure. Nous vous aidons à vous procurer … »"
 date: 2022-06-01 06:00:01+00:1207
 draft: False
 hidden: True

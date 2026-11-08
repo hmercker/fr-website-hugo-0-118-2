@@ -1,7 +1,7 @@
 ---
 title: "Pour quoi priez-vous ?"
 menu_title: ""
-description: "Pour quoi priez-vous ?"
+description: "Augustin, reçu par Al Fike : « Quel est le désir ardent dans vos âmes ? Quel est le centre d'intérêt de votre prière ? »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

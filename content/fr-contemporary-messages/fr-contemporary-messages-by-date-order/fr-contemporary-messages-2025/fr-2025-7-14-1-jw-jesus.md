@@ -1,7 +1,7 @@
 ---
 title: "Écouter la petite voix douce de Dieu"
 menu_title: ""
-description: "Écouter la petite voix douce de Dieu"
+description: "Jésus, reçu par reçu par Jimbeau Walsh : « Quelles que soient les raisons qui vous ont amenés ici, ce rassemblement d'âmes belles et sincères apporte … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

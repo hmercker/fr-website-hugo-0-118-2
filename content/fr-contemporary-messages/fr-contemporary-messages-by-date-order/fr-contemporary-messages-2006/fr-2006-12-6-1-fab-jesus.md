@@ -1,7 +1,7 @@
 ---
 title: "Le livre de Job et le problème du mal"
 menu_title: ""
-description: "Le livre de Job et le problème du mal"
+description: "Jésus, reçu par FAB : « Je vais maintenant transmettre mon message sur le Livre de Job. Je le fais maintenant à ce moment précis parce que vous êtes … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

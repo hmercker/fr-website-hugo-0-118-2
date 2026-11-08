@@ -1,7 +1,7 @@
 ---
 title: "Jésus continue d’enseigner la Vvérité de l’Amour Divin de Dieu jusqu’à la fermeture du royaume Céleste"
 menu_title: ""
-description: "Jésus continue d’enseigner la vérité de l’Amour Divin de Dieu jusqu’à la fermeture du royaume Céleste"
+description: "Jésus, reçu par Al Fike : « Je viens, âmes bien-aimées. Car jusqu’à ce que la grande porte des Cieux Célestes se ferme, je poursuivrai mes efforts et ma … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

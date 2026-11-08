@@ -1,7 +1,7 @@
 ---
 title: "Parler à deux étrangers pour la première fois"
 menu_title: ""
-description: "Parler à deux étrangers pour la première fois"
+description: "Augustin : « J'ai été avec vous pendant un certain temps, et en ce qui vous concerne, je peux sentir que certains changements dans vos vies seraient les … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

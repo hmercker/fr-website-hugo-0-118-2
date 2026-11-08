@@ -1,7 +1,7 @@
 ---
 title: "Importance de la dualité et des limites"
 menu_title: ""
-description: "Importance de la dualité et des limites"
+description: "Meera, reçu par WV : « Les choses du monde sont importantes pour notre croissance spirituelle, car notre chemin spirituel commence vraiment ici, dans ce … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

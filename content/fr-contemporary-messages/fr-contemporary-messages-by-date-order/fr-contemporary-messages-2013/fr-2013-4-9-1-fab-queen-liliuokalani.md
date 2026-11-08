@@ -1,7 +1,7 @@
 ---
 title: "Un message de réconfort d’une Reine"
 menu_title: ""
-description: "Un message de réconfort d’une Reine"
+description: "Reine Liliuokalani, reçu par FAB : « Vous sentez que votre pays [les États-Unis] a commis à mon égard et à l'égard de mon peuple une grave injustice. »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

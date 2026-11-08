@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett encourage M. Padgett à aller de l’avant jusqu’au but. Se réfère au grand amour de Jésus et au fait qu’il prie encore pour en avoir plus"
 menu_title: ""
-description: "La grand-mère de M. Padgett encourage M. Padgett à aller de l’avant jusqu’au but. Se réfère au grand amour de Jésus et au fait qu’il prie encore pour en avoir plus"
+description: "Anne Rollins, reçu par James Padgett : « Permet moi d’écrire quelques lignes ce soir, car j’ai écouté ta conversation avec un certain intérêt, et je … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La mesure du temps sur Terre est très différente de celle des Cieux Célestes"
 menu_title: ""
-description: "La mesure du temps sur Terre est très différente de celle des Cieux Célestes"
+description: "Copernic, reçu par Al Fike : « Je crois que vous connaissez tous mon histoire dans votre monde. Car la mesure du temps dans votre monde est très … »"
 date: 2022-06-01 06:00:01+00:934
 draft: False
 hidden: True

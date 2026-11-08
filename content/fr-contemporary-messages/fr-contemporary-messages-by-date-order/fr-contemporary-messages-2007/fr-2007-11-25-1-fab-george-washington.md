@@ -1,7 +1,7 @@
 ---
 title: "La protection Divine et la guerre"
 menu_title: ""
-description: "La protection Divine et la guerre"
+description: "George Washington, reçu par FAB : « Permettez-moi de discuter d'une question qui vous a troublé. Vous avez appris que le militarisme est tout à fait … »"
 date: 2022-06-01 06:00:01+00:179
 draft: False
 hidden: True

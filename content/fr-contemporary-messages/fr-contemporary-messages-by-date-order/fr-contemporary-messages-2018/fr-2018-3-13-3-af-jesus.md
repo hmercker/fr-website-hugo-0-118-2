@@ -1,7 +1,7 @@
 ---
 title: "Dans l'Amour de Dieu, vous avez trouvé votre sanctuaire de lumière"
 menu_title: ""
-description: "Dans l'Amour de Dieu, vous avez trouvé votre sanctuaire de lumière"
+description: "Jésus, reçu par Al Fike : « Père bien-aimé, bénis ceux-ci, tes enfants qui cherchent ta lumière, dont les âmes ont soif de ton amour. »"
 date: 2022-06-01 06:00:01+00:359
 draft: False
 hidden: True

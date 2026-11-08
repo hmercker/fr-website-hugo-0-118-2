@@ -1,7 +1,7 @@
 ---
 title: "Un acte de Foi"
 menu_title: ""
-description: "Un acte de Foi"
+description: "Grace Jordan, reçu par Albert Fike : « Ma chère fille, tu as été protégée dans ta chute et, en effet, nous dirions que tu es une vieille femme forte, mais … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

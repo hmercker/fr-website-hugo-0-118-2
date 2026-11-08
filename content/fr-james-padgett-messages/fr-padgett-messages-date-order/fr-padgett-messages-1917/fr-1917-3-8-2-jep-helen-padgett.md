@@ -1,7 +1,7 @@
 ---
 title: "Hélène exprime la déception de Jacques"
 menu_title: ""
-description: "Hélène exprime la déception de Jacques"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu es déçu ce soir de ne pas avoir reçu le message de Jacques de façon à ce que … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La foi en Dieu et en vos dons"
 menu_title: ""
-description: "La foi en Dieu et en vos dons"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « J’ai été avec vous comme vous pouvez l’imaginer et j’ai vraiment apprécié vos explorations dans le monde de … »"
 date: 2022-06-01 06:00:01+00:1217
 draft: False
 hidden: True

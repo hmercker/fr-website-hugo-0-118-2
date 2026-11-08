@@ -1,7 +1,7 @@
 ---
 title: "Amusez-vous aussi !"
 menu_title: ""
-description: "Amusez-vous aussi !"
+description: "Goldie, reçu par Albert Fike : « La célébration de la vie est importante. Soyez dans le flux du plaisir, du rire et de la célébration. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

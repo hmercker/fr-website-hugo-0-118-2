@@ -1,7 +1,7 @@
 ---
 title: "Encourage les nouveaux cercles de lumière"
 menu_title: ""
-description: "Encourage les nouveaux cercles de lumière"
+description: "St Matthieu, reçu par FAl Fike : « Il est important pour le monde que ces Cercles de Lumière continuent, se renforcent et se multiplient. »"
 date: 2022-06-01 06:00:01+00:195
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Chaque jour a le potentiel d’apporter la lumière si les intentions sont bonnes"
 menu_title: ""
-description: "Chaque jour a le potentiel d’apporter la lumière si les intentions sont bonnes"
+description: "Jean le Bien Aimé, reçu par Al Fike : « C’est si beau de voir l’amour que vous partagez, âmes bien-aimées. Avoir cette amitié, cette fraternité … »"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

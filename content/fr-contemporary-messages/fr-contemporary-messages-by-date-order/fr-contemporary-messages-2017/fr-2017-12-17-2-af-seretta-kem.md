@@ -1,7 +1,7 @@
 ---
 title: "Vous regardez vers l'avenir"
 menu_title: ""
-description: "Vous regardez vers l'avenir"
+description: "Seretta Kem, reçu par Al Fike : « Je dis que ce sont toutes de bonnes pensées, des idées importantes pour découvrir et connaître la vérité concernant vos … »"
 date: 2022-06-01 06:00:01+00:287
 draft: False
 hidden: True

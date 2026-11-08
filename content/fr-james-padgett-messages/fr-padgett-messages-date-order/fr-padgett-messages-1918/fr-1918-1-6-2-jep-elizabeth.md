@@ -1,7 +1,7 @@
 ---
 title: "Elizabeth, cousine de Marie, mère de Jésus. Le travail que fait M. Padgett, constitue la véritable seconde venue de Jésus"
 menu_title: ""
-description: "Elizabeth, cousine de Marie, mère de Jésus. Le travail que fait M. Padgett, constitue la véritable seconde venue de Jésus"
+description: "Elizabeth, reçu par James Padgett : « Permettez-moi de dire quelques mots, à savoir que vous êtes un homme très heureux en ce moment, et que vous devriez … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

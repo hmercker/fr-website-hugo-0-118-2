@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité"
 menu_title: ""
-description: "Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité"
+description: "Moïse et Jésus, reçu par Albert Fike : « Que les puissantes bénédictions de l’Amour du Père soient avec nous tous. Je te remercie, cher enfant, pour ta … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

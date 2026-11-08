@@ -1,7 +1,7 @@
 ---
 title: "Devenez un adepte de mes enseignements"
 menu_title: ""
-description: "Devenez un adepte de mes enseignements"
+description: "Jésus, reçu par Helge Mercker : « N’hésite pas à nous appeler, car nous voulons t’aider dans toutes les décisions ou déclarations que tu souhaites exprimer. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

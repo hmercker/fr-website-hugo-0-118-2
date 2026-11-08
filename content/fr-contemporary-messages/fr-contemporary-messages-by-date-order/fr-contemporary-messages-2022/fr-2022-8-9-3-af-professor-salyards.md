@@ -1,7 +1,7 @@
 ---
 title: "Les anges cherchent à travailler avec le mental de notre âme  en nous nourrissant"
 menu_title: ""
-description: "Les anges cherchent à travailler avec le mental de notre âme  en nous nourrissant"
+description: "Professeur Salyards, reçu par Al Fike : « Il est bon que vous priiez pour que votre volonté s’aligne sur celle de Dieu. Il est bon que vous observiez et … »"
 date: 2023-09-01 06:00:01+00:39
 draft: False
 hidden: True

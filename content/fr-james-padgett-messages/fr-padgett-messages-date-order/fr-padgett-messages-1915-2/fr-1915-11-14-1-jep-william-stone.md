@@ -1,7 +1,7 @@
 ---
 title: "Premier message formel du père du Dr Stone, William Stone"
 menu_title: ""
-description: "Premier message formel du père du Dr Stone, William Stone"
+description: "William Stone, reçu par James Padgett : « Donc, s’il me donne parfois une pensée affectueuse et anxieuse, je pourrai établir un rapport plus étroit avec … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

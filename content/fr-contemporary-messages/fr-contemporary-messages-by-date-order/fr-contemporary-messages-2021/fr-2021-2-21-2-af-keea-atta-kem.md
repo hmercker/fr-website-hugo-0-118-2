@@ -1,7 +1,7 @@
 ---
 title: "D'abord et avant tout, soyez l'amour"
 menu_title: ""
-description: "D'abord et avant tout, soyez l'amour"
+description: "Keea Atta Kem, reçu par Al Fike : « Je pense que vous savez ce que je vais dire, car vers quoi vous guidons-nous chaque jour lorsque vous demandez à être … »"
 date: 2022-06-01 06:00:01+00:1416
 draft: False
 hidden: True

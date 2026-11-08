@@ -1,7 +1,7 @@
 ---
 title: "Vous avez un impact"
 menu_title: ""
-description: "Vous avez un impact"
+description: "André, reçu par Albert Fike : « Je vais dire des choses que vous savez déjà, mais il est important de vous rappeler que lorsque vous voyagez ainsi et que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu apporte l'unité"
 menu_title: ""
-description: "L'Amour de Dieu apporte l'unité"
+description: "André, reçu par Al Fike : « Chacun d'entre vous entreprend un voyage unique vers Dieu. Chacun de vous a un but unique que Dieu a placé dans son âme. »"
 date: 2022-06-01 06:00:01+00:726
 draft: False
 hidden: True

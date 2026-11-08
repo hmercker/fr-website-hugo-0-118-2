@@ -1,7 +1,7 @@
 ---
 title: "Sainte Celestia la martyre"
 menu_title: ""
-description: "Sainte Celestia la martyre"
+description: "Sainte Celestia, reçu par James Padgett : « Je fus une Chrétienne martyrisée par l’Église fanatique de Rome. Je vivais en Italie et j’étais un disciple de … »"
 date: 2022-06-01 06:00:01+00:182
 draft: False
 hidden: True

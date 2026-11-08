@@ -1,7 +1,7 @@
 ---
 title: "Cherchez à connaître Dieu et vous serez un canal d'amour"
 menu_title: ""
-description: "Cherchez à connaître Dieu et vous serez un canal d'amour"
+description: "St Matthieu, reçu par Al Fike : « Dieu cherche à toucher chaque âme dans votre monde et que chaque âme puisse s’ouvrir au toucher de Dieu afin que Son … »"
 date: 2022-06-01 06:00:01+00:318
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "F.D. Roosevelt parle sur ses expériences spirituelles"
 menu_title: ""
-description: "F.D. Roosevelt parle sur ses expériences spirituelles"
+description: "Franklin D Roosevelt, reçu par FAB : « Je vois tout – mon pays, la politique, l’humanité et ma propre vie – d’un point de vue complètement différent. »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conférence sur la communication interplanétaire"
 menu_title: ""
-description: "Conférence sur la communication interplanétaire"
+description: "Orion, reçu par Al Fike : « Je veux que toute l’humanité sache qu’elle fait partie d’une grande famille, une famille qui est répartie sur toutes les … »"
 date: 2022-06-01 06:00:01+00:1708
 draft: False
 hidden: True

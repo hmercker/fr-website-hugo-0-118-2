@@ -1,7 +1,7 @@
 ---
 title: "Le programme politique de Jésus - 2"
 menu_title: ""
-description: "Le programme politique de Jésus - 2"
+description: "Jésus, reçu par FAB : « J'ai dit dans ma canalisation du 12 Novembre 2008 que certaines forces vont radicalement modifier le comportement politique dans … »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

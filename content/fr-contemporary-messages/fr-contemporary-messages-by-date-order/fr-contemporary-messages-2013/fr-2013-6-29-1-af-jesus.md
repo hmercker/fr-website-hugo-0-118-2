@@ -1,7 +1,7 @@
 ---
 title: "L’Esprit de Vérité"
 menu_title: ""
-description: "L’Esprit de Vérité"
+description: "Jésus, reçu par Al Fike : « Pour tant de personnes ici, il vous est difficile de voir votre lumière, de reconnaître cette lumière intérieure, mais elle … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

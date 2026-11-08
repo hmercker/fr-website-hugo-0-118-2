@@ -1,7 +1,7 @@
 ---
 title: "Décrit sa vie dans le monde des esprits"
 menu_title: ""
-description: "Décrit sa vie dans le monde des esprits"
+description: "Joseph Babinsky, reçu par Jimbeau Walsh : « Lorsque j’ai réalisé que mon temps était compté, j’ai fait le bilan de ma vie, de mon parcours, des livres que … »"
 date: 2022-06-01 06:00:01+00:1669
 draft: False
 hidden: True

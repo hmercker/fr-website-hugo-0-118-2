@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de vos prières"
 menu_title: ""
-description: "Le monde a besoin de vos prières"
+description: "Jésus, reçu par Al Fike : « Ô doux agneaux de Dieu, belles âmes de lumière, continuez de rayonner et d'apporter votre lumière au monde. »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

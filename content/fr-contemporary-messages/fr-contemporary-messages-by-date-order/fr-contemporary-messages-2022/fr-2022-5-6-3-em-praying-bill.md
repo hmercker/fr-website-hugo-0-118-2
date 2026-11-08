@@ -1,7 +1,7 @@
 ---
 title: "Nous prions tous pour le Portail du Centre Mondial de Guérison"
 menu_title: ""
-description: "Nous prions tous pour le Portail du Centre Mondial de Guérison"
+description: "Praying Bill, reçu par Elizabeth Mack : « Nous sommes nombreux aujourd’hui au Centre Mondial de Guérison. De nombreux amis, anciens et nouveaux, seront … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

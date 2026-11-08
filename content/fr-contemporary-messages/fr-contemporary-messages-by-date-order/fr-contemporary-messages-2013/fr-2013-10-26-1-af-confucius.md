@@ -1,7 +1,7 @@
 ---
 title: "L'Amour coulera et la guidance sera claire"
 menu_title: ""
-description: "L'Amour coulera et la guidance sera claire"
+description: "Confucius, reçu par Albert Fike : « Précieux enfants, Confucius vous aime tant. Une grande œuvre commence. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

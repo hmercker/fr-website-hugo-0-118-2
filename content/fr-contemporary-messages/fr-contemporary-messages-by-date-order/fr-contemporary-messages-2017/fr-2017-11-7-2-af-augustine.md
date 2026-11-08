@@ -1,7 +1,7 @@
 ---
 title: "Humilité"
 menu_title: ""
-description: "Humilité"
+description: "Augustin, reçu par Al Fike : « Vous avez eu une discussion sur la signification de l'humilité et je souhaite faire un commentaire à ce sujet. »"
 date: 2022-06-01 06:00:01+00:187
 draft: False
 hidden: True

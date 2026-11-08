@@ -1,7 +1,7 @@
 ---
 title: "Nathan Plummer est remerciant envers le Dr Stone pour son travail pour le salut de son âme"
 menu_title: ""
-description: "Nathan Plummer est remerciant envers le Dr Stone pour son travail pour le salut de son âme"
+description: "Nathan Plummer, reçu par James Padgett : « Je dois entrer par effraction dès que j’en ai l’occasion, et c’est agréable pour les autres esprits. »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

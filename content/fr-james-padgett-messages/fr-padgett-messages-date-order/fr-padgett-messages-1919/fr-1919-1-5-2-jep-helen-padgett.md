@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme le message de Spinoza et dit qu’il est un esprit très brillant et très intelligent"
 menu_title: ""
-description: "Hélène confirme le message de Spinoza et dit qu’il est un esprit très brillant et très intelligent"
+description: "Hélène Padgett, reçu par James Padgett : « Nous devons nous attendre à de telles interférences et en supporter les résultats pendant un certain temps. »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

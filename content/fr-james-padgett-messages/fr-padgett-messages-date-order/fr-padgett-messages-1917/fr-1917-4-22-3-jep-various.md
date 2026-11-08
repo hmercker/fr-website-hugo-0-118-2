@@ -1,7 +1,7 @@
 ---
 title: "Huit esprits célestes affirment que Jésus a écrit"
 menu_title: ""
-description: "Huit esprits célestes affirment que Jésus a écrit"
+description: "Divers, reçu par James Padgett : « Abandonnez vos doutes et laissez l’amour et la foi prendre possession de votre âme. Que Dieu bénisse vous bénisse et … »"
 date: 2022-06-01 06:00:01+00:109
 draft: False
 hidden: True

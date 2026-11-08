@@ -1,7 +1,7 @@
 ---
 title: "Comprendre vos vraies natures"
 menu_title: ""
-description: "Comprendre vos vraies natures"
+description: "Confucius, reçu par Al Fike : « Car vous recherchez la Source la plus élevée, la plus grande bénédiction, le plus bel éveil qui puisse venir à chaque âme. »"
 date: 2022-06-01 06:00:01+00:747
 draft: False
 hidden: True

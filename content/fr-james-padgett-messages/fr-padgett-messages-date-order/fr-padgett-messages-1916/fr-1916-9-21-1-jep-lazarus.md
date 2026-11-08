@@ -1,7 +1,7 @@
 ---
 title: "Lazare affirme que M. Padgett est choisi par Jésus pour faire le travail"
 menu_title: ""
-description: "Lazare affirme que M. Padgett est choisi par Jésus pour faire le travail"
+description: "Lazare, reçu par James Padgett : « Je vous déclare que les esprits qui vous ont écrit les vérités des choses Célestes et spirituelles sont réellement ceux … »"
 date: 2022-06-01 06:00:01+00:277
 draft: False
 hidden: True

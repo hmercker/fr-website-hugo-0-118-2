@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour le 48e anniversaire de mariage d’Al et Jeanne Fike"
 menu_title: ""
-description: "Bénédiction pour le 48e anniversaire de mariage d’Al et Jeanne Fike"
+description: "Alec Gaunt, reçu par Albert Fike : « Que l’Amour du Père vous comble grandement, mes amis. Ils ne m’ont pas rencontré en chair et en os lorsqu’ils ont … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

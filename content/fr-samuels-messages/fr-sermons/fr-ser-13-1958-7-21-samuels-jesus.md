@@ -1,7 +1,7 @@
 ---
 title: "13ème Sermon – La gentillesse abondante du roi David"
 menu_title: ""
-description: "13ème Sermon – La gentillesse abondante du roi David"
+description: "Jésus, reçu par Dr Samuels : « Je vous ai parlé des récits de l’Ancien Testament où Dieu est visualisé comme un Dieu d’Amour, à défaut d’être le Père de … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

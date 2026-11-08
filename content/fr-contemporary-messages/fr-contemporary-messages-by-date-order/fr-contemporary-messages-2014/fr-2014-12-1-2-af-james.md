@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes une lumière dans le monde"
 menu_title: ""
-description: "Vous êtes une lumière dans le monde"
+description: "James, reçu par Al Fike : « Précieuse enfant, fille bien-aimée qui travailles si généreusement pour les autres, tu as été guidée vers ce lieu et ce cercle … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

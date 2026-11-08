@@ -1,7 +1,7 @@
 ---
 title: "L'amour est le guérisseur de tous les cœurs"
 menu_title: ""
-description: "L'amour est le guérisseur de tous les cœurs"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes trois beaux et gentils amis, ces questions de cœur sont toujours guéries par l’amour, le meilleur remède. »"
 date: 2022-06-01 06:00:01+00:1149
 draft: False
 hidden: True

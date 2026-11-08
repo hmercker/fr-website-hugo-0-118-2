@@ -1,7 +1,7 @@
 ---
 title: "Discute des vents de changement et des effets que nous expérimentons"
 menu_title: ""
-description: "Discute des vents de changement et des effets que nous expérimentons"
+description: "André, reçu par Al Fike : « Il y a du changement dans votre monde, âmes bien-aimées. Ne sentez-vous pas ce changement dans vos cœurs, vos âmes et vos … »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

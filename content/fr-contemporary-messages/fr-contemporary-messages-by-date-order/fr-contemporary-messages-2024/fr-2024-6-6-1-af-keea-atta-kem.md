@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes des sages-femmes pour la conscience de l'âme à l'accouchement "
 menu_title: ""
-description: "Vous êtes des sages-femmes pour la conscience de l'âme à l'accouchement "
+description: "Keea Atta Kem, reçu par Albert Fike : « Je m’appelle Keea Atta Kem. D’une certaine manière, vous êtes les sages-femmes qui font naître la conscience de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

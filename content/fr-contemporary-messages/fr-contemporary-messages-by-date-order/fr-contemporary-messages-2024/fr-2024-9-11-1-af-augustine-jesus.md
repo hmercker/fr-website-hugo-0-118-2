@@ -1,7 +1,7 @@
 ---
 title: "Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages"
 menu_title: ""
-description: "Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages"
+description: "Augustin et Jésus, reçu par Al Fixe : « L’amour doit être omniprésent dans chaque partie de votre vie, âmes bien-aimées. Vous voyez la route devant vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

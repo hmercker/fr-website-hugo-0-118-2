@@ -1,7 +1,7 @@
 ---
 title: "La complexité des défis que nous devons surmonter pour réussir (2022 Gardiens de la Lumière)"
 menu_title: ""
-description: "La complexité des défis que nous devons surmonter pour réussir (2022 Gardiens de la Lumière)"
+description: "Orion, reçu par Al Fike : « Je souhaite parler de la façon dont vos canaux et vos dons peuvent être ouverts et du processus qui accompagne souvent cette … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

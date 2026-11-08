@@ -1,7 +1,7 @@
 ---
 title: "Ceux qui servent Dieu dans l'amour travaillent au niveau de l'âme"
 menu_title: ""
-description: "Ceux qui servent Dieu dans l'amour travaillent au niveau de l'âme"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Vous commencez tous maintenant à voir votre rêve, la grande communauté se réaliser sous vos yeux. »"
 date: 2022-06-01 06:00:01+00:736
 draft: False
 hidden: True

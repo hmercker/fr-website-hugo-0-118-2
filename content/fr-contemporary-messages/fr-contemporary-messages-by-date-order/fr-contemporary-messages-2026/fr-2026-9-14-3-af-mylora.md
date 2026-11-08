@@ -1,7 +1,7 @@
 ---
 title: "La semence de l’Amour de Dieu a été plantée ; continuez à en prendre soin"
 menu_title: ""
-description: "La semence de l’Amour de Dieu a été plantée ; continuez à en prendre soin"
+description: "Mylora, reçu par Albert Fike : « Il vous appartient désormais de l’arroser, d’en prendre soin, de découvrir ce qu’elle apporte à votre vie, et de prendre … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

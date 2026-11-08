@@ -1,7 +1,7 @@
 ---
 title: "Avertissement et réassurance pour des changements terrestres de plus en plus intenses"
 menu_title: ""
-description: "Avertissement et réassurance pour des changements terrestres de plus en plus intenses"
+description: "Flavius Josèphe, reçu par Al Fike : « Mes chers frères et sœurs dans l’Amour de Dieu. Je vous demande de considérer comme le maître a demandé à ses … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

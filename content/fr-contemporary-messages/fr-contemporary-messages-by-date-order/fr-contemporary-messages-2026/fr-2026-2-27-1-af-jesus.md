@@ -1,7 +1,7 @@
 ---
 title: "Agents de Lumière : Marcher dans la Grâce de Dieu"
 menu_title: ""
-description: "Agents de Lumière : Marcher dans la Grâce de Dieu"
+description: "Jesus, reçu par Al Fike : « Nous sommes unis dans cet effort et cette prière pour apporter la lumière dans vos âmes et dans le monde. »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

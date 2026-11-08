@@ -1,7 +1,7 @@
 ---
 title: "Il y a beaucoup à faire pour apporter une plus grande lumière dans le monde"
 menu_title: ""
-description: "Il y a beaucoup à faire pour apporter une plus grande lumière dans le monde"
+description: "Orion, reçu par Al Fike : « Les vents du changement continuent de tourbillonner autour de vous, mes amis. Cependant chacun d’entre vous se sent, à juste … »"
 date: 2023-09-01 06:00:01+00:45
 draft: False
 hidden: True

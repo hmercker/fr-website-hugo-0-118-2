@@ -1,7 +1,7 @@
 ---
 title: "Aigle Blanc vient offrir la guérison"
 menu_title: ""
-description: "Aigle Blanc vient offrir la guérison"
+description: "Aigle Blanc, reçu par Jimbeau Walsh : « À l’époque où j’étais sur terre, nous nous en remettions au Grand Esprit, au Créateur, à Dieu, pour notre … »"
 date: 2022-06-01 06:00:01+00:1045
 draft: False
 hidden: True

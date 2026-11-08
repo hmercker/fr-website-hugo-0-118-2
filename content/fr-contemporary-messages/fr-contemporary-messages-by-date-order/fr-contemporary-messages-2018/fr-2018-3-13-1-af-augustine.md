@@ -1,7 +1,7 @@
 ---
 title: "Dieu a besoin de ceux qui sont dans la lumière pour aider l’humanité à travers les changements à venir"
 menu_title: ""
-description: "Dieu a besoin de ceux qui sont dans la lumière pour aider l’humanité à travers les changements à venir"
+description: "Augustin, reçu par Al Fike : « Il est inévitable que le climat de votre monde change. Ce qui arrive ne peut pas être arrêté parce que vous avez créé, par … »"
 date: 2022-06-01 06:00:01+00:357
 draft: False
 hidden: True

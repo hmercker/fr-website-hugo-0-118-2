@@ -1,7 +1,7 @@
 ---
 title: "Poursuivez vos progrès afin d'être prêt en cas de besoin "
 menu_title: ""
-description: " "
+description: "Orion, reçu par Albert Fike : « À travers ces défis et à travers ce qui crée la disharmonie et vous éveille à de telles choses, vous devenez de plus en … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

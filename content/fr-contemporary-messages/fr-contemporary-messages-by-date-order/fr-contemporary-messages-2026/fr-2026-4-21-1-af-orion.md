@@ -1,7 +1,7 @@
 ---
 title: "Dieu a créé un voyage merveilleux et unique pour chacun de vous"
 menu_title: ""
-description: "Dieu a créé un voyage merveilleux et unique pour chacun de vous"
+description: "Orion, reçu par Al Fike : « Je vois en chacun de vous une lumière plus vive. Avec elle vient l’éveil de la conscience de l’âme, ce don précieux offert par … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

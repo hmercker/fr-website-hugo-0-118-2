@@ -1,7 +1,7 @@
 ---
 title: "La différence entre l’esprit et l’âme"
 menu_title: ""
-description: "La différence entre l’esprit et l’âme"
+description: "St Matthieu, reçu par Al Fike : « Si vous considérez le mental comme de l’eau, considérez l’âme comme de la lumière. Dans les deux cas, de nombreux … »"
 date: 2022-06-01 06:00:01+00:226
 draft: False
 hidden: True

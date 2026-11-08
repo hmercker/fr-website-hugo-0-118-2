@@ -1,7 +1,7 @@
 ---
 title: "Jean – Il est important que l’homme cherche et trouve la vérité"
 menu_title: ""
-description: "Jean – Il est important que l’homme cherche et trouve la vérité"
+description: "St Jean, reçu par James Padgett : « Je désire écrire ce soir, et si vous pensez qu’il n’est pas trop tard, nous le ferons. Eh bien, je ne ferai pas un … »"
 date: 2022-06-01 06:00:01+00:223
 draft: False
 hidden: True

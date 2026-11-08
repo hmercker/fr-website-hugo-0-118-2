@@ -1,7 +1,7 @@
 ---
 title: "Chaque jour est le cadeau d'un nouveau départ"
 menu_title: ""
-description: "Chaque jour est le cadeau d'un nouveau départ"
+description: "Yogananda, reçu par Al Fike : « C'est un cadeau pour vous, en ce jour, mes amis. Chaque jour, ce contact, ce doux nectar d'Amour est offert à votre âme. »"
 date: 2022-06-01 06:00:01+00:693
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jean – la vérité sur les Enfers"
 menu_title: ""
-description: "Jean – la vérité sur les Enfers"
+description: "St Jean, reçu par James Padgett : « Je veux simplement dire que j’ai écouté le message que vous avez lu ainsi que vos remarques et celles de votre ami, et … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps"
 menu_title: ""
-description: "La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps"
+description: "Orion, reçu par Al Fike : « Mes beaux amis, vous êtes si diligents et dévoués à la vérité, à la lumière, pour être les instruments de lumière de Dieu dans … »"
 date: 2023-09-01 06:00:01+00:32
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Aman, le premier parent révèle sa tentation et sa chute"
 menu_title: ""
-description: "Aman, le premier parent révèle sa tentation et sa chute"
+description: "Aman, reçu par James Padgett : « Vous devriez vous sentir spécialement bénis d’avoir ce grand privilège, et sentir que le Maître vous a conféré une grande … »"
 date: 2022-06-01 06:00:01+00:216
 draft: False
 hidden: True

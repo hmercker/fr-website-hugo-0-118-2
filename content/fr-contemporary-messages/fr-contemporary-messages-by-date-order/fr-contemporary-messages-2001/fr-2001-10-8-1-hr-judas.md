@@ -1,7 +1,7 @@
 ---
 title: "L’éducation de Jésus en Égypte"
 menu_title: ""
-description: "L’éducation de Jésus en Égypte"
+description: "Judas, reçu par H : « Mon cher frère H , je tiens à saisir cette occasion pour clarifier certaines questions qui ont surgi suite aux messages que j’ai … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

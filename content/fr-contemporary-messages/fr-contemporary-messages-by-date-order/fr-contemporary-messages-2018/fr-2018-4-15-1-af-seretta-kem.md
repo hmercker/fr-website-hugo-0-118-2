@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour obtenir le don de la Voix Directe"
 menu_title: ""
-description: "Conseils pour obtenir le don de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Encore une fois, nous nous réunissons dans la prière pour le développement du don de la voix directe afin de nous … »"
 date: 2022-06-01 06:00:01+00:380
 draft: False
 hidden: True

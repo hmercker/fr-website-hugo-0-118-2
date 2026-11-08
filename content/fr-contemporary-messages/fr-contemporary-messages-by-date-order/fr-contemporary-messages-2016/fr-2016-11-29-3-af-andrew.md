@@ -1,7 +1,7 @@
 ---
 title: "Votre capacité à aimer est limitée par les entraves de votre esprit"
 menu_title: ""
-description: "Votre capacité à aimer est limitée par les entraves de votre esprit"
+description: "André, reçu par Al Fike : « Quelle joie pour nous, en esprit, de vous voir. Vous vous êtes réunis de cette façon avec un profond désir d’harmonie, d’amour … »"
 date: 2022-06-01 06:00:01+00:277
 draft: False
 hidden: True

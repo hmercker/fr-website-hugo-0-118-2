@@ -1,7 +1,7 @@
 ---
 title: "Ne pas ignorer l’Amour Naturel"
 menu_title: ""
-description: "Ne pas ignorer l’Amour Naturel"
+description: "Agnès, reçu par James Reid : « J’ai vécu sur la terre à une époque où l’Amour Divin, que nous tous vénérons, n’était pas disponible et pas actuel pour nous. »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

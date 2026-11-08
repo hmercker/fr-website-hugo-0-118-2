@@ -1,7 +1,7 @@
 ---
 title: "Restez connectés"
 menu_title: ""
-description: "Restez connectés"
+description: "Riannon, reçu par James Reid : « Il ne sait vraiment pas à quel point nous sommes étendus. Mais je vais vous le murmurer : « Nous sommes nombreux. » Vous … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

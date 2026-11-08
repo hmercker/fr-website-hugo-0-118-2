@@ -1,7 +1,7 @@
 ---
 title: "Avoir la Foi"
 menu_title: ""
-description: "Avoir la Foi"
+description: "Judas, reçu par Jimbeau Walsh : « Vous avez tous entendu l’expression « ami des beaux jours » et vous comprenez un peu ce que cela signifie. »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

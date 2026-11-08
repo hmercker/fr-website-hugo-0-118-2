@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy réprimande Dr Stone à propos de son amour pour elle. Elle parle également du voyage de M. Padgett et de Dr Stone"
 menu_title: ""
-description: "Mary Kennedy réprimande Dr Stone à propos de son amour pour elle. Elle parle également du voyage de M. Padgett et de Dr Stone"
+description: "Mary Kennedy, reçu par James Padgett : « S’il avait pensé à moi autant qu’il aurait dû, il l’aurait deviné sans difficulté. Cela vous montre à quel point … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

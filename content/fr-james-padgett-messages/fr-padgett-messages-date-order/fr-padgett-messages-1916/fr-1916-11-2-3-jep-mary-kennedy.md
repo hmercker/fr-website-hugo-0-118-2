@@ -1,7 +1,7 @@
 ---
 title: "Est d’accord avec ce que sa mère a dit sur les progrès de Leslie dans le développement de son âme"
 menu_title: ""
-description: "Est d’accord avec ce que sa mère a dit sur les progrès de Leslie dans le développement de son âme"
+description: "Mary Kennedy, reçu par James Padgett : « Eh bien, si sa mère est autorisée à écrire, je pense que je devrais aussi avoir l’occasion de dire quelques mots. »"
 date: 2022-06-01 06:00:01+00:315
 draft: False
 hidden: True

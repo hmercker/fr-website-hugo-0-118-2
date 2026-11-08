@@ -1,7 +1,7 @@
 ---
 title: "Sur la médiumnité de Dave Lamprom"
 menu_title: ""
-description: "Sur la médiumnité de Dave Lamprom"
+description: "Jésus, reçu par Révérend Dave Lampron : « Je vois par votre cœur et vos désirs que vous souhaitez être un instrument de la Volonté du Père, et je voudrais … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

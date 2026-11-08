@@ -1,7 +1,7 @@
 ---
 title: "19ème Sermon – David exprime son idée de Dieu dans ses Psaumes"
 menu_title: ""
-description: "19ème Sermon – David exprime son idée de Dieu dans ses Psaumes"
+description: "Jésus, reçu par Dr Samuels : « Les Psaumes de David et ceux écrits sous son inspiration, sont des chants d’humeurs différentes – de joie et d’exultation … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

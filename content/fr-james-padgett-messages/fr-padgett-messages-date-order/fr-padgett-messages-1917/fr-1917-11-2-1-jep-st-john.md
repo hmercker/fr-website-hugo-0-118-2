@@ -1,7 +1,7 @@
 ---
 title: "Comment et quand Dieu répond à la prière. Lois du rapport et de la communication"
 menu_title: ""
-description: "Comment et quand Dieu répond à la prière. Lois du rapport et de la communication"
+description: "St Jean, reçu par James Padgett : « Je dis donc, faites confiance au Père et à notre aide et vous ne serez pas déçu. Cela fait longtemps que je ne vous ai … »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

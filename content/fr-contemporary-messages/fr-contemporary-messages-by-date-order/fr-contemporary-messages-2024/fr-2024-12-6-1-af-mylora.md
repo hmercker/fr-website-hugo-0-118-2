@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de guérison pour le monde"
 menu_title: ""
-description: "Bénédiction de guérison pour le monde"
+description: "Mylora, reçu par Albert Fike : « Que la vitalité et la bénédiction du souffle de Dieu soient sur vous et sur votre monde. En effet, Dieu entend vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

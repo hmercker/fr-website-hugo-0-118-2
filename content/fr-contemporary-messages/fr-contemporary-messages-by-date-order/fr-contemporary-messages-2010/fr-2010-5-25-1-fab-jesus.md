@@ -1,7 +1,7 @@
 ---
 title: "Péché Héréditaire"
 menu_title: ""
-description: "Péché Héréditaire"
+description: "Jésus, reçu par FAB : « Vous avez découvert ce qui semble être une contradiction, et je voudrais l'aborder. D'une part, vous avez appris que nous héritons … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Paul nie le péché impardonnable"
 menu_title: ""
-description: "Paul nie le péché impardonnable"
+description: "St Paul, reçu par James Padgett : « Eh bien, je vais bien maintenant. Je veux simplement dire que le péché impardonnable tel qu’enseigné par le … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

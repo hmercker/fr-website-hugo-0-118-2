@@ -1,7 +1,7 @@
 ---
 title: "Jésus est le Chemin, la Vérité et la Vie en lesquels tous les hommes doivent croire"
 menu_title: ""
-description: "Jésus est le Chemin, la Vérité et la Vie en lesquels tous les hommes doivent croire"
+description: "Jésus, reçu par James Padgett : « Vous ne devriez pas douter comme je vous l’ai déjà dit que je le suis. Ils seront à jamais exclus de Son royaume et … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

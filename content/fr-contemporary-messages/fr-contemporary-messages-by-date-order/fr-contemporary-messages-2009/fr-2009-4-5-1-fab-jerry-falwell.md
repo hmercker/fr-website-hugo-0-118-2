@@ -1,7 +1,7 @@
 ---
 title: "La tristesse de Jerry Falwell"
 menu_title: ""
-description: "La tristesse de Jerry Falwell"
+description: "Jerry Falwell, reçu par FAB : « Vos guides spirituels ont eu la bonté de me permettre d'écrire à travers vous. Je voulais le faire depuis un certain temps. »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La souffrance d’un financier"
 menu_title: ""
-description: "La souffrance d’un financier"
+description: "Paul Warburg, reçu par FAB : « Vous vouliez entendre parler de moi, alors me voici. Vous voulez savoir la vérité sur moi, car vous avez lu des récits … »"
 date: 2022-06-01 06:00:01+00:226
 draft: False
 hidden: True

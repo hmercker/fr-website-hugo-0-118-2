@@ -1,7 +1,7 @@
 ---
 title: "Dons de l'âme"
 menu_title: ""
-description: "Dons de l'âme"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « En cette période de l’année, nous pensons de plus en plus à donner, à prendre soin, à honorer la … »"
 date: 2022-06-01 06:00:01+00:223
 draft: False
 hidden: True

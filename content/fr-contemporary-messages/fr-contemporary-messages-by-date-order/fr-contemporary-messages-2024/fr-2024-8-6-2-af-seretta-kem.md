@@ -1,7 +1,7 @@
 ---
 title: "NLe chemin du voyage de l’âme"
 menu_title: ""
-description: "Le chemin du voyage de l’âme"
+description: "Seretta Kem, reçu par Albert Fike : « Vous bénéficierez de ce qui peut arriver dans votre vie et qui se déroulera conformément au plan de Dieu … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

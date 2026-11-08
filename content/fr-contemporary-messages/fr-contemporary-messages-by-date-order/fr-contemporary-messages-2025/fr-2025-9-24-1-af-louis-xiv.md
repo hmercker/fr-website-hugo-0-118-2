@@ -1,7 +1,7 @@
 ---
 title: "Ne laissez pas le jugement obscurcir votre lumière"
 menu_title: ""
-description: "Ne laissez pas le jugement obscurcir votre lumière"
+description: "Louis XIV, reçu par Albert Fike : « Je souhaite que vous voyiez cela comme une opportunité de répandre la lumière, plutôt que comme une occasion de porter … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

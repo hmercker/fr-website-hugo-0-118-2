@@ -1,7 +1,7 @@
 ---
 title: "10ème Révélation : La rencontre de Jésus avec Nicodème"
 menu_title: ""
-description: "10ème Révélation : La rencontre de Jésus avec Nicodème"
+description: "Jésus, reçu par Dr Samuels : « Je vous ai déjà parlé de ma rencontre avec Nicodème, fils de Gourion, le Pharisien, alors que j’enseignais en Palestine. »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

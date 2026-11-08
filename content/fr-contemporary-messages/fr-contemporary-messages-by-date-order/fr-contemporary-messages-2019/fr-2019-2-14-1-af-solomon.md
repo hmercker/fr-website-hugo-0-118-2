@@ -1,7 +1,7 @@
 ---
 title: "Salomon parle de la sagesse de l'âme"
 menu_title: ""
-description: "Salomon parle de la sagesse de l'âme"
+description: "Salomon, reçu par Al Fike : « Sur votre plan terrestre, vous vous préoccupez de la sagesse de votre esprit et vous vous interrogez sur la sagesse de vos âmes. »"
 date: 2022-06-01 06:00:01+00:643
 draft: False
 hidden: True

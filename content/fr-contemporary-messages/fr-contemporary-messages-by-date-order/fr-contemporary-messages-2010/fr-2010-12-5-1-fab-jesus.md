@@ -1,7 +1,7 @@
 ---
 title: "Jésus et l'Égypte ancienne"
 menu_title: ""
-description: "Jésus et l'Égypte ancienne"
+description: "Jésus, reçu par FAB : « Vous êtes en train de lire « Le Christ païen » de Tom Harpur. Vous vous demandez ce que j'en pense. »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

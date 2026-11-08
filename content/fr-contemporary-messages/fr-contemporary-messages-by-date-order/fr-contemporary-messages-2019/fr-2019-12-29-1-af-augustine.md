@@ -1,7 +1,7 @@
 ---
 title: "Partager la bonne nouvelle"
 menu_title: ""
-description: "Partager la bonne nouvelle"
+description: "Augustin, reçu par Al Fike : « Alors que j’entends ce cher instrument vous implorer tous de partager la bonne nouvelle de l’Amour de Dieu à quiconque vous … »"
 date: 2022-06-01 06:00:01+00:969
 draft: False
 hidden: True

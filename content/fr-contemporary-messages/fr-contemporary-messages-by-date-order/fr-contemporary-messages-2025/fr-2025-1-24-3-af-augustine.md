@@ -1,7 +1,7 @@
 ---
 title: "Décrit la réceptivité des esprits et des âmes de l'humanité et les conditions de préparation requises pour les manifestations"
 menu_title: ""
-description: "Décrit la réceptivité des esprits et des âmes de l'humanité et les conditions de préparation requises pour les manifestations"
+description: "Augustin, reçu par Albert Fike : « Vous parlez de l’âme qui aspire et vous expliquez comment l’atteindre, pour lui apporter la Vérité de l’Amour du Père. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu "
 menu_title: ""
-description: "Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu "
+description: "Aigle Blanc, reçu par Jimbeau Walsh : « Mon travail de guérisseur répond à l’appel de ceux qui le demandent sincèrement. Mon groupe s’efforce de guérir … »"
 date: 2022-06-01 06:00:01+00:1066
 draft: False
 hidden: True

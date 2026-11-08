@@ -1,7 +1,7 @@
 ---
 title: "Le pardon est un art délicat"
 menu_title: ""
-description: "Le pardon est un art délicat"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Cher enfant, au milieu de la nuit, tu t’es réveillé en hurlant à cause d’un rêve. Il s’agissait de ta mère et … »"
 date: 2022-06-01 06:00:01+00:243
 draft: False
 hidden: True

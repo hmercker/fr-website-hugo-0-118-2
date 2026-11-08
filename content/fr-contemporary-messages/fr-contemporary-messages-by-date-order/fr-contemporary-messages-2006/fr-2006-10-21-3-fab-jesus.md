@@ -1,7 +1,7 @@
 ---
 title: "Perceptions des Rabbins Talmudiques"
 menu_title: ""
-description: "Perceptions des Rabbins Talmudiques"
+description: "Jésus, reçu par FAB : « J'ai dit par l'intermédiaire de M. Padgett, « leurs idées et croyances [des Juifs] sur la vie après la mort étaient très floues ». »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

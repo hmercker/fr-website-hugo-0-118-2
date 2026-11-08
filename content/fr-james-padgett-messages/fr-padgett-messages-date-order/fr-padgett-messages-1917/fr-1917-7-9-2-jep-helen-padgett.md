@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente la prière pour dissiper les inquiétudes"
 menu_title: ""
-description: "Hélène commente la prière pour dissiper les inquiétudes"
+description: "Hélène Padgett, reçu par James Padgett : « Je n’écrirai que quelques lignes car je vois que tu te sens tellement mieux physiquement et spirituellement, et … »"
 date: 2022-06-01 06:00:01+00:168
 draft: False
 hidden: True

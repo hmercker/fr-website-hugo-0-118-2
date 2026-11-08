@@ -1,7 +1,7 @@
 ---
 title: "Trouver notre chemin vers l'Amour de Dieu"
 menu_title: ""
-description: "Trouver notre chemin vers l'Amour de Dieu"
+description: "Augustin, reçu par Albert Fike : « Le monde est un lieu d’efforts matériels et d’accomplissements, mais sans amour, que peut-on réellement accomplir ? »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

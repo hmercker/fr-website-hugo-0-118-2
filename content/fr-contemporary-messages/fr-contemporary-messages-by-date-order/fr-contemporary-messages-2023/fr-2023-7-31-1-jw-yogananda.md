@@ -1,7 +1,7 @@
 ---
 title: "Vivez dans la grâce en dehors de vos cases"
 menu_title: ""
-description: "Vivez dans la grâce en dehors de vos cases"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite transmettre quelques réflexions sur une plus grande conscience. Lorsque vous sentez la présence de Dieu … »"
 date: 2023-09-01 06:00:01+00:58
 draft: False
 hidden: True

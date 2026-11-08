@@ -1,7 +1,7 @@
 ---
 title: "Vous vous rapprochez de l'éveil de votre âme"
 menu_title: ""
-description: "Vous vous rapprochez de l'éveil de votre âme"
+description: "Jésus, reçu par Al Fike : « Vous continuez à vous conformer à la volonté de Dieu, à son désir de vous utiliser comme ses instruments de paix, de … »"
 date: 2022-06-01 06:00:01+00:353
 draft: False
 hidden: True

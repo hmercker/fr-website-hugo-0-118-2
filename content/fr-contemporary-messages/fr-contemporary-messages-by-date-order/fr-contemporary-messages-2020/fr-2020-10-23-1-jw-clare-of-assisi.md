@@ -1,7 +1,7 @@
 ---
 title: "L’Amour en action"
 menu_title: ""
-description: "L’Amour en action"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Il y a beaucoup de croyances : les croyances spirituelles, les croyances religieuses, les croyances … »"
 date: 2022-06-01 06:00:01+00:1293
 draft: False
 hidden: True

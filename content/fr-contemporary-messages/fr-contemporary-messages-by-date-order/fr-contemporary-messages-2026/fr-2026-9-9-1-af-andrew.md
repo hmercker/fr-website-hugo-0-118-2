@@ -1,7 +1,7 @@
 ---
 title: "C’est dans le service que réside l’accomplissement"
 menu_title: ""
-description: "C’est dans le service que réside l’accomplissement"
+description: "André, reçu par Albert Fike : « Le soleil brille sur vous, mes âmes bien-aimées. Cette lumière intérieure continuera de croître à mesure que vous recevrez … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

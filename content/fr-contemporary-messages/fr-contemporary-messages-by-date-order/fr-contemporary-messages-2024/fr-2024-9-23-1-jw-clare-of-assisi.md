@@ -1,7 +1,7 @@
 ---
 title: "La forme la plus haute de la prière"
 menu_title: ""
-description: "La forme la plus haute de la prière"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur vous et remplisse vos âmes. Combien de fois nous vous demandons d’aller vers Dieu … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

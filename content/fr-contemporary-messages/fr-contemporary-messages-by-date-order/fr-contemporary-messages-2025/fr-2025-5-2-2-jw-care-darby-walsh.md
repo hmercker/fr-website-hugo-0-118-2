@@ -1,7 +1,7 @@
 ---
 title: "Surmonter ses blessures (partie 2)"
 menu_title: ""
-description: "Surmonter ses blessures (partie 2)"
+description: "Care Darby Walsh, reçu par reçu par Jimbeau Walsh : « Je reviens, mais je serai brève. Je souhaite simplement clarifier ce que j’ai dit plus tôt. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

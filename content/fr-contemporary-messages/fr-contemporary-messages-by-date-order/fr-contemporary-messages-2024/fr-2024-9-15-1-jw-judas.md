@@ -1,7 +1,7 @@
 ---
 title: "Les conseils pratiques sont dans la demande"
 menu_title: ""
-description: "Les conseils pratiques sont dans la demande"
+description: "Judas, reçu par Jimbeau Walsh : « Et le cher frère en Équateur, qui a pu recevoir de merveilleuses vérités, s’est souvent passionné pour les détails, les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

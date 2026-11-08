@@ -1,7 +1,7 @@
 ---
 title: "Soyez l’ami affectueux de l’autre"
 menu_title: ""
-description: "Soyez l’ami affectueux de l’autre"
+description: "Marie, reçu par Al Fike : « Bénédictions de paix, bénédictions d’amour, et tout ce qui est de la Lumière et de Dieu, que ceci soit votre bénédiction … »"
 date: 2022-06-01 06:00:01+00:1530
 draft: False
 hidden: True

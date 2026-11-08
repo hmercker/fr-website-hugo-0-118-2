@@ -1,7 +1,7 @@
 ---
 title: "Les barrières en nous causées par le conflit de nos esprits et de nos âmes"
 menu_title: ""
-description: "Les barrières en nous causées par le conflit de nos esprits et de nos âmes"
+description: "Orion, reçu par Al Fike : « Que les bénédictions de l’Amour de Dieu continuent de couler dans vos âmes et de vous éveiller comme il se doit. »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

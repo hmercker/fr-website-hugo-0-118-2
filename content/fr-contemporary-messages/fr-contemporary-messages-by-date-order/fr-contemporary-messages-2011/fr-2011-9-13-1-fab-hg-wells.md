@@ -1,7 +1,7 @@
 ---
 title: "Les expériences de H.G. Wells dans le monde des esprits"
 menu_title: ""
-description: "Les expériences de H.G. Wells dans le monde des esprits"
+description: "H.G. Wells, reçu par FAB : « J’aime bien ce sous-titre pour ce roman sur un homme qui a vu tant de choses et si peu. Vous retranscrivez fidèlement mes … »"
 date: 2022-06-01 06:00:01+00:198
 draft: False
 hidden: True

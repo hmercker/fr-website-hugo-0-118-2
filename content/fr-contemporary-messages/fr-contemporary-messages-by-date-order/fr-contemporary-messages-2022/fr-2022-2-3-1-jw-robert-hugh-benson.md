@@ -1,7 +1,7 @@
 ---
 title: "La Septième Sphère est la porte d’entrée des Cieux Célestes"
 menu_title: ""
-description: "La Septième Sphère est la porte d’entrée des Cieux Célestes"
+description: "Robert Hugh Benson, reçu par Jimbeau Walsh : « Vous pouvez, comme vous l’avez fait, continuer à remarquer des parallèles entre ce que je révèle et ce qui … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

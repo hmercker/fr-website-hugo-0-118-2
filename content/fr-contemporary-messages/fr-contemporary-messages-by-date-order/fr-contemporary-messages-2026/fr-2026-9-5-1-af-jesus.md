@@ -1,7 +1,7 @@
 ---
 title: "Laissez les aspirations de votre âme rayonner vers Dieu"
 menu_title: ""
-description: "Laissez les aspirations de votre âme rayonner vers Dieu"
+description: "Jésus, reçu par Albert Fike : « Que le don de l’Amour du Père soit vôtre, âmes bien-aimées. Vous retenez un grand torrent d’Amour ; mais cela exige que … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

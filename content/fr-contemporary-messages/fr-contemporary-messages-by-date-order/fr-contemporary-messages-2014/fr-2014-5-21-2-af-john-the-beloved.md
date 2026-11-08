@@ -1,7 +1,7 @@
 ---
 title: "Marchez dans la lumière"
 menu_title: ""
-description: "Marchez dans la lumière"
+description: "Jean le Bien Aimé, reçu par Al Fike : « Respirez cet amour, qu’il repose dans cet endroit profond en vous et permettez à son toucher de vous transformer … »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un roi anglais fait le bilan de son règne"
 menu_title: ""
-description: "Un roi anglais fait le bilan de son règne"
+description: "Charles I, reçu par FAB : « Oh, combien d'erreurs j'ai commises lorsque j'étais roi ! Combien d'occasions manquées de mieux servir mon peuple ! »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

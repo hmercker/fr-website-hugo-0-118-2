@@ -1,7 +1,7 @@
 ---
 title: "33ème Révélation : Les trois rois mages et l’étoile de Bethléem"
 menu_title: ""
-description: "33ème Révélation : Les trois rois mages et l’étoile de Bethléem"
+description: "Jésus, reçu par Dr Samuels : « Ce message fut corrigé ultérieurement par un message donné par Judas le 20 Novembre 2001 qui explique qu’il ne s’agissait … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

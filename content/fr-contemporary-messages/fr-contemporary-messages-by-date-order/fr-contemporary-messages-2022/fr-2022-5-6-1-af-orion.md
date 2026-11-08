@@ -1,7 +1,7 @@
 ---
 title: "Ici pour aider à éveiller le monde"
 menu_title: ""
-description: "Ici pour aider à éveiller le monde"
+description: "Orion, reçu par Al Fike : « Vos amis stellaires se joignent à vous dans cet effort pour apporter une plus grande lumière dans cette partie du monde. »"
 date: 2023-09-01 06:00:01+00:27
 draft: False
 hidden: True

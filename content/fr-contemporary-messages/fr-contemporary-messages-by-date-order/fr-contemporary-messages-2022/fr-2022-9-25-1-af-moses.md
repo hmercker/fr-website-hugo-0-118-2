@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes appelés à être des leaders dans le monde"
 menu_title: ""
-description: "Nous sommes appelés à être des leaders dans le monde"
+description: "Moïse, reçu par Al Fike : « Chaque fois que vous adressez une prière à Dieu pour recevoir Son Amour, vous affirmez la vérité dans le monde. »"
 date: 2023-09-01 06:00:01+00:48
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Au fil des découvertes de l’âme"
 menu_title: ""
-description: "Au fil des découvertes de l’âme"
+description: "Alec Gaunt, reçu par Al Fike : « C’est votre enseignant, Augustin. Que l’Amour du Père continue à remplir vos âmes en vous rapprochant toujours plus du … »"
 date: 2022-06-01 06:00:01+00:307
 draft: False
 hidden: True

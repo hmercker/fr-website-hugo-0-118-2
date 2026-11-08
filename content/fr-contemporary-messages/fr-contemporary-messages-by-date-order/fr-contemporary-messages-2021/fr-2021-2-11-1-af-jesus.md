@@ -1,7 +1,7 @@
 ---
 title: "Leçon 20 : Il est temps pour l’âme de s’éveiller à l’humanité"
 menu_title: ""
-description: "Leçon 20 : Il est temps pour l’âme de s’éveiller à l’humanité"
+description: "Jésus, reçu par Al Fike : « Que la Grâce de l’Amour de Dieu continue à remplir vos âmes de Son Essence. Je vous salue une fois de plus, chers enfants du … »"
 date: 2022-06-01 06:00:01+00:1409
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez joyeux dans l’Amour de Dieu"
 menu_title: ""
-description: "Soyez joyeux dans l’Amour de Dieu"
+description: "Goldie, reçu par Al Fike : « Alors que vous vous ébattez dans la baignoire de Dieu, j’espère que vous connaîtrez et ressentirez les nombreuses … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

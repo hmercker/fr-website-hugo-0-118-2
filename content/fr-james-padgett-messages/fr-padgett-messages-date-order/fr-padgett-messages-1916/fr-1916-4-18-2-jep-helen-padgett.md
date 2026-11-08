@@ -1,7 +1,7 @@
 ---
 title: "Sur la guérison d’une femme malade"
 menu_title: ""
-description: "Sur la guérison d’une femme malade"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, je veux dire très sérieusement que le Dr Stone doit croire le message qu’il a reçu de son … »"
 date: 2022-06-01 06:00:01+00:209
 draft: False
 hidden: True

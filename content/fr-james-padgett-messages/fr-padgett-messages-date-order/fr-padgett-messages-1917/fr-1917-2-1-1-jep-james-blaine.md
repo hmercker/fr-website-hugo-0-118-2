@@ -1,7 +1,7 @@
 ---
 title: "Blaine visite les Conseils des Nations pour s’informer de leurs objets de leurs efforts et désirs et aussi surprenant que cela puisse paraître le sentiment des Allemands est que Dieu est de leur côté"
 menu_title: ""
-description: "Blaine visite les Conseils des Nations pour s’informer de leurs objets de leurs efforts et désirs et aussi surprenant que cela puisse paraître le sentiment des Allemands est que Dieu est de leur côté"
+description: "Blaine, reçu par James Padgett : « Je voudrais écrire quelques lignes car je m’intéresse aux affaires de notre pays, et je vois que la situation critique … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

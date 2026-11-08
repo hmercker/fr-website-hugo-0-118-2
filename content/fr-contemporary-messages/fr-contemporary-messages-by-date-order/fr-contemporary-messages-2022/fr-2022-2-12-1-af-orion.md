@@ -1,7 +1,7 @@
 ---
 title: "Les changements terrestres s’intensifient"
 menu_title: ""
-description: "Les changements terrestres s’intensifient"
+description: "Orion, reçu par Al Fike : « Je me demande parfois où se trouve mon foyer. En effet, de telles dédicaces valent bien l'effort, car c'est important. »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

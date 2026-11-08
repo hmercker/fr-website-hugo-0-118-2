@@ -1,7 +1,7 @@
 ---
 title: "La vérité s'étendra à mesure que votre âme s'éveillera"
 menu_title: ""
-description: "La vérité s'étendra à mesure que votre âme s'éveillera"
+description: "Flavius Josèphe, reçu par Al Fike : « J’entends ta question, cher frère. Je comprends que tu ais un profond désir d’obtenir des informations plus … »"
 date: 2022-06-01 06:00:01+00:1028
 draft: False
 hidden: True

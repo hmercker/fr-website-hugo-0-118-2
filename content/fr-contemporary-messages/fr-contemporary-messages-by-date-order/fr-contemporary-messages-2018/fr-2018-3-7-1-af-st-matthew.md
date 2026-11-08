@@ -1,7 +1,7 @@
 ---
 title: "Prédire l'avenir n'est pas possible à 100 %"
 menu_title: ""
-description: "Prédire l'avenir n'est pas possible à 100 %"
+description: "St Matthieu, reçu par Al Fike : « Tout d’abord, je voudrais dire que vos capacités et votre aptitude à comprendre les événements du futur sont assez … »"
 date: 2022-06-01 06:00:01+00:345
 draft: False
 hidden: True

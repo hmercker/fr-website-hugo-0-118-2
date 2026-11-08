@@ -1,7 +1,7 @@
 ---
 title: "Soyez fidèle à vous-même et à votre Créateur"
 menu_title: ""
-description: "Soyez fidèle à vous-même et à votre Créateur"
+description: "Confucius, reçu par Albert Fike : « …petite fille, belle âme que tu es, toujours désireuse de servir Dieu et la vérité. Tu dois savoir à quel point tu es … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

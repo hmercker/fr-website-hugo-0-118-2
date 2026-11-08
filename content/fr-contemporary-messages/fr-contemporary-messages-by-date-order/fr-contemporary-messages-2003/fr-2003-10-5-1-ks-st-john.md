@@ -1,7 +1,7 @@
 ---
 title: "L’Amour, ça s’arrête là"
 menu_title: ""
-description: "L’Amour, ça s’arrête là"
+description: "St Jean, reçu par Kathryn Stokes : « et que Tu as créé un bon plan pour Tes enfants, leur donnant l’opportunité de réaliser leurs rêves – leur permettant … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

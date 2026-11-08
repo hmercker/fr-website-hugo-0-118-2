@@ -1,7 +1,7 @@
 ---
 title: "Leçon 17 : Les changements à venir dans votre monde"
 menu_title: ""
-description: "Leçon 17 : Les changements à venir dans votre monde"
+description: "Jésus, reçu par Al Fike : « Aujourd’hui, je souhaite parler des changements à venir dans votre monde et de ce qui se manifestera dans le monde et qui … »"
 date: 2022-06-01 06:00:01+00:1665
 draft: False
 hidden: True

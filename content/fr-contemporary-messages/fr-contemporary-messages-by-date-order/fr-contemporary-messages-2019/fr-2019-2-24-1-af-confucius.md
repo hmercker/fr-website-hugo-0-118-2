@@ -1,7 +1,7 @@
 ---
 title: "Nous vous utilisons pour enseigner la Vérité à de nombreuses âmes (Tour 2019 d'éveil de l'âme - Côte Est des USA)"
 menu_title: ""
-description: "Nous vous utilisons pour enseigner la Vérité à de nombreuses âmes (Tour 2019 d'éveil de l'âme - Côte Est des USA)"
+description: "Confucius, reçu par Al Fike : « Nous continuons à aider à soutenir et à élever, à apporter la guérison au corps, la paix à l’esprit, l’amour exulté à l’âme. »"
 date: 2022-06-01 06:00:01+00:655
 draft: False
 hidden: True

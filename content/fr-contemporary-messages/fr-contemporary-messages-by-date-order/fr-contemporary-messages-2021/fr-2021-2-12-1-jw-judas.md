@@ -1,7 +1,7 @@
 ---
 title: "Pensez à l'éternité et non à la mort"
 menu_title: ""
-description: "Pensez à l'éternité et non à la mort"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai été très heureux d’entendre et de participer à l’écoute des messages que vous avez tous lus aujourd’hui. »"
 date: 2022-06-01 06:00:01+00:1410
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Sainte Camélia, religieuse catholique, n’est plus une religieuse ou une catholique, mais une Chrétienne rachetée par le Père"
 menu_title: ""
-description: "Sainte Camélia, religieuse catholique, n’est plus une religieuse ou une catholique, mais une Chrétienne rachetée par le Père"
+description: "Sainte Camélia, reçu par James Padgett : « Je veux simplement dire que je ne suis plus une religieuse ou une catholique, mais une Chrétienne rachetée par … »"
 date: 2022-06-01 06:00:01+00:227
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Développer et partager vos dons"
 menu_title: ""
-description: "Développer et partager vos dons"
+description: "Orion, reçu par Albert Fike : « Que les cadeaux soient nombreux mes amis. Ces dons se développent et se manifestent de différentes manières. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

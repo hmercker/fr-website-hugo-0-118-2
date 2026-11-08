@@ -1,7 +1,7 @@
 ---
 title: "Vous ouvrez des portails de lumière avec vos prières et vos intentions"
 menu_title: ""
-description: "Vous ouvrez des portails de lumière avec vos prières et vos intentions"
+description: "André, reçu par Al Fike : « Alors que vous vous réunissez, ces portails de lumière sont intensifiés et dynamisés. Tous travaillent pour recevoir ou ont … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

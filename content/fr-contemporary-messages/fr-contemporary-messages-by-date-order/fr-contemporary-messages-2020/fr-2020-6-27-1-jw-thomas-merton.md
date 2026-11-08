@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir des mots"
 menu_title: ""
-description: "Le pouvoir des mots"
+description: "Thomas Merton, reçu par Jimbeau Walsh : « Il y a un pouvoir dans les mots, le pouvoir de toucher l’âme lorsqu’ils viennent de l’âme. »"
 date: 2022-06-01 06:00:01+00:1159
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine"
 menu_title: ""
-description: "La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine"
+description: "Paul de Tarse, reçu par James Padgett : « Je désire continuer mon message ce soir. Comme je le disais en clôturant mon dernier message, il y a une … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

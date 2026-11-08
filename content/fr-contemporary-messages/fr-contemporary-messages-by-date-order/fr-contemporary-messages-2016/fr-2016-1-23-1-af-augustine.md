@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la prière"
 menu_title: ""
-description: "Le pouvoir de la prière"
+description: "Augustin, reçu par Al Fike : « En effet, il est important de prier. Car lorsque vous priez et ouvrez ce canal et cette connexion avec votre Créateur … »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

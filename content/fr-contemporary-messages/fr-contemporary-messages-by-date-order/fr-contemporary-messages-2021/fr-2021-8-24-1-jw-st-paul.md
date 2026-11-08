@@ -1,7 +1,7 @@
 ---
 title: "Touchez les autres avec amour et tout se mettra en place"
 menu_title: ""
-description: "Touchez les autres avec amour et tout se mettra en place"
+description: "St Paul, reçu par Jimbeau Walsh : « Il m’est parfois attribué la diffusion du message de Jésus au-delà de la communauté Juive vers le monde païen, et … »"
 date: 2022-06-01 06:00:01+00:1609
 draft: False
 hidden: True

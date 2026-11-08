@@ -1,7 +1,7 @@
 ---
 title: "Faites un rituel de toujours demander à être en harmonie avec Dieu"
 menu_title: ""
-description: "Faites un rituel de toujours demander à être en harmonie avec Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « J’ai souhaité prendre la parole plus tôt dans la journée mais le Maître est venu et a parlé et nous ne … »"
 date: 2022-06-01 06:00:01+00:953
 draft: False
 hidden: True

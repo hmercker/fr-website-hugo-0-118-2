@@ -1,7 +1,7 @@
 ---
 title: "Marcher ensemble vers le Royaume Céleste"
 menu_title: ""
-description: "Marcher ensemble vers le Royaume Céleste"
+description: "Jésus, reçu par Albert Fike : « Ce titre ne convient pas à ma condition. Je n'agis pas ainsi pour faire étalage de puissance. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

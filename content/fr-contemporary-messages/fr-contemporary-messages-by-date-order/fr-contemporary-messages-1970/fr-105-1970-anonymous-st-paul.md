@@ -1,7 +1,7 @@
 ---
 title: "La prière est si importante pour vous"
 menu_title: ""
-description: "La prière est si importante pour vous"
+description: "St Paul : « Nous avons tant de raisons d'être reconnaissants. La paix et l'harmonie que nous pouvons atteindre et attirer à nous, la connaissance et la … »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

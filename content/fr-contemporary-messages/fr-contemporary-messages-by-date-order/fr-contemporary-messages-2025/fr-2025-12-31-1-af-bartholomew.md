@@ -1,7 +1,7 @@
 ---
 title: "Ouverture du Portail dans notre Suite au Plumtree"
 menu_title: ""
-description: "Ouverture du Portail dans notre Suite au Plumtree"
+description: "Barthélémy, reçu par Al Fike : « Nous sommes ravis de vous retrouver réunis pour accomplir la mission qui vous est confiée. »"
 date: 2026-01-21 16:00:01+00:01
 draft: False
 hidden: True

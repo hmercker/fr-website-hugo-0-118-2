@@ -1,7 +1,7 @@
 ---
 title: "La Parabole de l’amandier"
 menu_title: ""
-description: "La Parabole de l’amandier"
+description: "Judas, reçu par H : « « Il était une fois un homme qui était le propriétaire d’un verger précieux. En plein milieu de son jardin il y avait un grand amandier. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

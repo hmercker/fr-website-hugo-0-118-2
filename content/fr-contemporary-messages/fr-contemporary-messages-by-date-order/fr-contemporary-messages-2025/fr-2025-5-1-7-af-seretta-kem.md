@@ -1,7 +1,7 @@
 ---
 title: "La nécessité de créer une fondation solide et de suivre la Volonté de Dieu"
 menu_title: ""
-description: "La nécessité de créer une fondation solide et de suivre la Volonté de Dieu"
+description: "Seretta Kem, reçu par Albert Fike : « Nous nous efforçons de vous y aider avec diligence. Nous poursuivons ce chemin ensemble afin que vous deveniez des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

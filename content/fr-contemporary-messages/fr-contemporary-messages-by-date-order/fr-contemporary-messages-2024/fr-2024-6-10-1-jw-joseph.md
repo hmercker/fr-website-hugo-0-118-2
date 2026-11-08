@@ -1,7 +1,7 @@
 ---
 title: "Fête des Pères"
 menu_title: ""
-description: "Fête des Pères"
+description: "Joseph, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur vous tous. Laissez votre œil intérieur regarder vers le Ciel tandis que vous ouvrez votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Affrontez ce qui vous empêche d’être l’instrument de lumière de Dieu"
 menu_title: ""
-description: "Affrontez ce qui vous empêche d’être l’instrument de lumière de Dieu"
+description: "Augustin, reçu par Albert Fike : « C’est votre maître, Augustin. Des projets sont en cours. »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Du sein de Dieu aux portes du Paradis"
 menu_title: ""
-description: "Du sein de Dieu aux portes du Paradis"
+description: "Luc, reçu par Albert Fike : « Le chemin vers Dieu est à la fois difficile et très enrichissant. Comme vous le savez, les difficultés viennent de la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

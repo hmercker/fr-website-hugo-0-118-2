@@ -1,7 +1,7 @@
 ---
 title: "Le souhait de la mort"
 menu_title: ""
-description: "Le souhait de la mort"
+description: "Judas, reçu par H : « Je me réfère à l’inquiétude exprimée ces derniers temps, qu’avec le discours transmis par l’intermédiaire des messages, les gens … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

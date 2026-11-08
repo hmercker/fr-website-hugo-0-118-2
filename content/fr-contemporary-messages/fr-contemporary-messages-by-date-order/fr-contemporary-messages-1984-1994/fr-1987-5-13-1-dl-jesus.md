@@ -1,7 +1,7 @@
 ---
 title: "Son église sur la Terre"
 menu_title: ""
-description: "Son église sur la Terre"
+description: "Jésus, reçu par Révérend Dave Lampron : « Nous visons toujours la région de Washington pour le nouveau siège de notre église et pour le sanctuaire de … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

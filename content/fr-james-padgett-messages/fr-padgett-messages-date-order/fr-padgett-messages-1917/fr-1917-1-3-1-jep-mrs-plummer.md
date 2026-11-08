@@ -1,7 +1,7 @@
 ---
 title: "Mme Nathan Plummer décrit les conditions dans les ténèbres"
 menu_title: ""
-description: "Mme Nathan Plummer décrit les conditions dans les ténèbres"
+description: "Mme Plummer, reçu par James Padgett : « Je ne l’ai jamais vu, ni aucun de ses diablotins, ni le soufre et le feu. Mais les esprits que j’ai vus sont … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

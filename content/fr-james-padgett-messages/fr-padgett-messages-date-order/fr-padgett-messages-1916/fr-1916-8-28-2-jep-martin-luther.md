@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther – les Papes qui l’ont persécuté"
 menu_title: ""
-description: "Martin Luther – les Papes qui l’ont persécuté"
+description: "Martin Luther, reçu par James Padgett : « Je n’écrirai pas grand-chose pour le moment, mais j’ai hâte de continuer ma lettre à mes disciples, et dès que … »"
 date: 2022-06-01 06:00:01+00:266
 draft: False
 hidden: True

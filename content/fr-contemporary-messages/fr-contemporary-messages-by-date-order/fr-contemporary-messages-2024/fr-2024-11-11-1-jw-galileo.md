@@ -1,7 +1,7 @@
 ---
 title: "Le centre de l'univers"
 menu_title: ""
-description: "Le centre de l'univers"
+description: "Galilée, reçu par Jimbeau Walsh : « Comme vous le savez, je fus un explorateur des corps célestes, tout comme mon frère Nicolas Copernic. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

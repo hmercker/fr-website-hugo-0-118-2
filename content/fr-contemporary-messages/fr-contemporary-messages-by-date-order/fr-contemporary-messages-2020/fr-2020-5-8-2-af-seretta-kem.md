@@ -1,7 +1,7 @@
 ---
 title: "Comment le mental interprète les événements par rapport à l'âme"
 menu_title: ""
-description: "Comment le mental interprète les événements par rapport à l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Dans votre monde matériel, beaucoup de ce qui est expérimenté, disséqué, compris, analysé et observé dans votre vie … »"
 date: 2022-06-01 06:00:01+00:1093
 draft: False
 hidden: True

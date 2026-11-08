@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme humaine est endommagée par la condition de la Terre et doit être guérie"
 menu_title: ""
-description: "Chaque âme humaine est endommagée par la condition de la Terre et doit être guérie"
+description: "André, reçu par Al Fike : « Chaque âme a une douleur et des blessures profondes et durables à l’intérieur. Chaque âme que nous rencontrons, chaque … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

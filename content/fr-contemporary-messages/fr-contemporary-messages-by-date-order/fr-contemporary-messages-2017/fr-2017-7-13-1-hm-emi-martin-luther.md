@@ -1,7 +1,7 @@
 ---
 title: "Courage"
 menu_title: ""
-description: "Courage"
+description: "Emi et Martin Luther, reçu par Helge Mercker : « C'est l'Amour du Père qui t'apporte la joie, qui t'apporte les compréhensions, qui te guidera. »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

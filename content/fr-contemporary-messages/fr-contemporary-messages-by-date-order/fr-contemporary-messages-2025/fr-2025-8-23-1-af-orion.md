@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu est le plus grand don de l’Univers"
 menu_title: ""
-description: "L’Amour de Dieu est le plus grand don de l’Univers"
+description: "Orion, reçu par Albert Fike : « Que la paix règne parmi vous, mes amis. Que l’Amour rayonne dans vos âmes. »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

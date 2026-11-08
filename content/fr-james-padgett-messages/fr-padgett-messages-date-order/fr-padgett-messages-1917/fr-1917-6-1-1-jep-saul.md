@@ -1,7 +1,7 @@
 ---
 title: "Saul – Conseils pour son peuple, les Juifs"
 menu_title: ""
-description: "Saul – Conseils pour son peuple, les Juifs"
+description: "Saul, reçu par James Padgett : « Je serai bref car il est tard, et votre femme dit que je ne dois pas écrire longuement. Eh bien, je n’ai pas écrit depuis … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

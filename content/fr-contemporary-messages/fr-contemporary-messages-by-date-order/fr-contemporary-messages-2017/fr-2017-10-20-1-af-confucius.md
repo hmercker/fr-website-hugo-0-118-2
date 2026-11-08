@@ -1,7 +1,7 @@
 ---
 title: "L'arrivée de H"
 menu_title: ""
-description: "L'arrivée de H"
+description: "Confucius, reçu par Al Fike : « Donc, tu es venue ma fille. Tu es venue et tu as surmonté beaucoup de choses. »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tendez la main dans l’Amour de Dieu"
 menu_title: ""
-description: "Tendez la main dans l’Amour de Dieu"
+description: "Orion, reçu par Albert Fike : « Oh, il y a une grande faim là-bas, de vérité, de réconfort, d’amour. Vous le voyez dans vos efforts pour les rassembler … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

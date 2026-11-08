@@ -1,7 +1,7 @@
 ---
 title: "Egaux dans l'Amour de Dieu"
 menu_title: ""
-description: "Egaux dans l'Amour de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « J’ai souvent parlé de simplicité. J’ai parlé des besoins matériels par rapport aux besoins spirituels et … »"
 date: 2023-09-01 06:00:01+00:40
 draft: False
 hidden: True

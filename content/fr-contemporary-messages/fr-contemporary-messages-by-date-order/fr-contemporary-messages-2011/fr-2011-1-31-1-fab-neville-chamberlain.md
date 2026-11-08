@@ -1,7 +1,7 @@
 ---
 title: "Les remords d’un dirigeant Britannique"
 menu_title: ""
-description: "Les remords d’un dirigeant Britannique"
+description: "Neville Chamberlain, reçu par FAB : « Nous pensions à l’équilibre du pouvoir en Europe. Nous ne pensions pas du tout au bien-être du peuple européen. »"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True

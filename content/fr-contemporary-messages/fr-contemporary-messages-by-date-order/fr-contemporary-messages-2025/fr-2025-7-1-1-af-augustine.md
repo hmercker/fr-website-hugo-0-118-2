@@ -1,7 +1,7 @@
 ---
 title: "Tenez bon dans l'Amour de Dieu"
 menu_title: ""
-description: "Tenez bon dans l'Amour de Dieu"
+description: "Augustin, reçu par Albert Fike : « Tenez bon, mes chers élèves. Soyez dans la Vérité de l’Amour de Dieu à chaque instant de votre vie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

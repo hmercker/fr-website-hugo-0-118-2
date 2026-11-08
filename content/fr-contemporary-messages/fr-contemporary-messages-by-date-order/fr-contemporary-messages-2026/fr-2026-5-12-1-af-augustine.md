@@ -1,7 +1,7 @@
 ---
 title: "Assumez la responsabilité de votre état et restez fidèles à la vérité"
 menu_title: ""
-description: "Assumez la responsabilité de votre état et restez fidèles à la vérité"
+description: "Augustin, reçu par Al Fike : « Que les bénédictions de l’Amour du Père soient avec vous. Chacun de vous est unique par son caractère, ses capacités, ses … »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

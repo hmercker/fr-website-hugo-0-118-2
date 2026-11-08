@@ -1,7 +1,7 @@
 ---
 title: "Le Souffle de Dieu"
 menu_title: ""
-description: "Le Souffle de Dieu"
+description: "Confucius, reçu par Al Fike : « Vous devez déployer ces ailes, vous ouvrir à ce Don d’Amour et permettre à Dieu de vous toucher profondément afin que vous … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

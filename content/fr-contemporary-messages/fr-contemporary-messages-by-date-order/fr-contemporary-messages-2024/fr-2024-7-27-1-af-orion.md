@@ -1,7 +1,7 @@
 ---
 title: "La vérité absolue ne peut être comprise que par les perceptions de l'âme"
 menu_title: ""
-description: "La vérité absolue ne peut être comprise que par les perceptions de l'âme"
+description: "Orion, reçu par Albert Fike : « Une chose si insaisissable, mes amis, c’est Orion. Alors que vous continuez à discerner la vérité avec votre esprit, vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

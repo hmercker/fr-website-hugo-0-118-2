@@ -1,7 +1,7 @@
 ---
 title: "Des moyens nouveaux et créatifs s'ouvriront pour servir alors que les changements terrestres se poursuivent"
 menu_title: ""
-description: "Des moyens nouveaux et créatifs s'ouvriront pour servir alors que les changements terrestres se poursuivent"
+description: "St Matthieu, reçu par Al Fike : « Ne voyez-vous pas que Dieu vous offre chaque jour de grandes possibilités de servir ; que même si les structures de … »"
 date: 2022-06-01 06:00:01+00:1051
 draft: False
 hidden: True

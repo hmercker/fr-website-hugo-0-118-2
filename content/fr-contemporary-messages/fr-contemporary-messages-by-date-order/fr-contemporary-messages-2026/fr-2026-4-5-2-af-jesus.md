@@ -1,7 +1,7 @@
 ---
 title: "Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin"
 menu_title: ""
-description: "Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin"
+description: "Jésus, reçu par Al Fike Mack : « Pourtant, pour vous, je viens. En effet, le message que j'ai apporté il y a si longtemps continue de vivre aujourd'hui … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

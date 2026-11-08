@@ -1,7 +1,7 @@
 ---
 title: "Soyez perspicaces, sages et fidèles à la Volonté de Dieu"
 menu_title: ""
-description: "Soyez perspicaces, sages et fidèles à laVvolonté de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Vous sentez de nombreuses âmes attirées vers vous. Cela semble être un défilé sans fin d’âmes qui veulent être avec … »"
 date: 2022-06-01 06:00:01+00:479
 draft: False
 hidden: True

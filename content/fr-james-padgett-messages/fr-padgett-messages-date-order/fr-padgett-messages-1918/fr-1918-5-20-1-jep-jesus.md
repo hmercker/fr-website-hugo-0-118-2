@@ -1,7 +1,7 @@
 ---
 title: "Jésus se réfère à la prophétie de la Bible (Matthieu 24)"
 menu_title: ""
-description: "Jésus se réfère à la prophétie de la Bible (Matthieu 24)"
+description: "Jésus, reçu par James Padgett : « J’aimerais écrire ce soir, mais vous n’êtes pas vraiment dans une bonne condition, bien qu’elle soit bien meilleure … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

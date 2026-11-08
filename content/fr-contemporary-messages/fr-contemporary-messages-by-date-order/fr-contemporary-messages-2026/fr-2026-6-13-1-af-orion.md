@@ -1,7 +1,7 @@
 ---
 title: "Reconnaissez la puissance des bénédictions de Dieu sur vous"
 menu_title: ""
-description: "Reconnaissez la puissance des bénédictions de Dieu sur vous"
+description: "Orion, reçu par Albert Fike : « En vérité, que les bénédictions de Dieu continuent de se déverser sur vous, mes amis. Les bénédictions de Dieu sont immenses. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

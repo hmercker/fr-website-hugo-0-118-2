@@ -1,7 +1,7 @@
 ---
 title: "Le moment est venu : Libérez-vous des habitudes néfastes, sortez de votre cocon et avancez pour accomplir votre destinée"
 menu_title: ""
-description: "Le moment est venu : Libérez-vous des habitudes néfastes, sortez de votre cocon et avancez pour accomplir votre destinée"
+description: "Augustin, reçu par Al Fike : « C’est votre maître, Augustin. Il est important d’aller à la rencontre du monde, mes chers élèves, afin que Dieu puisse vous … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

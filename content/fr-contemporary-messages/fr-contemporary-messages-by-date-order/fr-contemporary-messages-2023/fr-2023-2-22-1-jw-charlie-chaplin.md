@@ -1,7 +1,7 @@
 ---
 title: "Un cœur ouvert est le chemin de l'âme"
 menu_title: ""
-description: "Un cœur ouvert est le chemin de l'âme"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Vos sentiments sont la porte d’entrée de l’ouverture de vos cœurs pour que vos âmes soient bénies. »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

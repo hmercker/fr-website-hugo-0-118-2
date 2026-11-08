@@ -1,7 +1,7 @@
 ---
 title: "Un monde harmonieux basé sur l’honnêteté, la vérité et l’amour des autres arrive !"
 menu_title: ""
-description: "Un monde harmonieux basé sur l’honnêteté, la vérité et l’amour des autres arrive !"
+description: "Flavius Josèphe, reçu par Albert Fike : « Le monde change et vous aussi, âmes bien-aimées. Pensez à un monde où l’humanité a un sens de l’unité, un sens … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

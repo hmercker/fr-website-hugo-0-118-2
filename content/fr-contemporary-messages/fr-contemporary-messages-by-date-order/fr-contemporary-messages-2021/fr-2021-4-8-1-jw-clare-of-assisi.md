@@ -1,7 +1,7 @@
 ---
 title: "Immunité spirituelle"
 menu_title: ""
-description: "Immunité spirituelle"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes chères gentilles souris, je peux vous dire que Robert Lees était plus que flatté que vous lisiez ce qu’il … »"
 date: 2022-06-01 06:00:01+00:1461
 draft: False
 hidden: True

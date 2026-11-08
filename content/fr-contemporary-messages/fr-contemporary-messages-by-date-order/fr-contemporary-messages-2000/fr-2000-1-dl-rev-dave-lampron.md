@@ -1,7 +1,7 @@
 ---
 title: "Une qualité de Dieu rarement mentionnée"
 menu_title: ""
-description: "Une qualité de Dieu rarement mentionnée"
+description: "Rev Dave Lampron, reçu par Révérend Dave Lampron : « Ce soir, avec votre indulgence, je voudrais vous parler de Dieu. Plus précisément, je voudrais … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

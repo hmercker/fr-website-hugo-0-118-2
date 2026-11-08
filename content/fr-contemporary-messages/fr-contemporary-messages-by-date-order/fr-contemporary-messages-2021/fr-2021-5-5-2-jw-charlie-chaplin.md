@@ -1,7 +1,7 @@
 ---
 title: "Qu'est-ce qui est requis pour l’Harmonie ?"
 menu_title: ""
-description: "Qu'est-ce qui est requis pour l’Harmonie ?"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Vous qui êtes attirés par les arts créatifs dans le chant, la danse, le théâtre et au-delà, il y a beaucoup de … »"
 date: 2022-06-01 06:00:01+00:1493
 draft: False
 hidden: True

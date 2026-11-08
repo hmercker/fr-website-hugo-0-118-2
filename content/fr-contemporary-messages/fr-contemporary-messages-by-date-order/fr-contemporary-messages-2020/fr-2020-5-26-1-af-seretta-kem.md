@@ -1,7 +1,7 @@
 ---
 title: "Les contradictions entre l'esprit et l'âme - Voix Directe"
 menu_title: ""
-description: "Les contradictions entre l'esprit et l'âme - Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Je veux extrapoler sur mon message d’hier. Je souhaite parler des contradictions entre l’esprit et l’âme. »"
 date: 2022-06-01 06:00:01+00:1121
 draft: False
 hidden: True

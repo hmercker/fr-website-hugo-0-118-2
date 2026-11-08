@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett partage la joie de M. Padgett d’aujourd’hui alors que son âme était remplie de l’amour du Père"
 menu_title: ""
-description: "Hélène Padgett partage la joie de M. Padgett d’aujourd’hui alors que son âme était remplie de l’amour du Père"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, tu as reçu des messages très importants ce soir et le Maître dit que tu les as reçus d’une manière très … »"
 date: 2022-06-01 06:00:01+00:234
 draft: False
 hidden: True

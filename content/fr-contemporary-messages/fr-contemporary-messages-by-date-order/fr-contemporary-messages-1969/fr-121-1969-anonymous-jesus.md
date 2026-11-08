@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin"
 menu_title: ""
-description: "L'Amour Divin"
+description: "Jésus : « Que la paix soit avec vous tous, mes enfants. Que la bénédiction du Père se déverse dans votre être, que vous sentiez cette grande Essence … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

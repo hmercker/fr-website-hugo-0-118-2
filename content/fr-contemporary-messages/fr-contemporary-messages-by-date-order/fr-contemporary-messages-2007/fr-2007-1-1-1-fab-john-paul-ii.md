@@ -1,7 +1,7 @@
 ---
 title: "Un pape appelle à la paix"
 menu_title: ""
-description: "Un pape appelle à la paix"
+description: "Jean Paul II, reçu par FAB : « Je sais que vous ne croyez pas comme moi. Je sais aussi que vous avez une très haute opinion de moi. »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

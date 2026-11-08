@@ -1,7 +1,7 @@
 ---
 title: "Détails de la vie de James Padgett"
 menu_title: ""
-description: "Détails de la vie de James Padgett"
+description: "James Padgett, reçu par Al Fike : « Chacune et chacun d’entre vous qui êtes impliqués dans cette entreprise, en priant pour cet Amour et en répandant la … »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

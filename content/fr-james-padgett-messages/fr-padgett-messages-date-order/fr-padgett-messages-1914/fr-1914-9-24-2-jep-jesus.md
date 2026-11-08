@@ -1,7 +1,7 @@
 ---
 title: "Jésus n’est pas Dieu, mais a été envoyé par le Père pour conduire les hommes à Sa faveur et à Son amour. Il est le chemin, la vérité et la vie"
 menu_title: ""
-description: "Jésus n’est pas Dieu, mais a été envoyé par le Père pour conduire les hommes à Sa faveur et à Son amour. Il est le chemin, la vérité et la vie"
+description: "Jésus, reçu par James Padgett : « Ne laissez pas votre cœur être dans la peur, car le Seigneur est votre gardien et Il sera votre guide et votre bouclier. »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

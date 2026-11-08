@@ -1,7 +1,7 @@
 ---
 title: "L’intérêt angélique pour la vie mortelle"
 menu_title: ""
-description: "L’intérêt angélique pour la vie mortelle"
+description: "Thomas Jefferson, reçu par FAB : « Je veux clarifier quelque chose pour vous. Nous, les esprits Célestes, avons laissé le plan terrestre derrière nous, y … »"
 date: 2022-06-01 06:00:01+00:201
 draft: False
 hidden: True

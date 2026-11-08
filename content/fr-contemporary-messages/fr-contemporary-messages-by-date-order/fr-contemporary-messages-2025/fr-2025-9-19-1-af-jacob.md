@@ -1,7 +1,7 @@
 ---
 title: "Dieu vous prépare pour être les porte partoles de Sa Vérité"
 menu_title: ""
-description: "Dieu vous prépare pour être les porte partoles de Sa Vérité"
+description: "Jacob, reçu par Albert Fike : « Au commencement, Dieu a voulu que Ses créatures, les êtres humains, aient l'âme comme conscience prédominante de l'individu. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tout viendra à vous lorsque vous attirerez l'Amour Divin de Dieu dans vos âmes"
 menu_title: ""
-description: "Tout viendra à vous lorsque vous attirerez l'Amour Divin de Dieu dans vos âmes"
+description: "Schumann Heink : « Jusqu'à ce que nous ayons pris la vie pas à pas, comme le symbolise ce magnifique hymne : « Un pas suffit pour moi, de Lead Kindly … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

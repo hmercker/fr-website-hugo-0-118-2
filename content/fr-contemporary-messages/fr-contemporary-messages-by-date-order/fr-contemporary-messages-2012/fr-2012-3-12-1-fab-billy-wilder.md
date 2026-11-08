@@ -1,7 +1,7 @@
 ---
 title: "Billy Wilder à propos de Marilyn Monroe"
 menu_title: ""
-description: "Billy Wilder à propos de Marilyn Monroe"
+description: "Billy Wilder, reçu par FAB : « Je vois que vous lisez ma biographie [Billy Wilder à Hollywood par Maurice Zolotow]. Vous venez de lire que j’ai dit, « Je … »"
 date: 2022-06-01 06:00:01+00:224
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Levez-vous et soyez comptés (2)"
 menu_title: ""
-description: "Levez-vous et soyez comptés (2)"
+description: "Judas, reçu par H : « Est-ce que je peux continuer mon discours ? Le message d’aujourd’hui n’est pas du tout dans l’ordre chronologique. »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

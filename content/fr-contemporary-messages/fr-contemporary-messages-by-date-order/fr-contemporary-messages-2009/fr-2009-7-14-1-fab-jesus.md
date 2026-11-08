@@ -1,7 +1,7 @@
 ---
 title: "Dire la vérité"
 menu_title: ""
-description: "Dire la vérité"
+description: "Jésus, reçu par FAB : « Je souhaite maintenant discuter de cette lutte en cours dans votre âme entre le désir de dire ce que vous percevez comme étant la … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

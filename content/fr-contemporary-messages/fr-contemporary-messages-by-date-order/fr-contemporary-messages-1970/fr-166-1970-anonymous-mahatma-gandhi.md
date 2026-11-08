@@ -1,7 +1,7 @@
 ---
 title: "La grande illumination viendra"
 menu_title: ""
-description: "La grande illumination viendra"
+description: "Mahatma Gandhi : « Lorsque l'homme sera si évolué dans l'Amour de Dieu que le désir de cruauté et de méfaits le quittera, il y aura vraiment le paradis … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

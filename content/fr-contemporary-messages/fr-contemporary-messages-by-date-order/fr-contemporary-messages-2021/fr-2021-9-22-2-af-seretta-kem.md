@@ -1,7 +1,7 @@
 ---
 title: "Groupe des douze, Aussie VD et Lightbringers réunis (2021 Voix Directe II)"
 menu_title: ""
-description: "Groupe des douzen, Aussie VD et Lightbringers réunis (2021 Voix Directe II)"
+description: "Seretta Kem, reçu par Al Fike : « Vous transmettez la lumière et les bénédictions à vos compagnons de développement de la Voix Directe dans d’autres … »"
 date: 2022-06-01 06:00:01+00:1656
 draft: False
 hidden: True

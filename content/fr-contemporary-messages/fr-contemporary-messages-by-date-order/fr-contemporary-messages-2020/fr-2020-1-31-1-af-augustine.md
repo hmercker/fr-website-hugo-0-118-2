@@ -1,7 +1,7 @@
 ---
 title: "Un lien puissant vous unit lorsque vous priez ensemble"
 menu_title: ""
-description: "Un lien puissant vous unit lorsque vous priez ensemble"
+description: "Augustin, reçu par Al Fike : « Qu’il est merveilleux de voir tant d’âmes qui viennent boire l’Amour du Père, à ce puits de Lumière qu’est cet Amour donné … »"
 date: 2022-06-01 06:00:01+00:987
 draft: False
 hidden: True

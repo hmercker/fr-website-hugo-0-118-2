@@ -1,7 +1,7 @@
 ---
 title: "L'influence des mauavis esprits"
 menu_title: ""
-description: "L'influence des mauavis esprits"
+description: "Jésus, reçu par Révérend Dave Lampron : « Cher Maître, dans votre [dernier message transmis par mon intermédiaire, vous avez dit que les mauvais esprits … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

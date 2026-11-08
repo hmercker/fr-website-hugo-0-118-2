@@ -1,7 +1,7 @@
 ---
 title: "La méditation n’est pas ce que vous pensez !"
 menu_title: ""
-description: "La méditation n’est pas ce que vous pensez !"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « J’ai fondé un ordre de religieuses inspiré par mon bien-aimé François. Nous avons renoncé à la plupart de nos … »"
 date: 2022-06-01 06:00:01+00:1612
 draft: False
 hidden: True

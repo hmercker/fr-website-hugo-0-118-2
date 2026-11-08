@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour la tribu Trini"
 menu_title: ""
-description: "Bénédiction pour la tribu Trini"
+description: "Confucius, reçu par Albert Fike : « Je vous salue dans ce lieu, sacré et saint, rempli d’amour et de lumière. Vous êtes tous entrés dans ce lieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

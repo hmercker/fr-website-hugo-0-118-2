@@ -1,7 +1,7 @@
 ---
 title: "Parle de la protection et du pouvoir"
 menu_title: ""
-description: "Parle de la protection et du pouvoir"
+description: "Orion, reçu par Al Fike : « Que l’Essence de Dieu continue de couler dans vos âmes. Car c’est dans ce rapport des anges et des hommes, des esprits … »"
 date: 2023-09-01 06:00:01+00:39
 draft: False
 hidden: True

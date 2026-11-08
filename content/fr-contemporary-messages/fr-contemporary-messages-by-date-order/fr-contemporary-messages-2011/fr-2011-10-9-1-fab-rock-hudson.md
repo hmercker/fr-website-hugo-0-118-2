@@ -1,7 +1,7 @@
 ---
 title: "La confusion d’une star de cinéma"
 menu_title: ""
-description: "La confusion d’une star de cinéma"
+description: "Rock Hudson, reçu par FAB : « Maintenant, vous avez lu ma biographie et ma fin malheureuse. Car j’avais une idée très floue sur à peu près tout. »"
 date: 2022-06-01 06:00:01+00:202
 draft: False
 hidden: True

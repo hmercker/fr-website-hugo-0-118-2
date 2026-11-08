@@ -1,7 +1,7 @@
 ---
 title: "Rassure le Cercle de Lumière en ligne sur les bénédictions à venir avec les changements terrestres"
 menu_title: ""
-description: "Rassure le Cercle de Lumière en ligne sur les bénédictions à venir avec les changements terrestres"
+description: "Orion, reçu par Albert Fike : « Soyez bénis par un grand afflux de l’Amour du Père, cette bénédiction universelle accessible à toutes les âmes qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

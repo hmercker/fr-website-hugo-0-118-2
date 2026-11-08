@@ -1,7 +1,7 @@
 ---
 title: "Parle au Cercle de Lumière, est heureux et honoré de travailler avec le Cercle de Lumière de Manly"
 menu_title: ""
-description: "Parle au Cercle de Lumière, est heureux et honoré de travailler avec le Cercle de Lumière de Manly"
+description: "Bouleau Argenté, Elizabeth, Confucius, reçu par Albert Fike : « Ce message a été transmis il y a de nombreuses années, mes amis. En effet, selon le médium … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

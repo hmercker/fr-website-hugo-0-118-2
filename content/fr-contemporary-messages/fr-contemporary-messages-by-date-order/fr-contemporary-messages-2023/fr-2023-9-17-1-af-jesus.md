@@ -1,7 +1,7 @@
 ---
 title: "Le véritable but de votre âme dans le monde"
 menu_title: ""
-description: "Le véritable but de votre âme dans le monde"
+description: "Jésus, reçu par Albert Fike : « Âmes bien-aimées, je viens. Le monde est plein de promesses pour vous, chacun d’entre vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Même Atlas ne pouvait pas faire ce que Dieu peut faire"
 menu_title: ""
-description: "Même Atlas ne pouvait pas faire ce que Dieu peut faire"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Et comme je l’ai déjà dit et comme vous avez pu le voir dans mes films, je pouvais danser autour de la … »"
 date: 2022-06-01 06:00:01+00:207
 draft: False
 hidden: True

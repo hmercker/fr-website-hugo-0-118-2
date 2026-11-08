@@ -1,7 +1,7 @@
 ---
 title: "Tu es mon disciple ici"
 menu_title: ""
-description: "Tu es mon disciple ici"
+description: "Jésus, reçu par Al Fike : « Les cœurs qui se réparent dans ce pays sont chargés, mon frère bien-aimé. Ils sont chargés de tant de douleur et de chagrin … »"
 date: 2022-06-01 06:00:01+00:241
 draft: False
 hidden: True

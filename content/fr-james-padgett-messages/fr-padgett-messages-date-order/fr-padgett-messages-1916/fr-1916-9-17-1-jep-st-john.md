@@ -1,7 +1,7 @@
 ---
 title: "La vraie signification de : « Au début était la Parole et la Parole était avec Dieu »"
 menu_title: ""
-description: "La vraie signification de : « Au début était la Parole et la Parole était avec Dieu »"
+description: "St Jean, reçu par James Padgett : « Je veux seulement dire quelques mots, en référence à ce que l’homme vous a dit au sujet de mon Évangile ou plutôt au … »"
 date: 2022-06-01 06:00:01+00:275
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirmant que Jésus a écrit "
 menu_title: ""
-description: "Hélène affirmant que Jésus a écrit "
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, le Maître n’ a-t-il pas expliqué très clairement ce que signifie l’âme perdue ? Il est le seul Jésus … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

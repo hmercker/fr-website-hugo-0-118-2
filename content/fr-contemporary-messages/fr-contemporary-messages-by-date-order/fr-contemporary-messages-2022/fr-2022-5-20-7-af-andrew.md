@@ -1,7 +1,7 @@
 ---
 title: "Prie avec nous pour la bénédiction de la grâce de Dieu"
 menu_title: ""
-description: "Prie avec nous pour la bénédiction de la grâce de Dieu"
+description: "André, reçu par Al Fike : « Ses bénédictions sur nos âmes continuent de nous remplir et de nous transformer. Nous nous réunissons donc de toutes les … »"
 date: 2023-09-01 06:00:01+00:29
 draft: False
 hidden: True

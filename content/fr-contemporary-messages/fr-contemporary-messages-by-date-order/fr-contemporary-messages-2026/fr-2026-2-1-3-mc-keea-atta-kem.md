@@ -1,7 +1,7 @@
 ---
 title: "Permettez l’intégration de l’Amour de Dieu en votre âme"
 menu_title: ""
-description: "Permettez l’intégration de l’Amour de Dieu en votre âme"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Quelle bénédiction d’être avec vous alors que vous vous rassemblez ainsi, pour accueillir l’Amour de Dieu en … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

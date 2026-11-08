@@ -1,7 +1,7 @@
 ---
 title: "Mary dit que l’amour de l’âme-sœur n’est surpassé que par l’Amour Divin du Père"
 menu_title: ""
-description: "Mary dit que l’amour de l’âme-sœur n’est surpassé que par l’Amour Divin du Père"
+description: "Mary Kennedy, reçu par James Padgett : « Ce qui me rend le plus heureuse, c’est de voir son âme s’enrichir de plus en plus d’amour et, par conséquent, il … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

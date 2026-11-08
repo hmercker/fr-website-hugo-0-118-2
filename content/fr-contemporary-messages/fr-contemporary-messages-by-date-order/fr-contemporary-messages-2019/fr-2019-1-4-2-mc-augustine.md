@@ -1,7 +1,7 @@
 ---
 title: "Prenez la résolution de faire grandir votre âme"
 menu_title: ""
-description: "Prenez la résolution de faire grandir votre âme"
+description: "Augustin, reçu par Maureen Cardoso : « C’est votre enseignant Augustin, autrefois l’évêque d’Hippone lors de sa vie terrestre, et maintenant un habitant … »"
 date: 2022-06-01 06:00:01+00:594
 draft: False
 hidden: True

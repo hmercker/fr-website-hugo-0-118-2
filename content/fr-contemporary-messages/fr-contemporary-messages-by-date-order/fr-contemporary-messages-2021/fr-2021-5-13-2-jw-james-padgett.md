@@ -1,7 +1,7 @@
 ---
 title: "Explorez la vérité avec vos âmes"
 menu_title: ""
-description: "Explorez la vérité avec vos âmes"
+description: "James Padgett, reçu par Jimbeau Walsh : « Comme l’Amour de Dieu est éternel, Ses lois et Ses vérités le sont aussi. Vous êtes un groupe quelque peu … »"
 date: 2022-06-01 06:00:01+00:1503
 draft: False
 hidden: True

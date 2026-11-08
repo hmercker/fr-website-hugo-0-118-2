@@ -1,7 +1,7 @@
 ---
 title: "Les lois de Dieu sont universelles"
 menu_title: ""
-description: "Les lois de Dieu sont universelles"
+description: "Keea Atta Kem : « Je voulais vous dire que maintenant que l'humanité a fait le premier pas en avant dans l'univers, une plus grande compréhension va … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

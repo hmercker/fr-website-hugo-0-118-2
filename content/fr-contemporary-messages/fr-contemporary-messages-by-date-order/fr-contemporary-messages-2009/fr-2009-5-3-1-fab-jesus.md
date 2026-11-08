@@ -1,7 +1,7 @@
 ---
 title: "Le programme politique et économique de Jésus"
 menu_title: ""
-description: "Le programme politique et économique de Jésus"
+description: "Jésus, reçu par FAB : « Je voudrais canaliser un message concernant mes deux canalisations dans lesquelles j'ai dit que j'avais un agenda politique ainsi … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

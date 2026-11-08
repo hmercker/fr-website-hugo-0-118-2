@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett est très heureuse de la manière dont sa fille Nita fut capable de décrire sa joie et son progrès spirituel"
 menu_title: ""
-description: "Hélène Padgett est très heureuse de la manière dont sa fille Nita fut capable de décrire sa joie et son progrès spirituel"
+description: "Hélène Padgett, reçu par James Padgett : « Elle se sent mieux de savoir que maintenant quelqu’un sait exactement quel est son état et à quel point elle … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

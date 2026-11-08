@@ -1,7 +1,7 @@
 ---
 title: "Connaître les dons que Dieu a à offrir"
 menu_title: ""
-description: "Connaître les dons que Dieu a à offrir"
+description: "Seretta Kem, reçu par Al Fike : « Mon don est le don de guérison, parmi d’autres choses que je prodigue aux mortels pour leur bien. »"
 date: 2022-06-01 06:00:01+00:1169
 draft: False
 hidden: True

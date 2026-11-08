@@ -1,7 +1,7 @@
 ---
 title: "L’âme, l’esprit et le corps physique ne feront plus qu’un"
 menu_title: ""
-description: "L’âme, l’esprit et le corps physique ne feront plus qu’un"
+description: "Kean Hughes, reçu par Elizabeth Mack : « C’est un plaisir pour moi de parler par ce biais à mes frères et sœurs qui parcourent encore la Terre en chair et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

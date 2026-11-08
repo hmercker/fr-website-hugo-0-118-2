@@ -1,7 +1,7 @@
 ---
 title: "Décrit sa progression vers la 5ème Sphère"
 menu_title: ""
-description: "Décrit sa progression vers la 5ème Sphère"
+description: "Lorna Scott, reçu par Albert Fike : « Je veux que vous sachiez à quel point je vais bien. Progresser et aimer ma vie, une vie si différente de la vie que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

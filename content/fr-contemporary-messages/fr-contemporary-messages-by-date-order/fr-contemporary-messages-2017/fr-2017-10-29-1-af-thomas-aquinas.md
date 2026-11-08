@@ -1,7 +1,7 @@
 ---
 title: "S'accorder les uns avec les autres apporte une puissante harmonie"
 menu_title: ""
-description: "S'accorder les uns avec les autres apporte une puissante harmonie"
+description: "Thomas d'Aquin, reçu par Al Fike : « Oui en effet vous avez fait les deux tiers du chemin dans votre préparation à la Voix Directe, mais je dois vous dire … »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

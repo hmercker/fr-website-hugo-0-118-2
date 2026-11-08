@@ -1,7 +1,7 @@
 ---
 title: "Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs sur la terre"
 menu_title: ""
-description: "Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs sur la terre"
+description: "Hélène Padgett & Mary Kennedy, reçu par James Padgett : « Eh bien, mon cher, le Maître ne poursuivra pas ses messages ce soir parce que tu ne vas pas très … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

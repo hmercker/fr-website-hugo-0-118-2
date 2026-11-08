@@ -1,7 +1,7 @@
 ---
 title: "Continuez à exprimer ces merveilleuses Vérités dans vos vies"
 menu_title: ""
-description: "Continuez à exprimer ces merveilleuses Vérités dans vos vies"
+description: "Alec Gaunt, reçu par Al Fike : « Nombre d’entre vous ont les pieds fermement ancrés sur le Sentier Divin. Rien ne peut vous en détourner ; vous devez … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

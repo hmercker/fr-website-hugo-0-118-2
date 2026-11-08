@@ -1,7 +1,7 @@
 ---
 title: "Le soleil bondissant de Fatima"
 menu_title: ""
-description: "Le soleil bondissant de Fatima"
+description: "Jésus, reçu par Kathryn Stokes : « S'il Te plaît, Dieu, aide-nous à mieux comprendre ce miracle si nos esprits raisonnants sont capables de saisir les … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

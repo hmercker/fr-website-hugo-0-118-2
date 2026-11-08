@@ -1,7 +1,7 @@
 ---
 title: "Vos désirs de vérité"
 menu_title: ""
-description: "Vos désirs de vérité"
+description: "Jésus, reçu par Albert Fike : « Car combien aspirent et n'ont aucune idée de la manière dont ils peuvent satisfaire ce désir ? »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

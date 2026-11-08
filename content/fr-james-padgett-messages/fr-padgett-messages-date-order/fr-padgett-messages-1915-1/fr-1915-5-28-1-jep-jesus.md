@@ -1,7 +1,7 @@
 ---
 title: "Jésus – le sens de l’immortalité"
 menu_title: ""
-description: "Jésus – le sens de l’immortalité"
+description: "Jésus, reçu par James Padgett : « Je veux partager avec vous ce que j’entends par immortalité, alors que vous et votre ami différiez aujourd’hui sur ce … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'empereur n'a pas de vêtements"
 menu_title: ""
-description: "L'empereur n'a pas de vêtements"
+description: "George Gurdjieff, reçu par Jimbeau Walsh : « J’ai étudié de nombreuses traditions provenant de nombreux endroits. J’ai essayé d’utiliser les enseignements … »"
 date: 2022-06-01 06:00:01+00:874
 draft: False
 hidden: True

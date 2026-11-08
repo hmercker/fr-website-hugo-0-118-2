@@ -1,7 +1,7 @@
 ---
 title: "Construire, étendre le portail pour amplifier les avantages"
 menu_title: ""
-description: "Construire, étendre le portail pour amplifier les avantages"
+description: "St Matthieu, reçu par Al Fike : « Je te remercie, mon fils, d’être venu pour être avec nous dans la prière. Car tu as été appelé et tu as répondu à … »"
 date: 2022-06-01 06:00:01+00:198
 draft: False
 hidden: True

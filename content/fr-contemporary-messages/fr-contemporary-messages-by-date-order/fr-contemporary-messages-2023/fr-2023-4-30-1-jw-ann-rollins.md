@@ -1,7 +1,7 @@
 ---
 title: "L'expiation et la loi de l'Amour Divin"
 menu_title: ""
-description: "L'expiation et la loi de l'Amour Divin"
+description: "Anne Rollins, reçu par Jimbeau Walsh : « Mes chers, où que vous soyez, que les bénédictions de l’Amour de Dieu coulent en abondance dans chacune de vos âmes. »"
 date: 2023-09-01 06:00:01+00:14
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: Les changements à venir et votre préparation spirituelle"
 menu_title: ""
-description: "Les changements à venir et votre préparation spirituelle"
+description: "Jésus, reçu par Al Fike : « Bénis soient les enfants qui cherchent à guérir ce monde. Bénis soient les enfants qui aspirent à l’Amour du Père. »"
 date: 2026-10-28 06:00:01+00:24
 draft: False
 hidden: True

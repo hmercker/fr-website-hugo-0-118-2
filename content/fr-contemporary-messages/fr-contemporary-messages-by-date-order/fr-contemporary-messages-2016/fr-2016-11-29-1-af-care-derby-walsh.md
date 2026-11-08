@@ -1,7 +1,7 @@
 ---
 title: "Les potentiels en herbe de nos âmes"
 menu_title: ""
-description: "Les potentiels en herbe de nos âmes"
+description: "Care Darby Walsh, reçu par Al Fike : « Moi aussi, je me joindrai à vous dans vos prières et vos efforts. Cela vient, vous allez tous sentir ce qui vient. … »"
 date: 2022-06-01 06:00:01+00:275
 draft: False
 hidden: True

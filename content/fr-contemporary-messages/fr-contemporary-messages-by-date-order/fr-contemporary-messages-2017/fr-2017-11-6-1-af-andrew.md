@@ -1,7 +1,7 @@
 ---
 title: "Se tourner vers Dieu pour se nourrir"
 menu_title: ""
-description: "Se tourner vers Dieu pour se nourrir"
+description: "André, reçu par Al Fike : « Si peu se tournent vraiment vers Dieu de manière à ce que celui-ci puisse les entendre et répondre en conséquence. »"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True

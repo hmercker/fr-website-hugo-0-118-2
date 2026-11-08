@@ -1,7 +1,7 @@
 ---
 title: "Faites aux autres"
 menu_title: ""
-description: "Faites aux autres"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « De telles âmes sœurs, une telle douceur, la beauté des mélodies venant de chacune, reflet de l’amour qu’elles … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

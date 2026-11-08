@@ -1,7 +1,7 @@
 ---
 title: "Jésus et la guerre - 2"
 menu_title: ""
-description: "Jésus et la guerre - 2"
+description: "Jésus, reçu par FAB : « Permettez-moi de poursuivre la canalisation d’hier. J’ai dit que nous ne sommes pas naïfs, et nous ne le sommes pas. »"
 date: 2022-06-01 06:00:01+00:223
 draft: False
 hidden: True

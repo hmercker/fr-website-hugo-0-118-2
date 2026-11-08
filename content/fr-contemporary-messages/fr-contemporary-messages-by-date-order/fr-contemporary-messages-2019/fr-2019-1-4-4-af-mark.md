@@ -1,7 +1,7 @@
 ---
 title: "Se concentrer sur la volonté de Dieu et avoir la foi "
 menu_title: ""
-description: "Se concentrer sur la volonté de Dieu et avoir la foi "
+description: "Marc, reçu par Al Fike : « Aujourd’hui, nous sommes réunis pour marquer une nouvelle année pour notre église bien-aimée, pour apporter la purification et … »"
 date: 2022-06-01 06:00:01+00:596
 draft: False
 hidden: True

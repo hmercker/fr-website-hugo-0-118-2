@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez votre âme et entrez en sainte communion avec Dieu"
 menu_title: ""
-description: "Ouvrez votre âme et entrez en sainte communion avec Dieu"
+description: "Jésus et Marie, reçu par Albert Fike : « Jésus : Que l’Essence de Dieu pénètre en vos âmes. Alors que Dieu ouvre cette porte et que l’ Esprit Saint vient … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

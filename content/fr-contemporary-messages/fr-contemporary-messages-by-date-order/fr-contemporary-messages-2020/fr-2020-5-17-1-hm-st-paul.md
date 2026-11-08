@@ -1,7 +1,7 @@
 ---
 title: "Sur la prière"
 menu_title: ""
-description: "Sur la prière"
+description: "St Paul, reçu par Helge Mercker : « Dans les bénédictions de l’Amour du Père, l’Amour Divin, beaucoup de choses sont révélées et accomplies. »"
 date: 2022-06-01 06:00:01+00:1107
 draft: False
 hidden: True

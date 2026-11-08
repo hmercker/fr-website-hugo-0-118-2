@@ -1,7 +1,7 @@
 ---
 title: "La naissance de Jésus à Bethléem"
 menu_title: ""
-description: "La naissance de Jésus à Bethléem"
+description: "Judas, reçu par H : « Très bien, mon cher frère ! Je vois que tu as déjà dessiné un portrait de Joseph. »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

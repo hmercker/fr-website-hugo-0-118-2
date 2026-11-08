@@ -1,7 +1,7 @@
 ---
 title: "Le voyage vers l'éveil de l'âme"
 menu_title: ""
-description: "Le voyage vers l'éveil de l'âme"
+description: "St Jean, reçu par Al Fike : « Chaque âme s'embarque dans un voyage de vie, cherchant à se connaître, cherchant à connaître la vie dans toutes ses … »"
 date: 2022-06-01 06:00:01+00:337
 draft: False
 hidden: True

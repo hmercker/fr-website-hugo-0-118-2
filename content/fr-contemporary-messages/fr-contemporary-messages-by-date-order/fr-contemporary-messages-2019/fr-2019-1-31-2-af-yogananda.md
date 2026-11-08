@@ -1,7 +1,7 @@
 ---
 title: "La réincarnation et sa perception et dissémination par de nombreux yogis et gourous de l’Orient"
 menu_title: ""
-description: "La réincarnation et sa perception et dissémination par de nombreux yogis et gourous de l’Orient"
+description: "Yogananda, reçu par Al Fike : « La question a été posée : comment connaît-on les vies passées et confère-t-on cette connaissance dans sa vie présente ? »"
 date: 2022-06-01 06:00:01+00:632
 draft: False
 hidden: True

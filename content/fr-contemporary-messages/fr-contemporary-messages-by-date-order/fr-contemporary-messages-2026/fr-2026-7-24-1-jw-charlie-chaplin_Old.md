@@ -1,7 +1,7 @@
 ---
 title: "Présenter au monde l'Amour de Dieu d'une manière qui résonne au-delà de la religion"
 menu_title: ""
-description: "Présenter au monde l'Amour de Dieu d'une manière qui résonne au-delà de la religion"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « C'est ainsi qu'avec l'aide de bien d'autres, j'ai créé des films abordant des sujets allant de l'amour et de … »"
 date: 2026-09-08 16:00:01+00:01
 draft: False
 hidden: True

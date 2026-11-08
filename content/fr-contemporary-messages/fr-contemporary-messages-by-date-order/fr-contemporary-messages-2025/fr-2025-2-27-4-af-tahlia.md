@@ -1,7 +1,7 @@
 ---
 title: "Examinez vos distorsions conscientes avant de prétendre être des instruments de Dieu"
 menu_title: ""
-description: "Examinez vos distorsions conscientes avant de prétendre être des instruments de Dieu"
+description: "Tahlia, reçu par Albert Fike : « Ne laissez pas les influences et les erreurs de votre esprit dicter vos actions. Toute personne qui prétend être guidée … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

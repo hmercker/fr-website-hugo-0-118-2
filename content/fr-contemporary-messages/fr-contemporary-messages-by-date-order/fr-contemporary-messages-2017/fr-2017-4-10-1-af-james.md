@@ -1,7 +1,7 @@
 ---
 title: "Les facultés de l’âme comparées à un objectif d’appareil photo"
 menu_title: ""
-description: "Les facultés de l’âme comparées à un objectif d’appareil photo"
+description: "Jacques, reçu par Al Fike : « Pour connaître la Volonté de Dieu, vous devez connaître votre propre âme. Pour activer et exprimer la volonté de Dieu dans … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Préparez-vous"
 menu_title: ""
-description: "Préparez-vous"
+description: "Mahatma Gandhi : « Comme vous le savez, lorsque j'étais sur Terre, je n'étais qu'un petit homme. Je n'avais aucun désir de richesse. »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions de guérison et d’amour"
 menu_title: ""
-description: "Bénédictions de guérison et d’amour"
+description: "Confucius, reçu par Al Fike : « Vous vous êtes tous réunis pour la guérison et vous recevrez la guérison alors que vous êtes ensemble dans ce groupe. »"
 date: 2022-06-01 06:00:01+00:286
 draft: False
 hidden: True

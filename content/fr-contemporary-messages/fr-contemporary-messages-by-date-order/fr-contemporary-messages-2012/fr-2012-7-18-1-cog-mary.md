@@ -1,7 +1,7 @@
 ---
 title: "Je suis la chaleur de ton cœur"
 menu_title: ""
-description: "Je suis la chaleur de ton cœur"
+description: "Marie, reçu par Enfant de Dieu : « Sache que j’ai toujours été avec toi. Tends la main et sens ma présence. »"
 date: 2022-06-01 06:00:01+00:276
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La Volonté de Dieu trouvera un chemin"
 menu_title: ""
-description: "La Volonté de Dieu trouvera un chemin"
+description: "Seretta Kem, reçu par Al Fike : « En effet, ces deux instruments ont essuyé un léger revers dans leurs intentions de rendre service au monde. »"
 date: 2023-09-01 06:00:01+00:12
 draft: False
 hidden: True

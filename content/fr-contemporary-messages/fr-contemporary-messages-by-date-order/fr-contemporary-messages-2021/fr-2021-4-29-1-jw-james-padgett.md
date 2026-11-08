@@ -1,7 +1,7 @@
 ---
 title: "Une ampoule dans une pièce sombre (2021 Groupe d’étude James Padgett)"
 menu_title: ""
-description: "Une ampoule dans une pièce sombre (2021 Groupe d’étude James Padgett)"
+description: "James Padgett, reçu par Jimbeau Walsh : « J’étais un homme matériel dans un monde matériel et j’avais tous les désirs d’auto-satisfaction et … »"
 date: 2022-06-01 06:00:01+00:1485
 draft: False
 hidden: True

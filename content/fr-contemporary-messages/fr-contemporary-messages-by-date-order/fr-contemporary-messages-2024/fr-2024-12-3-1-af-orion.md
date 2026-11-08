@@ -1,7 +1,7 @@
 ---
 title: "Trois façons importantes de prier"
 menu_title: ""
-description: "Trois façons importantes de prier"
+description: "Orion, reçu par Albert Fike : « Que le souffle de Dieu soit sur vous, âmes bien-aimées, que le désir de votre âme, son aspiration, son ouverture, son … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

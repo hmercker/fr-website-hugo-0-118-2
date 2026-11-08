@@ -1,7 +1,7 @@
 ---
 title: "Cette église sera préservée dans la lumière et l’amour"
 menu_title: ""
-description: "Cette église sera préservée dans la lumière et l’amour"
+description: "Ruth de Wimbledon, reçu par Albert Fike : « Je tiens à vous assurer que cette église sera préservée et qu’elle prospérera, à condition que vous offriez ce … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

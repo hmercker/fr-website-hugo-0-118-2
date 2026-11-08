@@ -1,7 +1,7 @@
 ---
 title: "Premier message de l'esprit de Vicky Forest"
 menu_title: ""
-description: "Premier message de l'esprit de Vicky Forest"
+description: "Vicky Forest, reçu par Al Fike : « Je n’ai plus ce fardeau de la chair et je veux que vous sachiez que tout ce dont nos amis parlaient était vrai lors de … »"
 date: 2022-06-01 06:00:01+00:485
 draft: False
 hidden: True

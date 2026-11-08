@@ -1,7 +1,7 @@
 ---
 title: "Avec foi et confiance, Dieu vous mènera vers des lieux surprenants"
 menu_title: ""
-description: "Avec foi et confiance, Dieu vous mènera vers des lieux surprenants"
+description: "Augustin, reçu par Al Fike : « Ne sous-estimez jamais la puissance de la Volonté de Dieu, mes enfants, car Dieu accomplira Sa Volonté dans ce monde de … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

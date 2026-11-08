@@ -1,7 +1,7 @@
 ---
 title: "L’importance de vos Pensées, Émotions et Sentiments"
 menu_title: ""
-description: "L’importance de vos Pensées, Émotions et Sentiments"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Âmes bien-aimées, je m’appelle Fleur de Lotus et je vous apporte mon amour. Alors que nous sommes assis … »"
 date: 2022-06-01 06:00:01+00:576
 draft: False
 hidden: True

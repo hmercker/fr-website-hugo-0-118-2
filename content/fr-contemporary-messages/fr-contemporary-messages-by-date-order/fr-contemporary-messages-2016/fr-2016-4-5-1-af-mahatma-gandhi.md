@@ -1,7 +1,7 @@
 ---
 title: "La faim spirituelle"
 menu_title: ""
-description: "La faim spirituelle"
+description: "Mahatma Gandhi, reçu par Al Fike : « « Car beaucoup sont mécontents. Nombreux sont ceux qui ne croient pas en Dieu. »"
 date: 2022-06-01 06:00:01+00:191
 draft: False
 hidden: True

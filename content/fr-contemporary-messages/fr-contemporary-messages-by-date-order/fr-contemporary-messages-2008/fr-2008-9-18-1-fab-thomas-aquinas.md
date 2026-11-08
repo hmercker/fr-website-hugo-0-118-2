@@ -1,7 +1,7 @@
 ---
 title: "Seule la vérité nous sauvera"
 menu_title: ""
-description: "Seule la vérité nous sauvera"
+description: "Thomas d'Aquin, reçu par FAB : « Je réside maintenant dans les Cieux Célestes. Je fus un chercheur de vérité sur terre, et cela m'a suivi ici. »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

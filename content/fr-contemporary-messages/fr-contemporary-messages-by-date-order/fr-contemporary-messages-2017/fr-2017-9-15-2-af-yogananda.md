@@ -1,7 +1,7 @@
 ---
 title: "Apporter l’éveil dans d’autres régions du monde"
 menu_title: ""
-description: "Apporter l’éveil dans d’autres régions du monde"
+description: "Yogananda, reçu par Al Fike : « Vous vivez dans un environnement très protégé, un pays doté de vastes étendues où la population est, dans l’ensemble, bien … »"
 date: 2026-10-28 06:00:01+00:24
 draft: False
 hidden: True

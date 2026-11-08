@@ -1,7 +1,7 @@
 ---
 title: "Puissiez-vous tenir compte de l'appel"
 menu_title: ""
-description: "Puissiez-vous tenir compte de l'appel"
+description: "St Matthieu, reçu par Al Fike : « Le printemps commence à poindre, n’est-ce pas ? Après la longue neige de l’hiver, il y a de la chaleur et de la bonté … »"
 date: 2022-06-01 06:00:01+00:673
 draft: False
 hidden: True

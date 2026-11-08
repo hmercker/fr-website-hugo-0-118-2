@@ -1,7 +1,7 @@
 ---
 title: "Perry est très heureux de dire à M. Padgett qu’il prie le Père avec toute la nostalgie de son âme pour un accroissement de Son Amour, et qu’il sera bientôt dans la troisième sphère"
 menu_title: ""
-description: "Perry est très heureux de dire à M. Padgett qu’il prie le Père avec toute la nostalgie de son âme pour un accroissement de Son Amour, et qu’il sera bientôt dans la troisième sphère"
+description: "Ross Perry, reçu par James Padgett : « Je sais que vous êtes très concerné par les messages supérieurs et que vous voulez consacrer votre temps à les … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

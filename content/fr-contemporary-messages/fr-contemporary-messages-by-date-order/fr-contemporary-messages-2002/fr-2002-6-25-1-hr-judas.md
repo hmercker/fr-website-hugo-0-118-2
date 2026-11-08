@@ -1,7 +1,7 @@
 ---
 title: "La gueule de bois spirituelle"
 menu_title: ""
-description: "La gueule de bois spirituelle"
+description: "Judas, reçu par H : « Pourquoi ne t’assieds tu pas pour écrire ce que tu as reçu en expliquant la situation dans laquelle tu te trouvais, nous verrons … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

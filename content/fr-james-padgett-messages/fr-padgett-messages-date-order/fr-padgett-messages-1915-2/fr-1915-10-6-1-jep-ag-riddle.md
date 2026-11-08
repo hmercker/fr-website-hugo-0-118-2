@@ -1,7 +1,7 @@
 ---
 title: "L’ancien partenaire de M. Padgett dit que lui et le Dr Stone ont des idées correctes sur la vérité spirituelle"
 menu_title: ""
-description: "L’ancien partenaire de M. Padgett dit que lui et le Dr Stone ont des idées correctes sur la vérité spirituelle"
+description: "Albert Riddle, reçu par James Padgett : « J’ai écouté ce soir la conversation entre vous et votre ami (Dr Stone), et je dois dire que vous avez tous deux … »"
 date: 2022-06-01 06:00:01+00:299
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Chaque voyage commence par un premier pas"
 menu_title: ""
-description: "Chaque voyage commence par un premier pas"
+description: "Jude, le frère de Jésus, reçu par Jimbeau Walsh : « Que la lumière de Dieu soit sur vous, qu’elle illumine vos âmes afin que vous puissiez porter votre … »"
 date: 2022-06-01 06:00:01+00:1742
 draft: False
 hidden: True

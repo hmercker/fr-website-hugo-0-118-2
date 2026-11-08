@@ -1,7 +1,7 @@
 ---
 title: "Qui et qu’est ce que Dieu ?"
 menu_title: ""
-description: "Qui et qu’est ce que Dieu ?"
+description: "Professeur Salyards, reçu par James Padgett : « Je ne vous ai pas écrit depuis longtemps et j’aimerais vous parler de certaines vérités que j’ai apprises … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

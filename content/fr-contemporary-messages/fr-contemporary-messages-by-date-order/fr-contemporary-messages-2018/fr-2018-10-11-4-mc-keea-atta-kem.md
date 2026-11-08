@@ -1,7 +1,7 @@
 ---
 title: "Compassion pour soi et pour les autres pendant l'éveil de l'âme"
 menu_title: ""
-description: "Compassion pour soi et pour les autres pendant l'éveil de l'âme"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Mes chéris, s’il vous plaît, ne soyez pas durs envers vous-mêmes. Notre bien-aimé Augustin a communiqué hier … »"
 date: 2022-06-01 06:00:01+00:512
 draft: False
 hidden: True

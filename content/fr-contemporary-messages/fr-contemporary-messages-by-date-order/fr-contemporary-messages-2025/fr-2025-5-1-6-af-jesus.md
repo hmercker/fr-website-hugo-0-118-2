@@ -1,7 +1,7 @@
 ---
 title: "Votre lumière attire les anges vers vous, favorisant votre progrès et votre développement"
 menu_title: ""
-description: "Votre lumière attire les anges vers vous, favorisant votre progrès et votre développement"
+description: "Jésus, reçu par Albert Fike : « Tout cela vient parce que vous avez fait un effort sincère pour être avec Dieu et que vous avez appliqué la Vérité de Son … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

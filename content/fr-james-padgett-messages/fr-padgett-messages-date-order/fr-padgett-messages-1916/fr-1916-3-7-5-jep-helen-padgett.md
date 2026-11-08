@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit qu’elle voit Carlisle et Davis et qu’elle essaie de les aider tous les deux à venir à la lumière"
 menu_title: ""
-description: "Hélène écrit qu’elle voit Carlisle et Davis et qu’elle essaie de les aider tous les deux à venir à la lumière"
+description: "Hélène Padgett, reçu par James Padgett : « J’ai plutôt apprécié la dernière lettre car elle m’a montré que les liens d’amitié terrestres survivent encore … »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

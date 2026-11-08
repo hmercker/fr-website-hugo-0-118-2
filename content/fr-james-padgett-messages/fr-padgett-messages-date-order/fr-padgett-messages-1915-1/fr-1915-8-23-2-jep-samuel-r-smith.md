@@ -1,7 +1,7 @@
 ---
 title: "Un jour, M. Padgett a appelé un vieil ami « un homme à l’esprit lourd » ; il est revenu pour lui parler de l’aide merveilleuse qu’il a reçue de sa bande d’aides spirituels"
 menu_title: ""
-description: "Un jour, M. Padgett a appelé un vieil ami « un homme à l’esprit lourd » ; il est revenu pour lui parler de l’aide merveilleuse qu’il a reçue de sa bande d’aides spirituels"
+description: "Samuel R Smith, reçu par James Padgett : « Depuis la dernière fois que je vous ai écrit, j’ai vécu une expérience formidable et le résultat est que je … »"
 date: 2022-06-01 06:00:01+00:207
 draft: False
 hidden: True

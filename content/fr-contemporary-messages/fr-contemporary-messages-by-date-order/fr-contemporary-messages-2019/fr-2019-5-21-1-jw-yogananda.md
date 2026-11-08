@@ -1,7 +1,7 @@
 ---
 title: "La porte de la lumière passe par le cœur"
 menu_title: ""
-description: "La porte de la lumière passe par le cœur"
+description: "Yogananda, reçu par Jimbeau Walsh : « Vous ne pouvez pas imaginer la joie de mon cœur de voir un tel rassemblement d'âmes s'ouvrant à l'Amour de Dieu. »"
 date: 2022-06-01 06:00:01+00:733
 draft: False
 hidden: True

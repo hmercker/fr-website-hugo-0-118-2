@@ -1,7 +1,7 @@
 ---
 title: "Exprime sa gratitude pour tout ce qui a été accompli"
 menu_title: ""
-description: "Exprime sa gratitude pour tout ce qui a été accompli"
+description: "Seretta Kem, reçu par Al Fike : « Mes amis, je m’appelle Seretta Kem. Je souhaite vous parler du travail que vous avez accompli ensemble. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

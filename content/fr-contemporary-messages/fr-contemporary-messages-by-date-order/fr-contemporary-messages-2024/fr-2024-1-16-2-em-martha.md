@@ -1,7 +1,7 @@
 ---
 title: "Comme vos âmes sont exquises"
 menu_title: ""
-description: "Comme vos âmes sont exquises"
+description: "Martha, reçu par Elizabeth Mack : « Vous êtes des âmes si exquises. Si vous pouviez voir la lumière, vous ne remettriez rien en question. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

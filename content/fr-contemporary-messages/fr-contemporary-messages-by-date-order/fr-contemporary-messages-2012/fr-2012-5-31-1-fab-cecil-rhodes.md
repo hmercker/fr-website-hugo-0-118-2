@@ -1,7 +1,7 @@
 ---
 title: "Confirmation d’un bâtisseur d’empire"
 menu_title: ""
-description: "Confirmation d’un bâtisseur d’empire"
+description: "Cecil Rhodes, reçu par FAB : « Tout d’abord, laissez-moi dire que vous m’avez canalisé correctement. J’ai adopté un point de vue très différent ici, où … »"
 date: 2022-06-01 06:00:01+00:264
 draft: False
 hidden: True

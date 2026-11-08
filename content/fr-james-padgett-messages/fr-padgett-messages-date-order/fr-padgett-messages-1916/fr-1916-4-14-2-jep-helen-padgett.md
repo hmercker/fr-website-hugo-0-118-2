@@ -1,7 +1,7 @@
 ---
 title: "Hélène dit que Mlle Barton est maintenant avec la mère de M. Padgett, qui lui explique le Grand Amour du Père"
 menu_title: ""
-description: "Hélène dit que Mlle Barton est maintenant avec la mère de M. Padgett, qui lui explique le Grand Amour du Père"
+description: "Hélène Padgett, reçu par James Padgett : « Mais il leur a dit qu’ils ne seraient pas autorisés à écrire. Eh bien, je lui ai dit et il est heureux, et il … »"
 date: 2022-06-01 06:00:01+00:201
 draft: False
 hidden: True

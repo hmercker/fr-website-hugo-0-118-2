@@ -1,7 +1,7 @@
 ---
 title: "L'orientation continue"
 menu_title: ""
-description: "L'orientation continue"
+description: "Augustin, reçu par Albert Fike : « Il est peu probable qu’il (José) se joigne à vous en raison de la date tardive. Nous contribuerons à faciliter cela. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

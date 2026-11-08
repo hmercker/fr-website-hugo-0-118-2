@@ -1,7 +1,7 @@
 ---
 title: "L'intégration et le développement se poursuivent"
 menu_title: ""
-description: "L'intégration et le développement se poursuivent"
+description: "Seretta Kem, reçu par Al Fike : « Il est bon que vous vous réunissiez de cette façon avec constance et avec un sens du but et du désir dans votre âme et … »"
 date: 2022-06-01 06:00:01+00:1667
 draft: False
 hidden: True

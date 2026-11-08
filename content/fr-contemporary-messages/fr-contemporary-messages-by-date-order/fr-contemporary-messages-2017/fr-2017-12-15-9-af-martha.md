@@ -1,7 +1,7 @@
 ---
 title: "Un nouveau départ"
 menu_title: ""
-description: "Un nouveau départ"
+description: "Martha, reçu par Al Fike : « Moi aussi, j'ai assisté aux miracles de vos âmes qui grandissent dans la Lumière et l'Amour. »"
 date: 2022-06-01 06:00:01+00:284
 draft: False
 hidden: True

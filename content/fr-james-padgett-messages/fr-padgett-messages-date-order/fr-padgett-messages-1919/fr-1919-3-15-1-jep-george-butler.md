@@ -1,7 +1,7 @@
 ---
 title: "George Butler écrit sur sa sortie des ténèbres et sa progession vers la lumière avec l’aide de M. Padgett"
 menu_title: ""
-description: "George Butler écrit sur sa sortie des ténèbres et sa progression vers la lumière avec l’aide de M. Padgett"
+description: "George Butler, reçu par James Padgett : « J’aimerais écrire quelques lignes ce soir, si vous êtes d’accord. Il y a longtemps, je ne vous ai pas écrit pour … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Une perspective spirituelle sur les choix alimentaires"
 menu_title: ""
-description: "Une perspective spirituelle sur les choix alimentaires"
+description: "Seretta Kem, reçu par Al Fike : « Vous avez eu des discussions sur le régime alimentaire, et j’aimerais compléter cette discussion dans l’espoir de … »"
 date: 2022-06-01 06:00:01+00:351
 draft: False
 hidden: True

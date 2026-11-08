@@ -1,7 +1,7 @@
 ---
 title: "Il y a un pouvoir à ce don de perspicacité"
 menu_title: ""
-description: "Il y a un pouvoir à ce don de perspicacité"
+description: "St Étienne, reçu par Al Fike : « Vous me connaissez, dans la Bible, sous le nom de Saint Étienne. Il y a beaucoup de changements dans votre monde et dans … »"
 date: 2022-06-01 06:00:01+00:676
 draft: False
 hidden: True

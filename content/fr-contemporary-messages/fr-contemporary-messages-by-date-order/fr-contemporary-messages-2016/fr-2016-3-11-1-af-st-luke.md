@@ -1,7 +1,7 @@
 ---
 title: "Inscrustations de l’Âme"
 menu_title: ""
-description: "Inscrustations de l’Âme"
+description: "St Luc, reçu par Al Fike : « Elle presse contre cette coquille, ce durcissement qui est causé par les expériences de votre vie et elle crée des fissures … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

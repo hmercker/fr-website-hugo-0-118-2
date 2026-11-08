@@ -1,7 +1,7 @@
 ---
 title: "Connaissance de la vérité"
 menu_title: ""
-description: "Connaissance de la vérité"
+description: "Martin Luther, reçu par Helge Mercker : « Grâce aux bénédictions de la connaissance intuitive vient l’expression de ce qui est en plus grand alignement … »"
 date: 2022-06-01 06:00:01+00:1105
 draft: False
 hidden: True

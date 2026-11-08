@@ -1,7 +1,7 @@
 ---
 title: "Le mental crée l'agitation mais l'Amour Divin est la clé de l'harmonie"
 menu_title: ""
-description: "Le mental crée l'agitation mais l'Amour Divin est la clé de l'harmonie"
+description: "Augustin, reçu par Maureen Cardoso : « Vos prières sont entendues et elles parviennent à Dieu dans leur sincérité. Sache, mon cher fils, que ta prière … »"
 date: 2022-06-01 06:00:01+00:650
 draft: False
 hidden: True

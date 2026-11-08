@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin apporte des surprises"
 menu_title: ""
-description: "L’Amour Divin apporte des surprises"
+description: "Goldie, reçu par Al Fike : « Et beaucoup de surprises sont à venir, mes amis. Des surprises inattendues, des surprises pleines de changements pour chacun … »"
 date: 2022-06-01 06:00:01+00:257
 draft: False
 hidden: True

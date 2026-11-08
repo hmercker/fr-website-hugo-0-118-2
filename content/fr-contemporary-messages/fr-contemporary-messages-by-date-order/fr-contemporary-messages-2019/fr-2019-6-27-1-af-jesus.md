@@ -1,7 +1,7 @@
 ---
 title: "Connaître les subtilités de votre âme dans votre travail de canal d’amour"
 menu_title: ""
-description: "Connaître les subtilités de votre âme dans votre travail de canal d’amour"
+description: "Jésus, reçu par Al Fike : « Vous êtes vraiment bénis dans vos âmes et ces bénédictions qui résident dans vos âmes, cet Amour de l’Essence de Dieu qui … »"
 date: 2022-06-01 06:00:01+00:758
 draft: False
 hidden: True

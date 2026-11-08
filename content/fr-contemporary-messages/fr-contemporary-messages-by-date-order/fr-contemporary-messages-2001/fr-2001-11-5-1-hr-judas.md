@@ -1,7 +1,7 @@
 ---
 title: "Après la révolte des contribuables de 6 AP. J.-C."
 menu_title: ""
-description: "Après la révolte des contribuables de 6 AP. J.-C."
+description: "Judas, reçu par H : « C’est merveilleux ce que M t’a écrit ! C’est une réprimande méritée. »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

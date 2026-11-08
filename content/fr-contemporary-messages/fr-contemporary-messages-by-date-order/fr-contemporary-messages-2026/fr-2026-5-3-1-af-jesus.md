@@ -1,7 +1,7 @@
 ---
 title: "La porte de l’Amour de Dieu vous est ouverte"
 menu_title: ""
-description: "La porte de l’Amour de Dieu vous est ouverte"
+description: "Jésus, reçu par Al Fike : « Je continue à œuvrer avec lui et à travers lui, comme je le fais avec beaucoup d’autres ; nous ne gaspillons pas nos instants … »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

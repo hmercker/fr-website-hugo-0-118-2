@@ -1,7 +1,7 @@
 ---
 title: "Bien qu’Elizabeth Barret Browning soit un esprit brillant et heureux, elle n’a jamais vu des esprits aussi brillants que ceux qui entourent M. Padgett lorsqu’il reçoit ces communications"
 menu_title: ""
-description: "Bien qu’Elizabeth Barret Browning soit un esprit brillant et heureux, elle n’a jamais vu des esprits aussi brillants que ceux qui entourent M. Padgett lorsqu’il reçoit ces communications"
+description: "Elizabeth Barret Browning, reçu par James Padgett : « Permettez-moi de dire un mot. J’ai écouté le dernier message qui vous a été écrit (Saint Jean) et si … »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

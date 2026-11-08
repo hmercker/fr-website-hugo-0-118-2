@@ -1,7 +1,7 @@
 ---
 title: "Franchir le seuil"
 menu_title: ""
-description: "Franchir le seuil"
+description: "Augustin, reçu par Al Fike : « La puissance de l’Amour de Dieu est votre grande force et votre alliée. C’est ce qui donnera l’élan et le mouvement à vos … »"
 date: 2022-06-01 06:00:01+00:1432
 draft: False
 hidden: True

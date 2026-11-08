@@ -1,7 +1,7 @@
 ---
 title: "Soyez Bénis"
 menu_title: ""
-description: "Soyez Bénis"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Heureux êtes-vous de prier pour l’Amour de Dieu. Heureux êtes-vous de pardonner à ceux qui vous ont offensé. »"
 date: 2022-06-01 06:00:01+00:1278
 draft: False
 hidden: True

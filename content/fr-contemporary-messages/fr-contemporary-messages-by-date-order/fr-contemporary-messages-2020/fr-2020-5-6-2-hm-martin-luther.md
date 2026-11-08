@@ -1,7 +1,7 @@
 ---
 title: "Encouragement"
 menu_title: ""
-description: "Encouragement"
+description: "Martin Luther, reçu par Helge Mercker : « Je te salue en cette heure de prière et de communion avec notre Père, ce temps de réflexion sur des sujets … »"
 date: 2022-06-01 06:00:01+00:1091
 draft: False
 hidden: True

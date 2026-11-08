@@ -1,7 +1,7 @@
 ---
 title: "Le message de Noël reconnaît la mission de Jésus"
 menu_title: ""
-description: "Le message de Noël reconnaît la mission de Jésus"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « En effet, nous reconnaissons le Maître comme celui qui nous conduit vers les royaumes supérieurs du Royaume … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon 4 : L’amour trouvera un chemin dans la conscience de l’humanité"
 menu_title: ""
-description: "Leçon 4 : L’amour trouvera un chemin dans la conscience de l’humanité"
+description: "Jésus, reçu par Al Fike : « Il y en a beaucoup dans le monde qui sont désemparés, déprimés et perdus, qui ne peuvent pas voir leur chemin pour sortir de … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

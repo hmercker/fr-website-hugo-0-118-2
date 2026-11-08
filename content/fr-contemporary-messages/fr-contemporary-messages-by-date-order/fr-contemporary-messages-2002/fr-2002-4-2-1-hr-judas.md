@@ -1,7 +1,7 @@
 ---
 title: "La guérison du lépreux"
 menu_title: ""
-description: "La guérison du lépreux"
+description: "Judas, reçu par H : « Alors qu’il (Jésus) était dans l’une des villes, il rencontra un homme couvert de la lèpre. »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Montrez-leur le chemin avec vérité et un cœur ouvert"
 menu_title: ""
-description: "Montrez-leur le chemin avec vérité et un cœur ouvert"
+description: "Georges Washington, reçu par Jimbeau Walsh : « J'avais d'ailleurs prévenu mon frère l'autre jour de ma venue. Cela fait bien des années que je ne me suis … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

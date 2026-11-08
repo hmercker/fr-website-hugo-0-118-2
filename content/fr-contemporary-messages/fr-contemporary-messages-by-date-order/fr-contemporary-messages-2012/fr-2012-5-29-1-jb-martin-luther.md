@@ -1,7 +1,7 @@
 ---
 title: "Continuez à tendre la main"
 menu_title: ""
-description: "Continuez à tendre la main"
+description: "Martin Luther, reçu par Jospeh B. : « Je souhaite seulement dire que mes prières sont avec vous tous qui participez à cette journée spéciale de prière  … »"
 date: 2022-06-01 06:00:01+00:260
 draft: False
 hidden: True

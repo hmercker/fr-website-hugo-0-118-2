@@ -1,7 +1,7 @@
 ---
 title: "Jésus – Le pouvoir merveilleux qui pourrait venir vers M. Padgett s’il avait seulement la Foi"
 menu_title: ""
-description: "Jésus – Le pouvoir merveilleux qui pourrait venir vers M. Padgett s’il avait seulement la Foi"
+description: "Jésus, reçu par James Padgett : « Jean vous a vraiment parlé de la foi que vous devez chercher à obtenir, et que vous pouvez obtenir si, toutefois, vous … »"
 date: 2022-06-01 06:00:01+00:273
 draft: False
 hidden: True

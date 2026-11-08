@@ -1,7 +1,7 @@
 ---
 title: "Évolution"
 menu_title: ""
-description: "Évolution"
+description: "Prolotheos, reçu par Valdir Soares : « Prolotheos : « L’évolution est un moyen par lequel les Dieux « impriment leur dessin » sur la création … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Sentir l’Amour"
 menu_title: ""
-description: "Sentir l’Amour"
+description: "Keea Atta Kem, reçu par Al Fike : « Bénédictions à vous, âmes bien-aimées. Ce cher instrument a été béni par une profonde intuition et il a traversé sa … »"
 date: 2022-06-01 06:00:01+00:637
 draft: False
 hidden: True

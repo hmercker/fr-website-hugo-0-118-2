@@ -1,7 +1,7 @@
 ---
 title: "Lâcher prise sur les attentes"
 menu_title: ""
-description: "Lâcher prise sur les attentes"
+description: "Augustin, reçu par Al Fike : « Je souhaite parler de ce que signifie être un canal d'Amour dans le monde. Vous avez entendu cette âme bien-aimée venue de … »"
 date: 2022-06-01 06:00:01+00:243
 draft: False
 hidden: True

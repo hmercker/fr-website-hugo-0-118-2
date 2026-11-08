@@ -1,7 +1,7 @@
 ---
 title: "Prière continue"
 menu_title: ""
-description: "Prière continue"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Prier est notre façon d'ÊTRE, notre façon de nous comporter. Ce n'est pas une action distincte de ce que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

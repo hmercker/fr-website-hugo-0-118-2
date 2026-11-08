@@ -1,7 +1,7 @@
 ---
 title: "Nombreuses âmes se réunissent pour recevoir les bénédictions de Dieu et de Jésus"
 menu_title: ""
-description: "Nombreuses âmes se réunissent pour recevoir les bénédictions de Dieu et de Jésus"
+description: "George Stokes, reçu par Elizabeth Mack : « Chère sœur bien-aimée, je te remercie pour ton amour et pour ta prière au Père. Nous réunissons aujourd’hui de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

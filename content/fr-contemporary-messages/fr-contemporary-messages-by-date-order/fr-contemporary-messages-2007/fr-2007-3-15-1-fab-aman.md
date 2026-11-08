@@ -1,7 +1,7 @@
 ---
 title: "La communication des Premiers Parents avec Dieu"
 menu_title: ""
-description: "La communication des Premiers Parents avec Dieu"
+description: "Aman, reçu par FAB : « Il voulait savoir comment ma partenaire et moi communiquions avec Dieu. Eh bien, comme nous l'avons appris dans le monde spirituel … »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

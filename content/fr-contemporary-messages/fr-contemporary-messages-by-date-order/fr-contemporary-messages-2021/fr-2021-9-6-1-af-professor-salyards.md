@@ -1,7 +1,7 @@
 ---
 title: "Discours de bienvenue, but et engagement"
 menu_title: ""
-description: "Discours de bienvenue, but et engagement"
+description: "Professeur Salyards, reçu par Al Fike : « Quel rassemblement que celui-ci. Bien que vous soyez peu nombreux dans la chair, vos homologues spirituels sont … »"
 date: 2022-06-01 06:00:01+00:1622
 draft: False
 hidden: True

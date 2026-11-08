@@ -1,7 +1,7 @@
 ---
 title: "Souffrances d’un industriel américain"
 menu_title: ""
-description: "Souffrances d’un industriel américain"
+description: "Andrew Carnegie, reçu par FAB : « Fini le sentiment de triomphe sur mes concurrents, fini le sentiment d’exaltation lorsque j’ai conclu une affaire qui … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

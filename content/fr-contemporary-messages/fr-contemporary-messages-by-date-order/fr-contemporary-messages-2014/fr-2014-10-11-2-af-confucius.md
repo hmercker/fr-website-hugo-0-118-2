@@ -1,7 +1,7 @@
 ---
 title: "La différence entre Amour Divin et l’Amour naturel et comment l’obtenir"
 menu_title: ""
-description: "La différence entre Amour Divin et l’Amour naturel et comment l’obtenir"
+description: "Confucius, reçu par Al Fike : « Bienvenue à vous tous, voyageurs, qui avez parcouru une certaine distance pour être ensemble dans l’amour. »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

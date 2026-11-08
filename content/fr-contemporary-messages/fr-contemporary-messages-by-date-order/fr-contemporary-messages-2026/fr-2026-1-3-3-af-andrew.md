@@ -1,7 +1,7 @@
 ---
 title: "Vous ne vacillerez pas si vous vivez en accord avec la Volonté de Dieu"
 menu_title: ""
-description: "Vous ne vacillerez pas si vous vivez en accord avec la Volonté de Dieu"
+description: "André, reçu par Albert Fike : « N’est-il pas merveilleux de voir comment Dieu vous réunit dans des lieux où, il n’y a pas si longtemps, vous n’auriez … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

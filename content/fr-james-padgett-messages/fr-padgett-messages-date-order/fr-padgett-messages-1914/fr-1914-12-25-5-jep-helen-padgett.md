@@ -1,7 +1,7 @@
 ---
 title: "Et Hélène aussi"
 menu_title: ""
-description: "Et Hélène aussi"
+description: "Hélène Padgett, reçu par James Padgett : « Alors laisse-moi te dire bonne nuit, et que je t’aime de tout mon cœur et de toute mon âme. »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

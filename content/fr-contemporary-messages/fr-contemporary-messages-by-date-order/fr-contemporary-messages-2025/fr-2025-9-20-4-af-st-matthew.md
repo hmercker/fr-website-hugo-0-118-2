@@ -1,7 +1,7 @@
 ---
 title: "La foi doit vous porter"
 menu_title: ""
-description: "La foi doit vous porter"
+description: "Jésus, reçu par Albert Fike : « Un enfant naît dans la foi. Cette foi lui permet de faire confiance à ses parents pour son éducation et son bien-être. »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

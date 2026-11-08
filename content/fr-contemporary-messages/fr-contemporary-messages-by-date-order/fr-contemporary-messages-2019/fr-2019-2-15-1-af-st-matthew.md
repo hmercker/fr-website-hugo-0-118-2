@@ -1,7 +1,7 @@
 ---
 title: "L'expérience de la Pentecôte"
 menu_title: ""
-description: "L'expérience de la Pentecôte"
+description: "St Matthieu, reçu par Al Fike : « Et en effet, vous avez beaucoup de questions. Vous vous interrogez sur de nombreuses choses, car intellectuellement vous … »"
 date: 2022-06-01 06:00:01+00:644
 draft: False
 hidden: True

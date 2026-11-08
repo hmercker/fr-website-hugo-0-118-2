@@ -1,7 +1,7 @@
 ---
 title: "L'éveil de différents aspects de notre âme influence la communication avec les anges"
 menu_title: ""
-description: "L'éveil de différents aspects de notre âme influence la communication avec les anges"
+description: "Seretta Kem, reçu par Albert Fike : « En effet, les structures de l’esprit, telles qu’elles ont été formulées et développées au fil des années d’évolution … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

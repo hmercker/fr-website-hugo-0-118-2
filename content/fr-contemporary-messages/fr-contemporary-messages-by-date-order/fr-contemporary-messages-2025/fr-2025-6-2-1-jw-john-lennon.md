@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu filtre la négativité"
 menu_title: ""
-description: "L'Amour de Dieu filtre la négativité"
+description: "John Lennon, reçu par reçu par Jimbeau Walsh : « J’ai tapoté l’épaule de mon frère, à sa grande surprise, et je lui ai dit que j’avais contribué à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

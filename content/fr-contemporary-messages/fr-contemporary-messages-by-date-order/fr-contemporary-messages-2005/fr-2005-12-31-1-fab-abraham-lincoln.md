@@ -1,7 +1,7 @@
 ---
 title: "Le véritable esprit du Pardon"
 menu_title: ""
-description: "Le véritable esprit du Pardon"
+description: "Abraham Lincoln, reçu par FAB : « Dans mon cœur, je n'ai pas éprouvé de haine. La guerre m'a horrifié, c'est certain. »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

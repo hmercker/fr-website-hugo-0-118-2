@@ -1,7 +1,7 @@
 ---
 title: "Joie infinie, Amour infini"
 menu_title: ""
-description: "Joie infinie, Amour infini"
+description: "Goldie, reçu par Maureen Cardoso : « C'est une expression d'expansion, car la véritable joie ne connaît pas de limites, tout comme l'amour pur est sans … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

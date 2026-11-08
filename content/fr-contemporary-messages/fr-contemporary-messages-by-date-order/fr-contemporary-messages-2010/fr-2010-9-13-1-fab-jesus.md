@@ -1,7 +1,7 @@
 ---
 title: "Le spirituel et le matériel - 2"
 menu_title: ""
-description: "Le spirituel et le matériel - 2"
+description: "Jésus, reçu par FAB : « Je vois votre préoccupation, alors laissez-moi y répondre. J'ai dit : « Mon royaume n'est pas de ce monde ». »"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True

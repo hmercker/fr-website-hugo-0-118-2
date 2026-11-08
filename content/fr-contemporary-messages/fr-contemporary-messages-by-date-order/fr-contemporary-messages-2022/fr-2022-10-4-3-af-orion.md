@@ -1,7 +1,7 @@
 ---
 title: "Les ressources de nos âmes aident à ouvrir les portes de l'univers"
 menu_title: ""
-description: "Les ressources de nos âmes aident à ouvrir les portes de l'univers"
+description: "Orion, reçu par Al Fike : « Je vous ai escortés jusqu’à mon monde natal. Chacun de vous a voyagé, et vous apportez votre lumière avec vous, vos âmes … »"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True

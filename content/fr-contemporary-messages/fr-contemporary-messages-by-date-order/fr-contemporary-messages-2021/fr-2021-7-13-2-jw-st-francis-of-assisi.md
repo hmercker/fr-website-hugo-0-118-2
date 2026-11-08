@@ -1,7 +1,7 @@
 ---
 title: "Allez en paix, ne soyez pas troublés"
 menu_title: ""
-description: "Allez en paix, ne soyez pas troublés"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Mes chers frères, je vous dis ceci. Lorsque vous passez du temps en prière auprès de notre Père céleste … »"
 date: 2022-06-01 06:00:01+00:1572
 draft: False
 hidden: True

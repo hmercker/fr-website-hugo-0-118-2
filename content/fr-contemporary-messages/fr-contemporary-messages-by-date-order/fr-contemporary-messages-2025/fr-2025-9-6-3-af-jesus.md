@@ -1,7 +1,7 @@
 ---
 title: "Ce don vous guidera à travers les temps changeants à venir"
 menu_title: ""
-description: "Ce don vous guidera à travers les temps changeants à venir"
+description: "Jésus, reçu par Albert Fike : « (…) Nous vous connaissons bien. Nous connaissons tous vos secrets les plus intimes, toute votre vie qui vous a mené … »"
 date: 2026-05-21 06:00:01+00:01
 draft: False
 hidden: True

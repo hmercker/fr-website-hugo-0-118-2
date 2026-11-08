@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin est le chemin le plus direct vers Dieu"
 menu_title: ""
-description: "L'Amour Divin est le chemin le plus direct vers Dieu"
+description: "Augustin, reçu par Maureen Cardoso : « Ce portail de lumière s’élève jusqu’aux Cieux Célestes permettant aux énergies de guérison de circuler directement … »"
 date: 2022-06-01 06:00:01+00:661
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin harmonise l’âme et le mental dans une nouvelle perception de la réalité"
 menu_title: ""
-description: "L’Amour Divin harmonise l’âme et le mental dans une nouvelle perception de la réalité"
+description: "St Matthieu, reçu par Al Fike : « Là où il y a ce désir, ce désir, nous sommes capables de venir et d’être avec vous parce que vous invoquez la Loi de … »"
 date: 2022-06-01 06:00:01+00:415
 draft: False
 hidden: True

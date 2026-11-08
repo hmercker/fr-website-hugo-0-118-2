@@ -1,7 +1,7 @@
 ---
 title: "Soyez pleinement avec Dieu dans vos prières"
 menu_title: ""
-description: "Soyez pleinement avec Dieu dans vos prières"
+description: "Augustin, reçu par Al Fike : « Notre Maître vous a donné une puissante bénédiction. Il apporte son amour pour vous encourager dans votre voyage et dans … »"
 date: 2022-06-01 06:00:01+00:291
 draft: False
 hidden: True

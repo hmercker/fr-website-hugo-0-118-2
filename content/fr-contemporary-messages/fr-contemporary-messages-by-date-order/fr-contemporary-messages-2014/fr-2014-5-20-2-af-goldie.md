@@ -1,7 +1,7 @@
 ---
 title: "Jésus vous veut pour un rayon de soleil"
 menu_title: ""
-description: "Jésus vous veut pour un rayon de soleil"
+description: "Goldie, reçu par Al Fike : « Jésus vous veut pour un rayon de soleil ! Et moi aussi. (Goldie) Et Jésus dit qu’il vous veut pour un rayon de soleil … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

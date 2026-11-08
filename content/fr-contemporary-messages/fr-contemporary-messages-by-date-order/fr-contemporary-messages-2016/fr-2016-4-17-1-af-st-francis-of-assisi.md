@@ -1,7 +1,7 @@
 ---
 title: "La voie simple de l’amour"
 menu_title: ""
-description: "La voie simple de l’amour"
+description: "St François d'Assise, reçu par Al Fike : « Que le grand Amour de Dieu remplisse vos âmes et vous rapproche toujours plus de la grande fontaine d’Amour, de … »"
 date: 2022-06-01 06:00:01+00:197
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Levez vos voiles sur l’océan de l’Amour de Dieu"
 menu_title: ""
-description: "Levez vos voiles sur l’océan de l’Amour de Dieu"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « J’espère que les mots que j’ai reçus et qui ont guidé ma vie et, en fait, celle de beaucoup de personnes … »"
 date: 2022-06-01 06:00:01+00:1339
 draft: False
 hidden: True

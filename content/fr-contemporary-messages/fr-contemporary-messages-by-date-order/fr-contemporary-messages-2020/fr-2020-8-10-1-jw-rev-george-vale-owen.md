@@ -1,7 +1,7 @@
 ---
 title: "Prier pour s'ouvrir à l'Amour du Créateur"
 menu_title: ""
-description: "Prier pour s'ouvrir à l'Amour du Créateur"
+description: "Révérend George Vale Owen, reçu par Jimbeau Walsh : « Certains me connaissent peut-être sous le nom de Rev Owen. Je fus le pasteur d’une petite église en … »"
 date: 2022-06-01 06:00:01+00:1214
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ancrez-vous en Dieu avant de passer dans le monde spirituel"
 menu_title: ""
-description: "Ancrez-vous en Dieu avant de passer dans le monde spirituel"
+description: "Estelle Roberts, reçu par Albert Fike : « Bienvenue dans cette magnifique église, ce petit sanctuaire de lumière au sein d’un monde très agité. »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

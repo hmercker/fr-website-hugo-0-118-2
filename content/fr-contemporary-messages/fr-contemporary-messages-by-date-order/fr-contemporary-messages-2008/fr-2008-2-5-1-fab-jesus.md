@@ -1,7 +1,7 @@
 ---
 title: "Quelle est la vérité sur l'évolution ?"
 menu_title: ""
-description: "Quelle est la vérité sur l'évolution ?"
+description: "Jésus, reçu par FAB : « Vous avez pris conscience que certains remettent en question la théorie de l'évolution. Vous vous demandez : qu'est-ce qui est vrai ? »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

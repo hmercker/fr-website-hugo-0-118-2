@@ -1,7 +1,7 @@
 ---
 title: "3ème Sermon – L’absence de la Vraie Grâce de Dieu dans le Christianisme aujourd’hui"
 menu_title: ""
-description: "3ème Sermon – L’absence de la Vraie Grâce de Dieu dans le Christianisme aujourd’hui"
+description: "Jésus, reçu par Dr Samuels : « Permettez-moi de répéter que le concept Chrétien de la divine trinité est simplement une invention humaine, personne n’est … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

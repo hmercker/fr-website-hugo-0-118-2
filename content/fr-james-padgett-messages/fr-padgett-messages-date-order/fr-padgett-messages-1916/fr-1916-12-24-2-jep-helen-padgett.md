@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le message de Jésus sur les causes de la guerre"
 menu_title: ""
-description: "Hélène commente le message de Jésus sur les causes de la guerre"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as reçu, ce soir, un message vraiment merveilleux de la part du Maître et il suscitera, sans aucun doute … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

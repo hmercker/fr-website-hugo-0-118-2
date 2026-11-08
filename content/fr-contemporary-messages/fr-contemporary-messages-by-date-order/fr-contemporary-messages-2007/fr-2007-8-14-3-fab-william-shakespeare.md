@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - en route pour Londres"
 menu_title: ""
-description: "Shakespeare - en route pour Londres"
+description: "William Shakespeare, reçu par FAB : « Je souhaite évoquer maintenant les circonstances qui m'ont amené à chercher fortune à Londres, alors que j'avais une … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus affirme que M. Padgett reçoit maintenant l’Amour Divin du Père en plus grande abondance"
 menu_title: ""
-description: "Jésus affirme que M. Padgett reçoit maintenant l’Amour Divin du Père en plus grande abondance"
+description: "Jésus, reçu par James Padgett : « Je sais que vous n’avez pas été, ces derniers jours, dans la meilleure condition d’esprit en ce qui concerne vos … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

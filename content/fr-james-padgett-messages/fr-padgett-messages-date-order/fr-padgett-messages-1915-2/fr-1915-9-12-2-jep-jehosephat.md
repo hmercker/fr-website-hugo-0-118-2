@@ -1,7 +1,7 @@
 ---
 title: "Josaphat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre"
 menu_title: ""
-description: "Josaphat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre"
+description: "Josapahat, reçu par James Padgett : « Je fus un personnage de l’Ancien Testament, et je veux dire un mot. Je ne fus pas un homme très religieux lors de ma … »"
 date: 2022-06-01 06:00:01+00:241
 draft: False
 hidden: True

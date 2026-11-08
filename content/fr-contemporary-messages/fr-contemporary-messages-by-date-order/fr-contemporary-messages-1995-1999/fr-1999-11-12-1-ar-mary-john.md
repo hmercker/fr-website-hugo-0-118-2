@@ -1,7 +1,7 @@
 ---
 title: "Sur le manque d’amour de soi de M___"
 menu_title: ""
-description: "Sur le manque d’amour de soi de M___"
+description: "Marie & Jean, reçu par Amada Reza : « Cet Amour est la Substance de l’Âme de Dieu, et lorsqu’Il vient à l’âme qui cherche sincèrement à le recevoir, Il … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

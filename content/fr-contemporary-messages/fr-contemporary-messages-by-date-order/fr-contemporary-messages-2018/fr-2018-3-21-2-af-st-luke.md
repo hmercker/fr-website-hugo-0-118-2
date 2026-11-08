@@ -1,7 +1,7 @@
 ---
 title: "Soyez des guerriers contre l'obscurité"
 menu_title: ""
-description: "Soyez des guerriers contre l'obscurité"
+description: "St Luc, reçu par Al Fike : « Vous restez vigilants face aux forces obscures dans ce monde et vous devez rester vigilants car il y a beaucoup de forces … »"
 date: 2022-06-01 06:00:01+00:370
 draft: False
 hidden: True

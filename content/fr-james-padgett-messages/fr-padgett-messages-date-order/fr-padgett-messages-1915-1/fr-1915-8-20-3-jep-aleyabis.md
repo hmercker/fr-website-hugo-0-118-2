@@ -1,7 +1,7 @@
 ---
 title: "Aleyabis un disciple de Zoroastre a entendu les conversations précédentes et, puisqu’il ne connaît rien au sujet de l’Amour Divin, aimerait apprendre à ce sujet"
 menu_title: ""
-description: "Aleyabis un disciple de Zoroastre a entendu les conversations précédentes et, puisqu’il ne connaît rien au sujet de l’Amour Divin, aimerait apprendre à ce sujet"
+description: "Aleyabis, reçu par James Padgett : « Je ne sais rien de cette Nouvelle Naissance, et bien que je vive dans le monde des esprits depuis longtemps et dans … »"
 date: 2022-06-01 06:00:01+00:205
 draft: False
 hidden: True

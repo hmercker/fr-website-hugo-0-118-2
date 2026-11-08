@@ -1,7 +1,7 @@
 ---
 title: "Prend chacun de nous pour une bénédiction dans le Hall de la Paix"
 menu_title: ""
-description: "Prend chacun de nous pour une bénédiction dans le Hall de la Paix"
+description: "Jésus, reçu par Albert Fike : « Nous venons tous, dans le grand afflux d’Amour. Puissiez-vous ouvrir grand vos âmes, mes bien-aimées, pour recevoir ce don … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

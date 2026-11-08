@@ -1,7 +1,7 @@
 ---
 title: "C'est un chemin béni"
 menu_title: ""
-description: "C'est un chemin béni"
+description: "Jésus, reçu par Al Fike : « Le souffle de Dieu est sur vous, âmes bien-aimées. Son souffle est Amour et Son Amour entre dans votre âme en guérissant vos … »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

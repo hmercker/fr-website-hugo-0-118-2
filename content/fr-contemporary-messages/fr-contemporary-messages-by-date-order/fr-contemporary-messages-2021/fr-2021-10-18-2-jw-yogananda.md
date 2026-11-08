@@ -1,7 +1,7 @@
 ---
 title: "Créer un sanctuaire"
 menu_title: ""
-description: "Créer un sanctuaire"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite poursuivre mon exposé sur la création d’un sanctuaire et si je peux, développer ce sujet. »"
 date: 2022-06-01 06:00:01+00:1682
 draft: False
 hidden: True

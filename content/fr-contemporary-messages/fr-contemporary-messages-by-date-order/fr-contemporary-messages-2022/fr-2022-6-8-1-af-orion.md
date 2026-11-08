@@ -1,7 +1,7 @@
 ---
 title: "Orion est toujours avec nous, pour nous soutenir"
 menu_title: ""
-description: "Orion est toujours avec nous, pour nous soutenir"
+description: "Orion, reçu par Al Fike : « Vos efforts ne sont pas perdus mais continuent à aider à éveiller l’humanité. Chaque âme qui désire être un canal de lumière … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

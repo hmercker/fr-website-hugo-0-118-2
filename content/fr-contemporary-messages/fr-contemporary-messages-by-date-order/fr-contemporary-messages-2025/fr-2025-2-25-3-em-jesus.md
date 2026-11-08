@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour le Cercle de Lumière en ligne"
 menu_title: ""
-description: "Bénédiction pour le Cercle de Lumière en ligne"
+description: "Jésus, reçu par Elisabeth Mack Fike : « L’Amour de Dieu se déverse dans vos âmes et bien d’autres bénédictions descendent maintenant sur vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

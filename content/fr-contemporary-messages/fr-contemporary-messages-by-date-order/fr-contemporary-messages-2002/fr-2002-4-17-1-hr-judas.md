@@ -1,7 +1,7 @@
 ---
 title: "Levez-vous et soyez comptés (3)"
 menu_title: ""
-description: "Levez-vous et soyez comptés (3)"
+description: "Judas, reçu par H : « Voyons, mon cher frère, si nous aurons aujourd’hui plus de chance dans notre entreprise. Un jour dans l’année 28, lorsque Jésus … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

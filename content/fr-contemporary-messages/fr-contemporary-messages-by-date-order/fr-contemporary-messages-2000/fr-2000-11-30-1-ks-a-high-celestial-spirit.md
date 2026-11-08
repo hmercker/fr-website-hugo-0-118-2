@@ -1,7 +1,7 @@
 ---
 title: "Chercher la vérité avec notre cœur"
 menu_title: ""
-description: "Chercher la vérité avec notre cœur"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Nous comprenons que la question de savoir comment être à la fois ouvert et sélectif est une question qui … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

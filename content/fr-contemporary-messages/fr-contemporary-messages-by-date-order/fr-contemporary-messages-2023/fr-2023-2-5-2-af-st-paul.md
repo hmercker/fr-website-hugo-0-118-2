@@ -1,7 +1,7 @@
 ---
 title: "Un message pour tous les Tisserands de Lumière qui se réunissent en prière en ce moment"
 menu_title: ""
-description: "Un message pour tous les Tisserands de Lumière qui se réunissent en prière en ce moment"
+description: "St Paul, reçu par Al Fike : « Le monde a besoin d’être couvert par ce treillis de lumière. Un grand pouvoir en découle. »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

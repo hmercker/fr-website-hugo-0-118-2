@@ -1,7 +1,7 @@
 ---
 title: "Les obstacles à la vie avec Dieu sont en vous"
 menu_title: ""
-description: "Les obstacles à la vie avec Dieu sont en vous"
+description: "Augustin, reçu par Albert Fike : « De toute l’histoire des luttes de l’humanité, vous vivez à une époque où vous êtes assurés que vos besoins matériels … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

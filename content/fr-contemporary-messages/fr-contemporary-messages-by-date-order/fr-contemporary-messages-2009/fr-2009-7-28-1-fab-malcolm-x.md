@@ -1,7 +1,7 @@
 ---
 title: "Semer et récolter pour un leader Afro-Américain"
 menu_title: ""
-description: "Semer et récolter pour un leader Afro-Américain"
+description: "Malcolm X, reçu par FAB : « Je sais que vous êtes perplexe quant à ma remarque, dans mon message du 18 Novembre 2006, selon laquelle « Je savais que … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

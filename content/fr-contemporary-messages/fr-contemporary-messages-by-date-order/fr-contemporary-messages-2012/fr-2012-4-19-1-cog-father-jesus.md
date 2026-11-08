@@ -1,7 +1,7 @@
 ---
 title: "Lire la Bible"
 menu_title: ""
-description: "Lire la Bible"
+description: "Le Père Céleste & Jésus, reçu par Enfant de Dieu : « Ce que tu entends est la Vérité et la Voix de notre Créateur. Aie confiance en cela et continue. »"
 date: 2022-06-01 06:00:01+00:238
 draft: False
 hidden: True

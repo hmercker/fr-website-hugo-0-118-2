@@ -1,7 +1,7 @@
 ---
 title: "Pentecôte"
 menu_title: ""
-description: "Pentecôte"
+description: "Augustin, reçu par Al Fike : « N’y a-t-il pas un jour où Dieu offre à Ses enfants une plus grande plénitude de l’Amour Divin ? »"
 date: 2022-06-01 06:00:01+00:1511
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez"
 menu_title: ""
-description: "Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez"
+description: "Jean Hugues, reçu par Elizabeth Mack : « Comme l’a dit Keea, soyez avec votre Créateur. Les distractions sont nombreuses. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'humanité commence à voir la Vérité"
 menu_title: ""
-description: "L'humanité commence à voir la Vérité"
+description: "Jésus, reçu par Révérend Dave Lampron : « Aujourd'hui, j'aimerais faire un commentaire sur l'excellent travail que vous et d'autres avez fait avancer dans … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

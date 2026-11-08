@@ -1,7 +1,7 @@
 ---
 title: "Soyez la leçon vivante d'Amour et de Lumière"
 menu_title: ""
-description: "Soyez la leçon vivante d'Amour et de Lumière"
+description: "Confucius, reçu par Albert Fike : « Réjouissez-vous, car vous connaissez la clé qui ouvre votre cœur et votre âme aux merveilles que Dieu a créées en … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

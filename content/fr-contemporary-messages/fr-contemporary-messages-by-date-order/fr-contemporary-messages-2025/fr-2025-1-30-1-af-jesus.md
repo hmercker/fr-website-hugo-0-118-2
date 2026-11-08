@@ -1,7 +1,7 @@
 ---
 title: "Souligne l'importance de notre travail pour son ministère"
 menu_title: ""
-description: "Souligne l'importance de notre travail pour son ministère"
+description: "Jésus, reçu par Albert Fike : « Bien que chacun de vous ait ses propres voies et son propre chemin à suivre, la Vérité de l’Amour de Dieu transparaît. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

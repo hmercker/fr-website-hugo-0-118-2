@@ -1,7 +1,7 @@
 ---
 title: "Prier pour la paix"
 menu_title: ""
-description: "Prier pour la paix"
+description: "Jésus, reçu par Kathryn Stokes : « Nous avons toujours beaucoup de choses à dire à nos frères sur terre, plus souvent qu'ils ne sont disposés à entendre … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

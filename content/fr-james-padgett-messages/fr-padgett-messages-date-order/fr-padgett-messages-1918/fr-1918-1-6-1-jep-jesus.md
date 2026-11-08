@@ -1,7 +1,7 @@
 ---
 title: "’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin"
 menu_title: ""
-description: "L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin"
+description: "Jésus, reçu par James Padgett : « Son amour a afflué dans votre âme en grande abondance. Son Esprit Saint a apporté l’Amour en merveilleuse abondance et … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Cercles concentriques d'amour"
 menu_title: ""
-description: "Cercles concentriques d'amour"
+description: "St Jean, reçu par Jimbeau Walsh : « Que rien de moins que la vérité ne soit dit ici, afin qu’il y ait l’harmonie dans le monde, la paix et la foi dans … »"
 date: 2022-06-01 06:00:01+00:1087
 draft: False
 hidden: True

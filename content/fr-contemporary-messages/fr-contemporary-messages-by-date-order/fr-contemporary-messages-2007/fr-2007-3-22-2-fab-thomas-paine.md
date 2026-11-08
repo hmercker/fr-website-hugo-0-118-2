@@ -1,7 +1,7 @@
 ---
 title: "Thomas Paine et la guerre"
 menu_title: ""
-description: "Thomas Paine et la guerre"
+description: "Thomas Paine, reçu par FAB : « Lorsque vous avez reçu ce message, vous avez compris tout ce que je disais, y compris mes intentions. »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

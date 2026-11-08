@@ -1,7 +1,7 @@
 ---
 title: "Un travail important est nécessaire pour rectifier les conditions non harmonieuses"
 menu_title: ""
-description: "Un travail important est nécessaire pour rectifier les conditions non harmonieuses"
+description: "Melchizédek, reçu par Al Fike : « Il y a beaucoup de travail qui doit être fait dans ce monde. Beaucoup de travail pour rectifier les conditions … »"
 date: 2022-06-01 06:00:01+00:898
 draft: False
 hidden: True

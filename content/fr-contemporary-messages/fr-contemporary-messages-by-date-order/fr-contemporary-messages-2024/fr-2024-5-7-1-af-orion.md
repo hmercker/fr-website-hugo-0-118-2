@@ -1,7 +1,7 @@
 ---
 title: "Du temps et de l’absence de temps"
 menu_title: ""
-description: "Du temps et de l’absence de temps"
+description: "Orion, reçu par Albert Fike : « Dieu vous connaît bien au-delà de votre propre connaissance de vous-même. Dieu connaît votre destinée, le voyage que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

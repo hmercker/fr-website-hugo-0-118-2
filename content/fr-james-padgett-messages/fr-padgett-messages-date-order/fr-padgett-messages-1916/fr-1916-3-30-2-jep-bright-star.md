@@ -1,7 +1,7 @@
 ---
 title: "Bright Star est devenue une amie à la suite d’une séance à laquelle M. Padgett a assisté"
 menu_title: ""
-description: "Bright Star est devenue une amie à la suite d’une séance à laquelle M. Padgett a assisté"
+description: "Bright Star, reçu par James Padgett : « Vous êtes surpris de me voir, mais j’ai cette opportunité et je désire juste dire un mot. Je m’intéresse à vous et … »"
 date: 2022-06-01 06:00:01+00:194
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Judy Garland ajoute à son channeling"
 menu_title: ""
-description: "Judy Garland ajoute à son channeling"
+description: "Judy Garland, reçu par FAB : « Vous avez regardé des choses sur Internet à propos de ma vie, et vous avez vu mes deux filles – bénissez-les un million de … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

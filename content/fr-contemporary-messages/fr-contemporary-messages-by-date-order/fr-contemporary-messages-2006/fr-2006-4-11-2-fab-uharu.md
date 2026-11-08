@@ -1,7 +1,7 @@
 ---
 title: "Un point de vue Amérindien sur la vie"
 menu_title: ""
-description: "Un point de vue Amérindien sur la vie"
+description: "Uharu, reçu par FAB : « Nous, les Ohlones, désirons que vous ayez une appréciation approfondie des beautés et de la richesse de l’héritage de la côte … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

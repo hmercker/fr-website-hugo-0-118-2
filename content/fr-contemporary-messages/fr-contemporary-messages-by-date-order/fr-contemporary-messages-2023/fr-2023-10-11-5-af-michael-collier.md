@@ -1,7 +1,7 @@
 ---
 title: "Vos désirs et attentes pour une bénédiction spéciale"
 menu_title: ""
-description: "Vos désirs et attentes pour une bénédiction spéciale"
+description: "Michaël Collier, reçu par Albert Fike : « Mes amis, je m’appelle Michaël Collier. Notre cher instrument s’est quelque peu trompé en pensant que j'étais le … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

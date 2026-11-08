@@ -1,7 +1,7 @@
 ---
 title: "Construire une Église n'est pas chose facile"
 menu_title: ""
-description: "Construire une Église n'est pas chose facile"
+description: "Pierre, reçu par Elizabeth Mack : « Construire une Église n’est pas chose facile, mais vous y parviendrez. L’amour est en vous, votre amour, l’Amour de … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

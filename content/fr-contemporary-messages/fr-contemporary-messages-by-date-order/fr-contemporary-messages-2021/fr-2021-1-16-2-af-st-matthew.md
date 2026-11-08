@@ -1,7 +1,7 @@
 ---
 title: "Travailler ensemble en harmonie"
 menu_title: ""
-description: "Travailler ensemble en harmonie"
+description: "St Matthieu, reçu par Al Fike : « En effet, nous sommes avec vous dans vos entreprises, alors que chacun de vous continue à grandir dans la bénédiction de … »"
 date: 2022-06-01 06:00:01+00:1384
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La volonté de travailler ensemble est très importante"
 menu_title: ""
-description: "La volonté de travailler ensemble est très importante"
+description: "Orion, reçu par Al Fike : « Bénédictions à vous, âmes bien-aimées. Il y a beaucoup d’agences dans l’univers qui travaillent ensemble pour aider à la … »"
 date: 2023-09-01 06:00:01+00:110
 draft: False
 hidden: True

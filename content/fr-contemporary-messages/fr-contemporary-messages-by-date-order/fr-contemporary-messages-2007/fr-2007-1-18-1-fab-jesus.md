@@ -1,7 +1,7 @@
 ---
 title: "Les plaisirs physiques et la spiritualité"
 menu_title: ""
-description: "Les plaisirs physiques et la spiritualité"
+description: "Jésus, reçu par FAB : « Laissez-moi aborder ce débat qui est présent depuis longtemps dans votre esprit. J'ai dit par l'intermédiaire de M. »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

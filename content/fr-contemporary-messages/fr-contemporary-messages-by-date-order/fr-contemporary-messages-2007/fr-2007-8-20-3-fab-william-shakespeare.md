@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - quelques faits divers"
 menu_title: ""
-description: "Shakespeare - quelques faits divers"
+description: "William Shakespeare, reçu par FAB : « Lorsque ma mère m'a recommandé à Beauchamps Court pour être maître d'école, elle a recommandé Sir Fulke Greville à … »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

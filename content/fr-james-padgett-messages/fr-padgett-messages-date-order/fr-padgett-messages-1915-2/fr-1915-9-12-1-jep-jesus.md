@@ -1,7 +1,7 @@
 ---
 title: "Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes"
 menu_title: ""
-description: "Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous ce soir et j’ai vu que l’Esprit remplissait votre cœur de l’Amour Divin du Père et que vous avez … »"
 date: 2022-06-01 06:00:01+00:240
 draft: False
 hidden: True

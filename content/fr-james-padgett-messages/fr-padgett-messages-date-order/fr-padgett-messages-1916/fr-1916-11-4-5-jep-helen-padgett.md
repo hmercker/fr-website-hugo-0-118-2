@@ -1,7 +1,7 @@
 ---
 title: "Mme Padgett confirme la déclaration faite par d’autres que M. Morgan a l’Amour Divin du Père et également l’amour fraternel"
 menu_title: ""
-description: "Mme Padgett confirme la déclaration faite par d’autres que M. Morgan a l’Amour Divin du Père et également l’amour fraternel"
+description: "Hélène Padgett, reçu par James Padgett : « Morgan ait appelé ce soir, car l’assurance qu’il a reçue de Jean et des autres esprits lui fera du bien, et … »"
 date: 2022-06-01 06:00:01+00:321
 draft: False
 hidden: True

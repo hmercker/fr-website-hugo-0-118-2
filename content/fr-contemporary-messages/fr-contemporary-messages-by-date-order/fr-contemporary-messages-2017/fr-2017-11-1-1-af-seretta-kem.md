@@ -1,7 +1,7 @@
 ---
 title: "Les différents ajustements effectués dans votre corps"
 menu_title: ""
-description: "Les différents ajustements effectués dans votre corps"
+description: "Seretta Kem, reçu par Al Fike : « Nous continuons à faire divers ajustements à l'intérieur de vos corps en apportant différents produits chimiques dans … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

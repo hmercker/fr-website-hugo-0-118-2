@@ -1,7 +1,7 @@
 ---
 title: "Transformation"
 menu_title: ""
-description: "Transformation"
+description: "Orion, reçu par Al Fike : « Je vous salue, âmes bien-aimées. Vous avez trouvé une unité ensemble, ce qui est extrêmement important, afin d’obtenir … »"
 date: 2023-09-01 06:00:01+00:44
 draft: False
 hidden: True

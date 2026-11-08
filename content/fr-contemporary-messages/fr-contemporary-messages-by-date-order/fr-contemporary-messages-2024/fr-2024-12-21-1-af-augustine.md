@@ -1,7 +1,7 @@
 ---
 title: "Votre capacité à recevoir des conseils s'approfondit"
 menu_title: ""
-description: "Votre capacité à recevoir des conseils s'approfondit"
+description: "Augustin, reçu par Albert Fike : « Continuez à marcher sur le chemin désigné, belles âmes de service qui s’efforcent d’apporter la Vérité de l’Amour Divin … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

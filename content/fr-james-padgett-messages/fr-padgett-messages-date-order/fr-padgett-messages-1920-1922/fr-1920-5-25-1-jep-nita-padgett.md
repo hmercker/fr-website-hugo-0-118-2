@@ -1,7 +1,7 @@
 ---
 title: "Nita décrit ses expériences lors de passage dans le monde des esprits"
 menu_title: ""
-description: "Nita décrit ses expériences lors de passage dans le monde des esprits"
+description: "Nita Padgett, reçu par James Padgett : « Il y a longtemps que tu ne m’avais pas laissée écrire et j’avais tellement hâte de te parler de mes progrès et de … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

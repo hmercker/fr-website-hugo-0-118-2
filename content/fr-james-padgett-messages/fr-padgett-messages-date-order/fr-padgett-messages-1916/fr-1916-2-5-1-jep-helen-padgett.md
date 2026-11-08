@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett écrit que bien que le Maître soit anxieux d’écrire ce soir, il n’était pas mécontent à son sujet"
 menu_title: ""
-description: "Hélène Padgett écrit que bien que le Maître soit anxieux d’écrire ce soir, il n’était pas mécontent à son sujet"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien chéri, je vois que tu n’as pas envie d’écrire beaucoup ce soir, je ne dirai donc que quelques mots. »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

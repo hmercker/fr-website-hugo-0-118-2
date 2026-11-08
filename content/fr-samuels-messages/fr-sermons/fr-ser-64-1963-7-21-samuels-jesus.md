@@ -1,7 +1,7 @@
 ---
 title: "64ème Sermon – Le Second Isaïe a écrit les chants du Serviteur Souffrant"
 menu_title: ""
-description: "64ème Sermon – Le Second Isaïe a écrit les chants du Serviteur Souffrant"
+description: "Jésus, reçu par Dr Samuels : « L’intérêt des chants du Serviteur Souffrant, que le Second Isaïe a écrit, dépasse l’identité du serviteur souffrant qui … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

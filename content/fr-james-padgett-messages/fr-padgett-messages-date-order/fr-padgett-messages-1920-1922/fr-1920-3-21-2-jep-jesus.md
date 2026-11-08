@@ -1,7 +1,7 @@
 ---
 title: "Jésus : commentaire sur un prédicateur, individualisation et incarnation de l’âme"
 menu_title: ""
-description: "Jésus : commentaire sur un prédicateur, individualisation et incarnation de l’âme"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire ce soir car vous êtes dans une bonne condition, et je désire vraiment vous écrire sur un sujet … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

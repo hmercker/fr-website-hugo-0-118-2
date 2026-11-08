@@ -1,7 +1,7 @@
 ---
 title: "L’enfer : son existence et son but"
 menu_title: ""
-description: "L’enfer : son existence et son but"
+description: "St Paul, reçu par James Padgett : « Ce soir, je désire terminer mon message sur l’Enfer – ce qu’il est et quel est son but. Comme je le disais avant … »"
 date: 2022-06-01 06:00:01+00:334
 draft: False
 hidden: True

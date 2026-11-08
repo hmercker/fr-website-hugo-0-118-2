@@ -1,7 +1,7 @@
 ---
 title: "43ème Révélation : Passages Messianiques d’Isaïe"
 menu_title: ""
-description: "43ème Révélation : Passages Messianiques d’Isaïe"
+description: "Jésus, reçu par Dr Samuels : « Je voudrais m’exprimer sur certains des passages messianiques trouvés dans Isaïe, le prophète. »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

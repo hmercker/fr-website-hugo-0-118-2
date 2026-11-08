@@ -1,7 +1,7 @@
 ---
 title: "Tous sont transformés, éveillés et guéris dans l'Amour de Dieu"
 menu_title: ""
-description: "Tous sont transformés, éveillés et guéris dans l'Amour de Dieu"
+description: "Jean le Baptiste, reçu par Al Fike : « Car c’est en Dieu que toutes les solutions sont possibles, que tous les dilemmes sont guéris, que tous les voyages … »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

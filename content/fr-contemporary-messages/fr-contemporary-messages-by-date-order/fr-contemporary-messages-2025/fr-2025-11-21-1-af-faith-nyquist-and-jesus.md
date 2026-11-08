@@ -1,7 +1,7 @@
 ---
 title: "Le Voyage de l'Amour : Embrasser la plus haute vocation de l'âme"
 menu_title: ""
-description: "Le Voyage de l'Amour : Embrasser la plus haute vocation de l'âme"
+description: "Faith Nyquist et Jésus, reçu par Albert Fike : « Le voyage de la vie consiste à apprendre à aimer. Bien sûr, au fil de ce voyage, vous vous … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

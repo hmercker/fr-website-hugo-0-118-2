@@ -1,7 +1,7 @@
 ---
 title: "Invitation à se rassembler dans l'unité"
 menu_title: ""
-description: "Invitation à se rassembler dans l'unité"
+description: "Jésus, reçu par Albert Fike : « Car vous priez pour le plus grand de tous les dons, la plus grande de toutes les bénédictions et vos âmes le recherchent … »"
 date: 2023-09-01 06:00:01+00:57
 draft: False
 hidden: True

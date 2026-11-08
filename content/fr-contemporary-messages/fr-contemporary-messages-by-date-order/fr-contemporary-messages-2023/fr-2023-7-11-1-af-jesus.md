@@ -1,7 +1,7 @@
 ---
 title: "Le but et le pouvoir du rassemblement de Laurelville"
 menu_title: ""
-description: "Le but et le pouvoir du rassemblement de Laurelville"
+description: "Jésus, reçu par Albert Fike : « Dieu vous rassemble, âmes bien-aimées. En effet, Dieu vous bénira tous puissamment si vous vous réunissez de cette manière. »"
 date: 2023-09-01 06:00:01+00:50
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon 24 : La conclusion de la série sur notre monde en transition"
 menu_title: ""
-description: "Leçon 24 : La conclusion de la série sur notre monde en transition"
+description: "Jésus, reçu par Al Fike : « En effet, le changement arrive dans vos vies alors que vous vous ajustez et vous vous préparez aux changements qui arrivent … »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

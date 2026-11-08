@@ -1,7 +1,7 @@
 ---
 title: "Une leçon sur le pouvoir de l’humilité"
 menu_title: ""
-description: "Une leçon sur le pouvoir de l’humilité"
+description: "Augustin, reçu par Al Fike : « Cette qualité m’a manqué lorsque j’ai parcouru la Terre. Je fus un homme rempli d’ambition, plein d’opinion, rempli d’un … »"
 date: 2022-06-01 06:00:01+00:185
 draft: False
 hidden: True

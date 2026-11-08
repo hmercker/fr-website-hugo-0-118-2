@@ -1,7 +1,7 @@
 ---
 title: "Jésus: Beaucoup d’anciens esprits ne sont pas dans les Cieux Célestes"
 menu_title: ""
-description: "Jésus: Beaucoup d’anciens esprits ne sont pas dans les Cieux Célestes"
+description: "Jésus, reçu par James Padgett : « Non, les sphères dans lesquelles elle a vécu (Saleeba) sont celles que votre grand-mère a décrites comme étant les … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

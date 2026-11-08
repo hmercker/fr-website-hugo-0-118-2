@@ -1,7 +1,7 @@
 ---
 title: "La Vérité Divine est l'Amour de Dieu"
 menu_title: ""
-description: "La Vérité Divine est l'Amour de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « J’ai été ici à l’écoute de votre conversation. Mais je veux corriger un peu son histoire car ce n’est pas que … »"
 date: 2022-06-01 06:00:01+00:809
 draft: False
 hidden: True

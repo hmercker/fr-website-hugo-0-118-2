@@ -1,7 +1,7 @@
 ---
 title: "Qu’est-ce que la guérison ?"
 menu_title: ""
-description: "Qu’est-ce que la guérison ?"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Qu’est-ce que la guérison ? C’est l’acceptation de tout ce qui est. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

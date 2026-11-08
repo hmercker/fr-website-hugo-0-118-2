@@ -1,7 +1,7 @@
 ---
 title: "Passage de la lumière"
 menu_title: ""
-description: "Passage de la lumière"
+description: "Orion, reçu par Al Fike : « C’est un don important qui est donné parce que vous l’avez désiré, prié pour lui, vous y êtes ouvert. »"
 date: 2023-09-01 06:00:01+00:26
 draft: False
 hidden: True

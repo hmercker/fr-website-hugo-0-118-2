@@ -1,7 +1,7 @@
 ---
 title: "Soyez fidèles, mais surtout, soyez forts et sages dans l'Amour de DieU"
 menu_title: ""
-description: "Soyez fidèles, mais surtout, soyez forts et sages dans l'Amour de Dieu"
+description: "Reine Victoria : « Lorsque je pense à ma vie sur Terre, je me sens toujours bénie d'avoir pu, comme vous, puiser en Dieu la force et le courage. »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

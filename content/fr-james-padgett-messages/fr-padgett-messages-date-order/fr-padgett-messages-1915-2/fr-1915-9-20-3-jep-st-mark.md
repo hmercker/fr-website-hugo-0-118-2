@@ -1,7 +1,7 @@
 ---
 title: "Saint Marc rassure M. Padgett que les auteurs sont réellement ce qu’ils prétendent être"
 menu_title: ""
-description: "Saint Marc rassure M. Padgett que les auteurs sont réellement ce qu’ils prétendent être"
+description: "St Marc, reçu par James Padgett : « Que votre foi augmente et que votre croyance dans le fait que nous vous écrivons grandisse jusqu’à ce qu’aucun doute … »"
 date: 2022-06-01 06:00:01+00:258
 draft: False
 hidden: True

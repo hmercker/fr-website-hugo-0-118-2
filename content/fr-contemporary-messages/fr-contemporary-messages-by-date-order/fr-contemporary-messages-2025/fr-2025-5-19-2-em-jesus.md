@@ -1,7 +1,7 @@
 ---
 title: "Jésus nous élève afin que nous recevions les bénédictions de Dieu"
 menu_title: ""
-description: "Jésus nous élève afin que nous recevions les bénédictions de Dieu"
+description: "Jeanna d'Arc, reçu par Elizabeth Mack : « Nous bâtissons sur ces prières un état d’Amour dans lequel vous pouvez tous demeurer un instant, afin que vous … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

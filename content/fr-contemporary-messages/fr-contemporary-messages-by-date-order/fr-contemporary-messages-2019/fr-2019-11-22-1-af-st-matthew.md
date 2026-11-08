@@ -1,7 +1,7 @@
 ---
 title: "Il y aura de la joie sur la terre !"
 menu_title: ""
-description: "Il y aura de la joie sur la terre !"
+description: "St Matthieu, reçu par Al Fike : « Chaque âme sur votre monde a un désir ardent de Dieu. Chaque âme est privée parce que souvent ce désir et cette … »"
 date: 2022-06-01 06:00:01+00:921
 draft: False
 hidden: True

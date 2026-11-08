@@ -1,7 +1,7 @@
 ---
 title: "Les Salutations de Martin Luther"
 menu_title: ""
-description: "Les Salutations de Martin Luther"
+description: "Martin Luther, reçu par Al Fike : « Vous vous êtes engagés dans cette œuvre. Je serai avec vous tout au long de la période où vous serez réunis. »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

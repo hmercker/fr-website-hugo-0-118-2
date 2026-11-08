@@ -1,7 +1,7 @@
 ---
 title: "Vous serez les enfants de Dieu sur la Terre"
 menu_title: ""
-description: "Vous serez les enfants de Dieu sur la Terre"
+description: "Moïse, reçu par Albert Fike : « Les rochers se transformeront en poussière. Le chemin sera dégagé et éclairé par la main de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous nous réveillons ! (2021 Voix Directe II)"
 menu_title: ""
-description: "Nous nous réveillons ! (2021 Voix Directe II)"
+description: "André, reçu par Al Fike : « Nous sommes tous profondément bénis par la présence de vos guides et de vos présences dans nos vies. »"
 date: 2022-06-01 06:00:01+00:1633
 draft: False
 hidden: True

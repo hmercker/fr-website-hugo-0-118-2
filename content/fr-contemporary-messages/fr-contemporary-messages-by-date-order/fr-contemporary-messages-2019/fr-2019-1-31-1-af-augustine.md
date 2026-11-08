@@ -1,7 +1,7 @@
 ---
 title: "Comment une personne peut-elle recevoir l'Amour Divin sans le savoir ? "
 menu_title: ""
-description: "Comment une personne peut-elle recevoir l'Amour Divin sans le savoir ? "
+description: "Augustin, reçu par Al Fike : « Maintenant que cet instrument s’est rétabli, nous pouvons passer à une autre réponse. En effet, il ne prend pas sa … »"
 date: 2022-06-01 06:00:01+00:631
 draft: False
 hidden: True

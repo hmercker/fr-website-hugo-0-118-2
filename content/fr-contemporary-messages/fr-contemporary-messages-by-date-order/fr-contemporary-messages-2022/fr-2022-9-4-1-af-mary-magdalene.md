@@ -1,7 +1,7 @@
 ---
 title: "La lampe de la vérité"
 menu_title: ""
-description: "La lampe de la vérité"
+description: "Marie-Madeleine, reçu par Al Fike : « J’apporte la Lampe de la Vérité au milieu de vous, portant l’Amour de Dieu qui est resplendissant dans la Vérité. »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

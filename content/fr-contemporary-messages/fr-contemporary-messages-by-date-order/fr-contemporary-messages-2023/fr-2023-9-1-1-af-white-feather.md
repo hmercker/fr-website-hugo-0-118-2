@@ -1,7 +1,7 @@
 ---
 title: "Être un agent de changement pour la Terre"
 menu_title: ""
-description: "Être un agent de changement pour la Terre "
+description: "Plume Blanche, reçu par Albert Fike : « Que le Grand Esprit Blanc apporte ses bénédictions à votre âme. Car à quoi bon boire de l’eau pure et respirer de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

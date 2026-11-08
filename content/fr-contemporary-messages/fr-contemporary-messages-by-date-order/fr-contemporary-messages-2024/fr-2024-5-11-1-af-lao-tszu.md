@@ -1,7 +1,7 @@
 ---
 title: "Les changements qui accompagnent l'Amour Divin"
 menu_title: ""
-description: "Les changements qui accompagnent l'Amour Divin"
+description: "Lao Tseu, reçu par Albert Fike : « Chaque âme aspire à la vérité. Pourtant, toutes les âmes ne trouvent pas la vérité et ne font pas d’efforts pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

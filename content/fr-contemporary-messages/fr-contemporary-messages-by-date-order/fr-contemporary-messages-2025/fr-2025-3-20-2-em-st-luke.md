@@ -1,7 +1,7 @@
 ---
 title: "Les bénédictions s'accroissent au service de Dieu"
 menu_title: ""
-description: "Les bénédictions s'accroissent au service de Dieu"
+description: "Saint Luc, reçu par Elizabeth Mack : « Vous œuvrez avec diligence et constance pour faire rayonner l’Amour qui réside en vous et le partager avec vos … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

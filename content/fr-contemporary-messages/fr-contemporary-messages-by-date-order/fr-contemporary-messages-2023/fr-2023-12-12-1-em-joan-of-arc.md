@@ -1,7 +1,7 @@
 ---
 title: "Jeanne nous encourage à développer une relation avec nos guides"
 menu_title: ""
-description: "Jeanne nous encourage à développer une relation avec nos guides"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Nous vous aimons vraiment, les enfants sur Terre, qui recherchez l’Amour du Père. Nous vous parlons et parfois … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

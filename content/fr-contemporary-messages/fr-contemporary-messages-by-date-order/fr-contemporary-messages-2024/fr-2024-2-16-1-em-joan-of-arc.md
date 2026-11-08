@@ -1,7 +1,7 @@
 ---
 title: "Vous ne savez pas à quel point vous êtes bénis, je serai avec vous à chaque étape du chemin ! "
 menu_title: ""
-description: "Vous ne savez pas à quel point vous êtes bénis, je serai avec vous à chaque étape du chemin ! "
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Je m'appelle Jeanne, dite Jeanne d'Arc. Ma force vous accompagne dans votre voyage. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

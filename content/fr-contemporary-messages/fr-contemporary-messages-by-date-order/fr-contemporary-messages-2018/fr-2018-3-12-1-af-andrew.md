@@ -1,7 +1,7 @@
 ---
 title: "Être dans le courant de l'Amour du Père ensemble"
 menu_title: ""
-description: "Être dans le courant de l'Amour du Père ensemble"
+description: "André, reçu par Al Fike : « Vous avez reçu une mesure de guérison dans ce cercle. Continuez à apporter vos lumières brillantes, vos âmes éveillées avec … »"
 date: 2022-06-01 06:00:01+00:355
 draft: False
 hidden: True

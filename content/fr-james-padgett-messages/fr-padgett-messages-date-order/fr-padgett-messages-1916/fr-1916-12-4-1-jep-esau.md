@@ -1,7 +1,7 @@
 ---
 title: "Il connaît maintenant la différence entre l’esprit qui possède dans son âme l’Amour Divin et celui qui ne le possède pas"
 menu_title: ""
-description: "Il connaît maintenant la différence entre l’esprit qui possède dans son âme l’Amour Divin et celui qui ne le possède pas"
+description: "Esau (Fils d’Isaac), reçu par James Padgett : « Je fus le fils d’Isaac et le frère de Jacob, et celui que les Juifs considèrent comme ayant vendu son … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction"
 menu_title: ""
-description: "Bénédiction"
+description: "Mylora, reçu par Al Fike : « Car en priant, ne sentez-vous pas dans votre cœur votre amour pour ce monde, une appréciation de tout ce que Dieu a créé, un … »"
 date: 2022-06-01 06:00:01+00:1706
 draft: False
 hidden: True

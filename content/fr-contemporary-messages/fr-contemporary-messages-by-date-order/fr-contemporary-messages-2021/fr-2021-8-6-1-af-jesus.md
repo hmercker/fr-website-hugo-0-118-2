@@ -1,7 +1,7 @@
 ---
 title: "Leçon 15 : Affecter le changement dans le monde"
 menu_title: ""
-description: "Leçon 15 : Affecter le changement dans le monde"
+description: "Jésus, reçu par Al Fike : « Comment peut-on changer les choses dans un monde en perpétuel changement ? Comment peut-on laisser sa marque sur ce monde par … »"
 date: 2022-06-01 06:00:01+00:1591
 draft: False
 hidden: True

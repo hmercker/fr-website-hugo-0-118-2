@@ -1,7 +1,7 @@
 ---
 title: "La voie est libre !"
 menu_title: ""
-description: "La voie est libre !"
+description: "Augustin, reçu par Albert Fike : « Très peu de choses vous retiendront, âmes bien-aimées. Je veux que vous sachiez que la voie est libre devant vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

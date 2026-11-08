@@ -1,7 +1,7 @@
 ---
 title: "Ayez foi en nous, amis bien-aimés de la Terre"
 menu_title: ""
-description: "Ayez foi en nous, amis bien-aimés de la Terre"
+description: "Mahatma Gandhi : « Je peux et j'ai l'autorité des enseignants des royaumes du monde des esprits pour vous amener et vous présenter de grands dirigeants de … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

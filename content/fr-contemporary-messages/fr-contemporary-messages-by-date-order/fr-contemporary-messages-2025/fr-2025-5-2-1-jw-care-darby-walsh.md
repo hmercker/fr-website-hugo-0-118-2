@@ -1,7 +1,7 @@
 ---
 title: "Surmonter ses blessures (partie 1)"
 menu_title: ""
-description: "Surmonter ses blessures (partie 1)"
+description: "Care Darby Walsh, reçu par reçu par Jimbeau Walsh : « Vous pouvez considérer cela comme un orchestre spirituel, car ensemble, nous essayons d’influencer … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

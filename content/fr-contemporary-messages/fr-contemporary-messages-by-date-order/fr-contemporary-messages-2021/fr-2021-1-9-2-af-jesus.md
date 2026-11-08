@@ -1,7 +1,7 @@
 ---
 title: "Vous faites partie d'une grande mission"
 menu_title: ""
-description: "Vous faites partie d'une grande mission"
+description: "Jésus, reçu par Al Fike : « Vos âmes se remplissent de joie, d’émotions et d’un sens de la direction. Vous avez la tâche de trouver des moyens créatifs … »"
 date: 2022-06-01 06:00:01+00:1373
 draft: False
 hidden: True

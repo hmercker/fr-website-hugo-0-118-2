@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de danser la danse de la joie"
 menu_title: ""
-description: "Il est temps de danser la danse de la joie"
+description: "Goldie, reçu par Albert Fike : « Il est temps de vous défaire de vos soucis, mes enfants, de tous ces fardeaux que vous portez. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

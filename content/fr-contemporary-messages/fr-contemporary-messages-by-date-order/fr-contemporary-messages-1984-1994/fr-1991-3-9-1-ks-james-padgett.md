@@ -1,7 +1,7 @@
 ---
 title: "Édition du deuxième volume des messages"
 menu_title: ""
-description: "Édition du deuxième volume des messages"
+description: "James Padgett, reçu par Kathryn Stokes : « Cela fait plusieurs années que je n’ai pas eu le privilège d’écrire à travers toi de cette manière. »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

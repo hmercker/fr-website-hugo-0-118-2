@@ -1,7 +1,7 @@
 ---
 title: "Le moment viendra où la Volonté de Dieu s’accomplira"
 menu_title: ""
-description: "Le moment viendra où la Volonté de Dieu s’accomplira"
+description: "Elie, reçu par Albert Fike : « Bénédictions à vous, âmes bien-aimées. Le monde est en attente, guettant le changement à venir et l’éveil qui doit se produire. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

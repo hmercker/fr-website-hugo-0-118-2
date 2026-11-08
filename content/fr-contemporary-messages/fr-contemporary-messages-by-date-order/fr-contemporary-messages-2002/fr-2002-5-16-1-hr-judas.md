@@ -1,7 +1,7 @@
 ---
 title: "Vérité et fausses croyances – deuxième partie"
 menu_title: ""
-description: "Vérité et fausses croyances – deuxième partie"
+description: "Judas, reçu par H : « Je voudrais continuer avec mon discours sur les fausses croyances et la diffusion de la Vérité. »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

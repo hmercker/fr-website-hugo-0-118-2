@@ -1,7 +1,7 @@
 ---
 title: "Jean écrit sur le vrai sens de « la fin du monde. »"
 menu_title: ""
-description: "Jean écrit sur le vrai sens de « la fin du monde. »"
+description: "St Jean, reçu par James Padgett : « Je sais que chez les hommes il y a, et ceci depuis l’époque du Maître, des opinions divergentes quant à la date à … »"
 date: 2022-06-01 06:00:01+00:285
 draft: False
 hidden: True

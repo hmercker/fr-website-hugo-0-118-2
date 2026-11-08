@@ -1,7 +1,7 @@
 ---
 title: "Mémoires"
 menu_title: ""
-description: "Mémoires"
+description: "Joseph, reçu par WV : « Lorsque quelqu’un meurt, la mémoire de l’esprit devient très vive et vivante. Comme ils n’ont plus le corps physique grossier … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

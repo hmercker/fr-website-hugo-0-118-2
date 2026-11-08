@@ -1,7 +1,7 @@
 ---
 title: "Justice économique"
 menu_title: ""
-description: "Justice économique"
+description: "Jésus, reçu par FAB : « Vous avez réfléchi à mes commentaires sur l'Europe dans le message d'aujourd'hui. Vous pensez que l'Europe occidentale s'est unie … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

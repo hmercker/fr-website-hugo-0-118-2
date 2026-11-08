@@ -1,7 +1,7 @@
 ---
 title: "Déclaration du début de la transformation de notre monde"
 menu_title: ""
-description: "Déclaration du début de la transformation de notre monde"
+description: "Archange Michael, reçu par Al Fike : « Je vous dis que même nous, qui sommes impliqués dans les rouages de l’univers, viendrons vous aider en cette … »"
 date: 2022-06-01 06:00:01+00:1733
 draft: False
 hidden: True

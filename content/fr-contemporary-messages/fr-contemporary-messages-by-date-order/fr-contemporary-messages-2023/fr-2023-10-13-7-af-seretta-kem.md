@@ -1,7 +1,7 @@
 ---
 title: "La vérité grandira de votre âme à votre esprit"
 menu_title: ""
-description: "La vérité grandira de votre âme à votre esprit"
+description: "Seretta Kem, reçu par Albert Fike : « Lorsque nous vous parlons, lorsque nous vous enseignons, nous ne parlons pas principalement à votre esprit, nous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

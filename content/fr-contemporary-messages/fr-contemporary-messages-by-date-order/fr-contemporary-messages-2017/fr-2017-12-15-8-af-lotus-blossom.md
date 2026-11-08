@@ -1,7 +1,7 @@
 ---
 title: "La voix directe se manifestera pour chacun d'entre vous"
 menu_title: ""
-description: "La voix directe se manifestera pour chacun d'entre vous"
+description: "Fleur de Lotus, reçu par Al Fike : « Si beaux, si beaux, vous êtes devenus alors que vous avez prié ensemble en ce temps que Dieu vous a donné d'être dans … »"
 date: 2022-06-01 06:00:01+00:283
 draft: False
 hidden: True

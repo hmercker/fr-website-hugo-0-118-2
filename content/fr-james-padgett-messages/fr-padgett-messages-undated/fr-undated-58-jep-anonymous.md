@@ -1,7 +1,7 @@
 ---
 title: "Une faible femme parle des nombreux actes commis qui ont supprimé de nombreuses vies alors qu’elle était infirmière"
 menu_title: ""
-description: "Une faible femme parle des nombreux actes commis qui ont supprimé de nombreuses vies alors qu’elle était infirmière"
+description: "Anonyme, reçu par James Padgett : « Laissez-moi vous écrire, car j’ai attendu si longtemps avant de pouvoir vous joindre et vous demander de m’aider. »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

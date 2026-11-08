@@ -1,7 +1,7 @@
 ---
 title: "La vérité arrive quand l'âme commence à se réveiller de son profond sommeil"
 menu_title: ""
-description: "La vérité arrive quand l'âme commence à se réveiller de son profond sommeil"
+description: "Flavius Josèphe, reçu par Al Fike : « Vous ne connaissez pas vraiment le potentiel de votre âme. Tant que vous ne serez pas parvenus à cette réalisation … »"
 date: 2022-06-01 06:00:01+00:910
 draft: False
 hidden: True

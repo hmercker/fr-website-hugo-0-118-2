@@ -1,7 +1,7 @@
 ---
 title: "La compréhension de la mission de Jésus par Jean le Baptiste"
 menu_title: ""
-description: "La compréhension de la mission de Jésus par Jean le Baptiste"
+description: "Jean-Baptiste, reçu par FAB : « J’ai observé votre préoccupation. J’ai canalisé à travers Daniel Samuels ce qui suit, dans Révélation 5 : »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

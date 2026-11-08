@@ -1,7 +1,7 @@
 ---
 title: "Lutter contre le mal"
 menu_title: ""
-description: "Lutter contre le mal"
+description: "Seretta Kem, reçu par Al Fike : « Vous continuez à avoir vos anges amis à vos côtés. Il essaiera de vous faire passer de cette condition d'amour à la … »"
 date: 2022-06-01 06:00:01+00:290
 draft: False
 hidden: True

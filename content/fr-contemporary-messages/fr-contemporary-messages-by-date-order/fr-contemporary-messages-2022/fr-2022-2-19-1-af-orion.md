@@ -1,7 +1,7 @@
 ---
 title: "Orion se consacre à notre travail individuel et collectif"
 menu_title: ""
-description: "Orion se consacre à notre travail individuel et collectif"
+description: "Orion, reçu par Al Fike : « Je me demande parfois où se trouve mon foyer. En effet, de telles dédicaces valent bien l’effort, car c’est important. »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

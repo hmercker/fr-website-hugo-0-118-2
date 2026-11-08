@@ -1,7 +1,7 @@
 ---
 title: "Les expériences d’un leader Musulman"
 menu_title: ""
-description: "Les expériences d’un leader Musulman"
+description: "Saladin, reçu par FAB : « J’étais sincère à bien des égards, et certaines des choses élogieuses écrites à mon sujet sont vraies. »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

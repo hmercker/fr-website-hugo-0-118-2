@@ -1,7 +1,7 @@
 ---
 title: "Rechercher et entretenir le don d'amour"
 menu_title: ""
-description: "Rechercher et entretenir le don d'amour"
+description: "Augustin, reçu par Al Fike : « Dieu vous a fait un grand cadeau. C'est à vous d'accepter ce don, le don de son amour. »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

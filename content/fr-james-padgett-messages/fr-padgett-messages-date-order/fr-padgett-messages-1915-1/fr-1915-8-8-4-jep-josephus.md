@@ -1,7 +1,7 @@
 ---
 title: "Flavius Josèphe affirme que Jésus est le vrai fils de Dieu, qu’il a vécu sur la terre et fut crucifié"
 menu_title: ""
-description: "Flavius Josèphe affirme que Jésus est le vrai fils de Dieu, qu’il a vécu sur la terre et fut crucifié"
+description: "Flavius Josèphe, reçu par James Padgett : « Vous n’êtes pas un homme à laisser seul. Je veux dire que je dois partager ma connaissance des choses de ces … »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

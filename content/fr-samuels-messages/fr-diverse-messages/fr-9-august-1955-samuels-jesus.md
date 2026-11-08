@@ -1,7 +1,7 @@
 ---
 title: "L’Ancienne et la nouvelle Alliance"
 menu_title: ""
-description: "L’Ancienne et la nouvelle Alliance"
+description: "Jésus, reçu par Dr Samuels Août : « L’ALLIANCE que Dieu a faite avec Abraham n’est peut-être pas la première faite entre la Divinité et l’homme, parce que … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

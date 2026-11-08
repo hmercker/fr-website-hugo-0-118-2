@@ -1,7 +1,7 @@
 ---
 title: "Que Dieu bénisse chacun de nous"
 menu_title: ""
-description: "Que Dieu bénisse chacun de nous"
+description: "Jésus, reçu par Albert Fike : « Que l’Amour du Père continue de se répandre dans vos âmes, chers enfants de Dieu. Nous faisons partie de la famille … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

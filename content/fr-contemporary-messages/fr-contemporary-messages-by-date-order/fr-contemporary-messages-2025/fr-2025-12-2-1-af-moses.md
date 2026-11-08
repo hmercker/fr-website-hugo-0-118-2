@@ -1,7 +1,7 @@
 ---
 title: "Vous devez réconcilier votre esprit et votre âme pour être les instruments de Dieu dans les temps à venir"
 menu_title: ""
-description: "Vous devez réconcilier votre esprit et votre âme pour être les instruments de Dieu dans les temps à venir"
+description: "Moïse, reçu par Albert Fike : « Chaque jour est une épreuve de foi. Chaque jour offre des occasions de s’aligner sur la Volonté de Dieu. »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

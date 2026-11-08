@@ -1,7 +1,7 @@
 ---
 title: "33ème Sermon – Isaïe déclare le jugement de Dieu sur les nations"
 menu_title: ""
-description: "33ème Sermon – Isaïe déclare le jugement de Dieu sur les nations"
+description: "Jésus, reçu par Dr Samuels : « Maintenant, le fait est que, lorsqu’Ézéchias a continué la politique neutraliste d’Isaïe, Juda est devenu fort et prospère … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

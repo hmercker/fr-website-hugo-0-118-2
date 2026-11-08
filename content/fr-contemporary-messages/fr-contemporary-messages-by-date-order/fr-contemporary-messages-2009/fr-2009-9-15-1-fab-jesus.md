@@ -1,7 +1,7 @@
 ---
 title: "Recevoir l'Amour Divin"
 menu_title: ""
-description: "Recevoir l'Amour Divin"
+description: "Jésus, reçu par FAB : « Mais nous sommes très désireux que les gens comprennent ma véritable relation avec Dieu et la vérité de la Nouvelle Naissance de … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

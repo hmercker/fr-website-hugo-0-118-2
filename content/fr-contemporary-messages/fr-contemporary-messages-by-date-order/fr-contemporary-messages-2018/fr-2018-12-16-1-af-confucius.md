@@ -1,7 +1,7 @@
 ---
 title: "Préparez-vous pour les temps qui viennent"
 menu_title: ""
-description: "Préparez-vous pour les temps qui viennent"
+description: "Confucius, reçu par Al Fike : « Bienvenue, frères et sœurs. Nous avons du travail à faire, n’est-ce pas, âmes bien-aimées ? »"
 date: 2022-06-01 06:00:01+00:588
 draft: False
 hidden: True

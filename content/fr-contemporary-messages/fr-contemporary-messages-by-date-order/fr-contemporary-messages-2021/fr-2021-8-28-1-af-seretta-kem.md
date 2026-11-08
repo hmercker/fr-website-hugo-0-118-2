@@ -1,7 +1,7 @@
 ---
 title: "Tous vos proches seront bénis"
 menu_title: ""
-description: "Tous vos proches seront bénis"
+description: "Seretta Kem, reçu par Al Fike : « Le fait d’avoir ce soutien de la part de tous ceux qui le peuvent aidera à réunir les conditions et les énergies pour le … »"
 date: 2022-06-01 06:00:01+00:1615
 draft: False
 hidden: True

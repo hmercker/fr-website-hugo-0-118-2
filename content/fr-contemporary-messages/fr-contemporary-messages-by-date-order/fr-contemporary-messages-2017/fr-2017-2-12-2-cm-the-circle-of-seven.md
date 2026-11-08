@@ -1,7 +1,7 @@
 ---
 title: "Les souvenirs dans la vie du sommeil de l'âme"
 menu_title: ""
-description: "Les souvenirs dans la vie du sommeil de l'âme"
+description: "Le cercle des sept, reçu par Chris Maurus : « Chris : \" Enseignants, pourriez-vous s'il vous plaît discourir sur la nature et le but des « rêves … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

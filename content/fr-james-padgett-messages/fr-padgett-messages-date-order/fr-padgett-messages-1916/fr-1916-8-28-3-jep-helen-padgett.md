@@ -1,7 +1,7 @@
 ---
 title: "Hélène est satisfaite de l’amélioration de l’état de M. Padgett"
 menu_title: ""
-description: "Hélène est satisfaite de l’amélioration de l’état de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Je n’écrirai pas beaucoup car tu n’es pas encore en forme. Mais je dirai que Jean et Luther t’ont écrit et … »"
 date: 2022-06-01 06:00:01+00:267
 draft: False
 hidden: True

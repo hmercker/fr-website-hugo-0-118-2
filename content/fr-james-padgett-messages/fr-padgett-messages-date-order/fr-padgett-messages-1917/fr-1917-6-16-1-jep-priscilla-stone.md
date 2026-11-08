@@ -1,7 +1,7 @@
 ---
 title: "Priscilla Stone est reconnaissante pour les messages reçus par M. Padgett pour lui permettre une progression spirituelle plus rapide"
 menu_title: ""
-description: "Priscilla Stone est reconnaissante pour les messages reçus par M. Padgett pour lui permettre une progression spirituelle plus rapide"
+description: "Priscilla Stone, reçu par James Padgett : « Permettez-moi d’écrire une ligne, car j’ai hâte d’apporter mes encouragements à ce que Jean a dit, et je sais … »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

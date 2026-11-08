@@ -1,7 +1,7 @@
 ---
 title: "La relation de Jésus au Judaïsme, et l'idée de Logos"
 menu_title: ""
-description: "La relation de Jésus au Judaïsme, et l'idée de Logos"
+description: "Jean, reçu par FAB : « Toute version grecque était boudée. Dans la Diaspora Juive, ce n'était souvent pas le cas, car ces Juifs étaient plus influencés … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

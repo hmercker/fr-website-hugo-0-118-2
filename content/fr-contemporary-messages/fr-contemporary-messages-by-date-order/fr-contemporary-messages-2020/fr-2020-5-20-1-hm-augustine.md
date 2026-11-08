@@ -1,7 +1,7 @@
 ---
 title: "Une Salutation Matinale "
 menu_title: ""
-description: "Une Salutation Matinale "
+description: "Augustin, reçu par Helge Mercker : « Ma fille, c’est un bon moment pour écrire car tu es dans un état réceptif et ouvert à recevoir mes paroles. »"
 date: 2022-06-01 06:00:01+00:1111
 draft: False
 hidden: True

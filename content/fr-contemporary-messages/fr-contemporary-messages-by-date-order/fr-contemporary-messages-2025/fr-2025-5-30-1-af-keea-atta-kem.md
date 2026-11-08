@@ -1,7 +1,7 @@
 ---
 title: "Dieu murmure Son Amour dans vos âmes"
 menu_title: ""
-description: "Dieu murmure Son Amour dans vos âmes"
+description: "Keea atta Kem, reçu par Albert Fike : « Dieu murmure à l’oreille de votre âme, Sa douce Voix vous illuminant. Dieu nous a rassemblés dans cette grande … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

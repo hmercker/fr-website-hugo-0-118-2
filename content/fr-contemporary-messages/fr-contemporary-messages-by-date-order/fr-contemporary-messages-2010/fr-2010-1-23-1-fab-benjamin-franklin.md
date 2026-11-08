@@ -1,7 +1,7 @@
 ---
 title: "L'élitisme des Pères fondateurs"
 menu_title: ""
-description: "L'élitisme des Pères fondateurs"
+description: "Benjamin Franklin, reçu par FAB : « Permettez-moi de dire un mot sur l'élitisme des pères fondateurs. Nous nous sentions ainsi, et nous n'en avions pas honte. »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

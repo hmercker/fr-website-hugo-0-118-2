@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la grâce"
 menu_title: ""
-description: "Marcher dans la grâce"
+description: "Yogananda, reçu par Jimbeau Walsh : « Que la paix de l’Amour de Dieu soit sur tous ceux qui se trouvent dans ce beau cercle. Je souhaite parler du sujet … »"
 date: 2023-09-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Êtes-vous prêts à faire briller votre lumière dans les moments d’obscurité ?"
 menu_title: ""
-description: "Êtes-vous prêts à faire briller votre lumière dans les moments d’obscurité ?"
+description: "Yogananda, reçu par WV : « Je m’appelle Paramahansa Yogananda. Il a très bien exprimé la différence entre le mental et l’âme, entre la pensée et la … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

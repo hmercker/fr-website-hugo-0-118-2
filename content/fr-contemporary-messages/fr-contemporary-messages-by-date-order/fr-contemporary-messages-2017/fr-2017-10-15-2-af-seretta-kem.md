@@ -1,7 +1,7 @@
 ---
 title: "Instructions détaillées concernant les sessions de Voix Directe"
 menu_title: ""
-description: "Instructions détaillées concernant les sessions de Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Je vais donc énoncer quelques requêtes fondamentales pour commencer ces prières et préparations dans le développement de … »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Entends ta voix intérieure"
 menu_title: ""
-description: "Entends ta voix intérieure"
+description: "Jésus, reçu par H : « J’ai observé que tu avais passé la journée entière à réfléchir au message transmis au mois de Juin dernier; et, principalement, à la … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

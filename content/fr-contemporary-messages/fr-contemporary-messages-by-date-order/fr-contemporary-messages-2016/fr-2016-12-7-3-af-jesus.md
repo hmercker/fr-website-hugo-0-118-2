@@ -1,7 +1,7 @@
 ---
 title: "Priez avec votre cœur"
 menu_title: ""
-description: "Priez avec votre cœur"
+description: "Jésus, reçu par Al Fike : « Par la grâce de Dieu, je vous donne mes bénédictions, c’est Jésus. Mes frères, ne passez pas votre temps à vous inquiéter de … »"
 date: 2022-06-01 06:00:01+00:292
 draft: False
 hidden: True

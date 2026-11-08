@@ -1,7 +1,7 @@
 ---
 title: "Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera"
 menu_title: ""
-description: "Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera"
+description: "Tahlia, reçu par Al Fike : « Vous devez être forts, priants et à l’écoute du Créateur. Dieu se servira de vous de bien des manières surprenantes, des … »"
 date: 2022-06-01 06:00:01+00:672
 draft: False
 hidden: True

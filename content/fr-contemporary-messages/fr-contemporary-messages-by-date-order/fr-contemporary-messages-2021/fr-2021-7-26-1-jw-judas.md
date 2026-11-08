@@ -1,7 +1,7 @@
 ---
 title: "La présence de l’Amour dans nos âmes"
 menu_title: ""
-description: "La présence de l’Amour dans nos âmes"
+description: "Judas, reçu par Jimbeau Walsh : « Pendant le temps que j’ai passé sur terre à marcher avec le Maître et mes frères et nos sœurs, nous avons été les … »"
 date: 2022-06-01 06:00:01+00:1580
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "29ème Sermon – Amos, premier prophète d’Israël"
 menu_title: ""
-description: "29ème Sermon – Amos, premier prophète d’Israël"
+description: "Jésus, reçu par Dr Samuels : « Amos est le premier des vrais prophètes d’Israël qui exerça son ministère pendant le règne de Jéroboam II. »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

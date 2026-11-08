@@ -1,7 +1,7 @@
 ---
 title: "Répandez le message loin et largement"
 menu_title: ""
-description: "Répandez le message loin et largement"
+description: "Luc, reçu par Albert Fike : « Pour chaque individu sur le plan terrestre qui fait un effort, un engagement à travailler vers ces objectifs, il y a un … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

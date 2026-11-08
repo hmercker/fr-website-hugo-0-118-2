@@ -1,7 +1,7 @@
 ---
 title: "Le compositeur Haydn connaît, comme esprit, la joie"
 menu_title: ""
-description: "Le compositeur Haydn connaît, comme esprit, la joie"
+description: "Franz Joseph Haydn, reçu par FAB : « Cela me réconforte d’avoir cette merveilleuse opportunité de communiquer, après toutes ces années, avec les mortels. »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

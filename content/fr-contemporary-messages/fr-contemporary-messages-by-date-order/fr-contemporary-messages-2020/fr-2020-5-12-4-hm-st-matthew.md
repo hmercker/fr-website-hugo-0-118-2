@@ -1,7 +1,7 @@
 ---
 title: "Résolution de conflits"
 menu_title: ""
-description: "Résolution de conflits"
+description: "St Matthieu, reçu par Helge Mercker : « La « solution du conflit » sont les mots que tu as déjà repris et je voudrais m’exprimer à ce sujet. »"
 date: 2022-06-01 06:00:01+00:1102
 draft: False
 hidden: True

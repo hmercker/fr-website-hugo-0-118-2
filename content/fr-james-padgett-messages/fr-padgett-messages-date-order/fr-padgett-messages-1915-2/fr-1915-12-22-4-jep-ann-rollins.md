@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins – Description de certaines des sphères"
 menu_title: ""
-description: "Anne Rollins – Description de certaines des sphères"
+description: "Anne Rollins, reçu par James Padgett : « Je viens, parce que je vois que tu t’es beaucoup intéressé à la description des différentes sphères du monde des … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

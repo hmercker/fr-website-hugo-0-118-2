@@ -1,7 +1,7 @@
 ---
 title: "Le bonheur d’Anne Franck"
 menu_title: ""
-description: "Le bonheur d’Anne Franck"
+description: "Anne Frank, reçu par FAB : « Dieu est bon et Aime Ses enfants avec Son Amour Éternel. J’ai trouvé cette Nouvelle Naissance de l’âme ! »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

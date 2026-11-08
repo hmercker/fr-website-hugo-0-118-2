@@ -1,7 +1,7 @@
 ---
 title: "Questions et Réponses"
 menu_title: ""
-description: "Questions et Réponses"
+description: "Orion, reçu par Albert Fike : « De nombreuses personnes, venues de différentes planètes, de quadrants de la Voie lactée, et même d’autres galaxies … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

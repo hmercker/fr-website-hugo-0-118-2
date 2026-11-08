@@ -1,7 +1,7 @@
 ---
 title: "La popularité des « révélations » absurdes"
 menu_title: ""
-description: "La popularité des « révélations » absurdes"
+description: "Judas, reçu par H : « Ces messages parlent de réincarnation « transplanétaire » conditionnée par certains facteurs, et bien d’autres choses que j’avais … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

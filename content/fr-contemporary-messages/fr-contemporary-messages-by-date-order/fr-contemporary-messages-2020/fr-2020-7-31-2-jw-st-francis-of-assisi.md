@@ -1,7 +1,7 @@
 ---
 title: "Restez dans la grâce de Dieu"
 menu_title: ""
-description: "Restez dans la grâce de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Lorsque vous vous réunissez à partir des désirs de vos âmes pour recevoir le plus grand cadeau de l’amour … »"
 date: 2022-06-01 06:00:01+00:1205
 draft: False
 hidden: True

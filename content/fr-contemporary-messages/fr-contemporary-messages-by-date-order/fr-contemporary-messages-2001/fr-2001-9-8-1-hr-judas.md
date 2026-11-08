@@ -1,7 +1,7 @@
 ---
 title: "La zone crépusculaire et Summerland"
 menu_title: ""
-description: "La zone crépusculaire et Summerland"
+description: "Judas, reçu par H : « Je t’ai également expliqué que c’est la zone la plus peuplée dans le monde des esprits, et que la grande majorité des esprits … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

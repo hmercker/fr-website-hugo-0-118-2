@@ -1,7 +1,7 @@
 ---
 title: "Briser les chaînes de l'erreur"
 menu_title: ""
-description: "Briser les chaînes de l'erreur"
+description: "Aldous Huxley, reçu par Al Fike : « Vous me connaissez grâce aux livres que j'ai écrits et à ma vision du futur que j'expose dans ces morceaux de fiction. »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

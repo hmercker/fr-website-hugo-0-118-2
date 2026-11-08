@@ -1,7 +1,7 @@
 ---
 title: "La fermeture des Cieux Célestes"
 menu_title: ""
-description: "La fermeture des Cieux Célestes"
+description: "Jésus, reçu par FAB : « Je souhaite écrire maintenant sur le sujet de la fermeture éventuelle des Cieux Célestes. Je sais qu'il y a une controverse dans … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

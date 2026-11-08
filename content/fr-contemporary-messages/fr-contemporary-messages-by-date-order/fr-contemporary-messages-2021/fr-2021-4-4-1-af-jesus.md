@@ -1,7 +1,7 @@
 ---
 title: "Cette flamme d’amour nettoiera tous les mondes"
 menu_title: ""
-description: "Cette flamme d’amour nettoiera tous les mondes"
+description: "Jésus, reçu par Al Fike : « Une simple fente de Lumière la traverse et elle s’ouvrira davantage, permettant à une plus grande Vérité de se répandre dans … »"
 date: 2022-06-01 06:00:01+00:1458
 draft: False
 hidden: True

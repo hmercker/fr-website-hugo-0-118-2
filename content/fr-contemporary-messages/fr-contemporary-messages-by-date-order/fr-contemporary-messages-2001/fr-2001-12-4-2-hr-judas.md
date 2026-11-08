@@ -1,7 +1,7 @@
 ---
 title: "Le danger de la médiumnité"
 menu_title: ""
-description: "Le danger de la médiumnité"
+description: "Judas, reçu par H : « Il s’agit d’un message pour mon cher frère B . Je connais la cause de ta souffrance. »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

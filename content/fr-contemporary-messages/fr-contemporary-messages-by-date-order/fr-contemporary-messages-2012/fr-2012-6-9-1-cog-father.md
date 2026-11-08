@@ -1,7 +1,7 @@
 ---
 title: "Révéler ce qui est caché"
 menu_title: ""
-description: "Révéler ce qui est caché"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon cher enfant bien aimé. Tu vis la fin d’un long cycle et tu ne ressens pas encore la magnificence de ce … »"
 date: 2022-06-01 06:00:01+00:266
 draft: False
 hidden: True

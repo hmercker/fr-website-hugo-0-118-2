@@ -1,7 +1,7 @@
 ---
 title: "Le temps viendra où vous vous aimerez complètement et où vous aimerez ainsi toute l’humanité"
 menu_title: ""
-description: "Le temps viendra où vous vous aimerez complètement et où vous aimerez ainsi toute l’humanité"
+description: "St Jean, reçu par Al Fike : « Et dans ce désir ardent, vous vous exprimez tous à Dieu et créez une lumière parmi vous qui est puissante et belle, car Dieu … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

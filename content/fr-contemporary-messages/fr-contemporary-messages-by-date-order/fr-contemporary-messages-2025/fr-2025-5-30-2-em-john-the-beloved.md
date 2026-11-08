@@ -1,7 +1,7 @@
 ---
 title: "Vos âmes ont soif de l'Amour de Dieu"
 menu_title: ""
-description: "Vos âmes ont soif de l'Amour de Dieu"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Je vous encourage, tous et chacun, à vous abreuver de cet Amour, cet Amour qui vous réveille et vous vivifie … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

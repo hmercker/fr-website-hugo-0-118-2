@@ -1,7 +1,7 @@
 ---
 title: "Le Pardon(2eme partie)"
 menu_title: ""
-description: "Le Pardon(2eme partie)"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « C’est un sujet qu’il vaut la peine de répéter, pour ceux qui n’arrivent pas à accepter que cela … »"
 date: 2022-06-01 06:00:01+00:1210
 draft: False
 hidden: True

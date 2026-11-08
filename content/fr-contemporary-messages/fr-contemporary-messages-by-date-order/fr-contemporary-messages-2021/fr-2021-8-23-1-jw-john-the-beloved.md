@@ -1,7 +1,7 @@
 ---
 title: "Servir de tout son cœur"
 menu_title: ""
-description: "Servir de tout son cœur"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Que la Grâce de Dieu soit sur vous. L’Amour de Dieu ne connaît pas de frontières. »"
 date: 2022-06-01 06:00:01+00:1608
 draft: False
 hidden: True

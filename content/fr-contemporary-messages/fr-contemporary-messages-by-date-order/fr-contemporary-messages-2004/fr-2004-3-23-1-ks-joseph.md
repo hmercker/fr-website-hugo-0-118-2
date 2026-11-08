@@ -1,7 +1,7 @@
 ---
 title: "C’est vous qui fixez le rythme"
 menu_title: ""
-description: "C’est vous qui fixez le rythme"
+description: "Joseph, reçu par Kathryn Stokes : « Merci de votre volonté de servir dans ce travail important. Nous cherchons souvent des occasions d’écrire, mais les … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

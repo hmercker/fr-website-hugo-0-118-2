@@ -1,7 +1,7 @@
 ---
 title: "Écoute ta voix intérieure"
 menu_title: ""
-description: "Écoute ta voix intérieure"
+description: "Judas, reçu par H : « Mon cher frère H , ce fut un énorme plaisir de suivre les échanges d’idées que tu as eus avec M . »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

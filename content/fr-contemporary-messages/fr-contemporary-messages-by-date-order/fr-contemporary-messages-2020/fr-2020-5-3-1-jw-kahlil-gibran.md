@@ -1,7 +1,7 @@
 ---
 title: "Chaque fois que vous touchez une autre âme, c’est le cadeau"
 menu_title: ""
-description: "Chaque fois que vous touchez une autre âme, c’est le cadeau"
+description: "Kahlil Gibran, reçu par Jimbeau Walsh : « Je souhaite parler des dons. Vous me connaissez peut-être par mes œuvres, en particulier le livre « Le Prophète ». »"
 date: 2022-06-01 06:00:01+00:1084
 draft: False
 hidden: True

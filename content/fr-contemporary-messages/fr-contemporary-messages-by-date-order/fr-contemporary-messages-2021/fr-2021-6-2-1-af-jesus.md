@@ -1,7 +1,7 @@
 ---
 title: "Leçon 11 : L’humanité se réveillera avec les changements terrestres à venir"
 menu_title: ""
-description: "Leçon 11 : L’humanité se réveillera avec les changements terrestres à venir"
+description: "Jésus, reçu par Al Fike : « Je vois qu’il pèse sur l’esprit de cet instrument la brutalité et l’injustice qui ont été perpétrées par ceux qui sont au … »"
 date: 2022-06-01 06:00:01+00:1525
 draft: False
 hidden: True

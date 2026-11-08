@@ -1,7 +1,7 @@
 ---
 title: "Encouragements à terminer les projets"
 menu_title: ""
-description: "Encouragements à terminer les projets"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je souhaite commencer par exprimer ma gratitude envers ceux qui veillent sur mon bien-aimé et en prennent soin. »"
 date: 2022-06-01 06:00:01+00:1686
 draft: False
 hidden: True

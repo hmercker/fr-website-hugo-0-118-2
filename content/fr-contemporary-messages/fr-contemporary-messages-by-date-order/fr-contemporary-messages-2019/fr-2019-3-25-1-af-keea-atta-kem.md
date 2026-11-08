@@ -1,7 +1,7 @@
 ---
 title: "On gagne en force et en compassion en affrontant des difficultés"
 menu_title: ""
-description: "On gagne en force et en compassion en affrontant des difficultés"
+description: "Keea Atta Kem, reçu par Al Fike : « Comment Dieu souhaite que chaque âme connaisse cette joie et cette liberté, qu’elle soit en harmonie et libérée de la … »"
 date: 2022-06-01 06:00:01+00:686
 draft: False
 hidden: True

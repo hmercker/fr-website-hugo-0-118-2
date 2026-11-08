@@ -1,7 +1,7 @@
 ---
 title: "Les attentes ne laissent aucune place au mystère"
 menu_title: ""
-description: "Les attentes ne laissent aucune place au mystère"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon Royaume est pour tous. Dans Mon royaume, il y a un amour sans fin pour chacun de Mes enfants. »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Faites le choix authentique d'être la cloche retentissante de la vérité dans un monde en perpétuelle mutation"
 menu_title: ""
-description: "Faites le choix authentique d'être la cloche retentissante de la vérité dans un monde en perpétuelle mutation"
+description: "Orion, reçu par Al Fike : « Aujourd’hui, je souhaite vous parler de la nature du changement et de la Loi de Progression dans l’univers. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

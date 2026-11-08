@@ -1,7 +1,7 @@
 ---
 title: "Vous devez semer la Graine"
 menu_title: ""
-description: "Vous devez semer la Graine"
+description: "St Pierre : « Moi aussi, j'ai souhaité venir ce soir. Je ressens un grand bonheur et une grande joie d'être autorisé à vous parler, mes amis, à me tenir … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

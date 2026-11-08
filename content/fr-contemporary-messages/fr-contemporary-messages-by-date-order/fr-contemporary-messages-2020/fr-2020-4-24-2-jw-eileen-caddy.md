@@ -1,7 +1,7 @@
 ---
 title: "Là où votre cœur est là, là est aussi votre trésor"
 menu_title: ""
-description: "Là où votre cœur est là, là est aussi votre trésor"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Pour ceux d’entre vous qui ne me connaissent pas, je fus connue en tant qu’Eileen Caddy et la fondatrice … »"
 date: 2022-06-01 06:00:01+00:1070
 draft: False
 hidden: True

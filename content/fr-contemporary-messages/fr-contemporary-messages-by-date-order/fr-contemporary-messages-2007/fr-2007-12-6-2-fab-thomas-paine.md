@@ -1,7 +1,7 @@
 ---
 title: "Le militarisme a tout faux"
 menu_title: ""
-description: "Le militarisme a tout faux"
+description: "Thomas Paine, reçu par FAB : « Dans ma canalisation, Une discussion sur le médium et la guerre, j'ai dit : « Certains aspects de la Révolution Américaine … »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

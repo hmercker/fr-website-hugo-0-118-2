@@ -1,7 +1,7 @@
 ---
 title: "Partagez l'Amour qui réside en vos âmes"
 menu_title: ""
-description: "Partagez l'Amour qui réside en vos âmes"
+description: "George Stokes, reçu par Elizabeth Mack : « Il répand Ses dons sur Ses véritables enfants, dont les âmes sont ouvertes, comme les vôtres en ce moment. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tu seras guérie"
 menu_title: ""
-description: "Tu seras guérie"
+description: "Marie, reçu par Al Fike : « Lorsque la fille crée une perturbation, vous devez prier pour elle et lui envoyer votre amour. »"
 date: 2022-06-01 06:00:01+00:239
 draft: False
 hidden: True

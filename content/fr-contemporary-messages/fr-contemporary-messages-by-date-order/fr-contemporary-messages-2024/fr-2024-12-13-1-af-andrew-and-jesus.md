@@ -1,7 +1,7 @@
 ---
 title: "Il y a encore tant à faire"
 menu_title: ""
-description: "Il y a encore tant à faire"
+description: "André et Jésus, reçu par Albert Fike : « Que le Souffle de Dieu soit sur vous et que la paix qui dépasse toute compréhension vous enveloppe, afin que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

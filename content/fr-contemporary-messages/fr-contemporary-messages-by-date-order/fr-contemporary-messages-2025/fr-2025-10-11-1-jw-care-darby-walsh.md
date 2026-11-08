@@ -1,7 +1,7 @@
 ---
 title: "Tous les efforts accomplis dans l'Amour de Dieu sont louables"
 menu_title: ""
-description: "Tous les efforts accomplis dans l'Amour de Dieu sont louables"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Votre engagement envers la création de sanctuaires me tient particulièrement à cœur. Mes anges m’avaient … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Maintenir l'harmonie dans votre groupe - Voix Directe"
 menu_title: ""
-description: "Maintenir l'harmonie dans votre groupe - Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Il a été question de l’importance pour vous tous, au sein de ce groupe, d’être en harmonie les uns avec les autres. »"
 date: 2022-06-01 06:00:01+00:1120
 draft: False
 hidden: True

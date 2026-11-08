@@ -1,7 +1,7 @@
 ---
 title: "Le Bouddha est très heureux"
 menu_title: ""
-description: "Le Bouddha est très heureux"
+description: "Bouddha, reçu par FAB : « Je sais que vous avez été curieux à mon sujet. J'ai été béatement heureux. »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

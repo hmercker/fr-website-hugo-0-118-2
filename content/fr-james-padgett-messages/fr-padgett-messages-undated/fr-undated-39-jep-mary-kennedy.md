@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy a progressé dans la même sphère que celle habitée par Mme Hélène Padgett"
 menu_title: ""
-description: "Mary Kennedy a progressé dans la même sphère que celle habitée par Mme Hélène Padgett"
+description: "Mary Kennedy, reçu par James Padgett : « Vous ne devez pas être surpris que je vienne écrire, car si vous pouviez vous rendre compte que cela fait … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les expériences d'un Kennedy en esprit - 2"
 menu_title: ""
-description: "Les expériences d'un Kennedy en esprit - 2"
+description: "John F Kennedy Jr, reçu par FAB : « Je voudrais ajouter à ma précédente canalisation. Il y a plus que je souhaite dire. »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

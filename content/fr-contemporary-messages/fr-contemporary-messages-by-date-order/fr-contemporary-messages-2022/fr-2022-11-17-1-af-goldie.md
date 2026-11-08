@@ -1,7 +1,7 @@
 ---
 title: "Mangez de la crème glacée pour célébrer l'amour de Dieu"
 menu_title: ""
-description: "Mangez de la crème glacée pour célébrer l'amour de Dieu"
+description: "Goldie, reçu par Al Fike : « Assurez-vous d’avoir de la crème glacée dans votre rassemblement, car j’ai entendu dire que cela rend les gens heureux. »"
 date: 2022-06-01 06:00:01+00:211
 draft: False
 hidden: True

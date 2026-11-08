@@ -1,7 +1,7 @@
 ---
 title: "Encouragement au développement des dons de médiumnité"
 menu_title: ""
-description: "Encouragement au développement des dons de médiumnité"
+description: "Seretta Kem, reçu par Al Fike : « Je me suis impliquée avec cet instrument et d’autres dans de nombreuses formes de développement de la médiumnité et des … »"
 date: 2022-06-01 06:00:01+00:997
 draft: False
 hidden: True

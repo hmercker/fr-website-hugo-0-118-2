@@ -1,7 +1,7 @@
 ---
 title: "Ne vous découragez pas dans votre quête de l'Amour Divin"
 menu_title: ""
-description: "Ne vous découragez pas dans votre quête de l'Amour Divin"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Je réside dans les Cieux Célestes et j’ai parcouru un long chemin pour être avec vous alors que vous partagez … »"
 date: 2022-06-01 06:00:01+00:764
 draft: False
 hidden: True

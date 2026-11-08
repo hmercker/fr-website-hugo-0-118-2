@@ -1,7 +1,7 @@
 ---
 title: "Les distorsions de l’histoire"
 menu_title: ""
-description: "Les distorsions de l’histoire"
+description: "Judas, reçu par H : « Je vois que tu es un peu inquiet. Eh bien, mon cher ami, bien que tu pensais être en bonne condition, ce n’était pas vrai. »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

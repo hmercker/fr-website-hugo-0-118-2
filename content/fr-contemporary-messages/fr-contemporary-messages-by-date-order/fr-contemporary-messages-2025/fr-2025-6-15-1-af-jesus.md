@@ -1,7 +1,7 @@
 ---
 title: "Puissante Bénédiction d'Amour"
 menu_title: ""
-description: "Puissante Bénédiction d'Amour"
+description: "Jésus, reçu par Albert Fike : « En priant pour ce don, vous aspirez à l’éveil, à la transformation, à ce que l’amour soit la force et l’expression … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

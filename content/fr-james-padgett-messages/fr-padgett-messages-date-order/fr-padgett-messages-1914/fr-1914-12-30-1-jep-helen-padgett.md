@@ -1,7 +1,7 @@
 ---
 title: "Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone"
 menu_title: ""
-description: "Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone"
+description: "Hélène Padgett, reçu par James Padgett : « Le Dr Stone est un homme différent. Il a un développement spirituel considérable, et il est un chercheur … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

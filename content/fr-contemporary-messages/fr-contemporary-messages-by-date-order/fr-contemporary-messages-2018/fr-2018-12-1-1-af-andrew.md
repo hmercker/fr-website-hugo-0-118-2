@@ -1,7 +1,7 @@
 ---
 title: "Il est encore temps de réveiller vos âmes par l’Amour de Dieu"
 menu_title: ""
-description: "Il est encore temps de réveiller vos âmes par l’Amour de Dieu"
+description: "André, reçu par Al Fike : « Je vous exhorte à continuer de prier avec ferveur pour l’Amour du Père, non pas pour obtenir certains résultats matériels par … »"
 date: 2022-06-01 06:00:01+00:585
 draft: False
 hidden: True

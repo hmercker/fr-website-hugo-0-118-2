@@ -1,7 +1,7 @@
 ---
 title: "Rester éveillé"
 menu_title: ""
-description: "Rester éveillé"
+description: "Georges Gurdjieff, reçu par Jimbeau Walsh : « Considérez-moi comme le grand-père spirituel de celui à travers qui je parle. J’ai pensé que je passerais … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

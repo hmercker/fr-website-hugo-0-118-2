@@ -1,7 +1,7 @@
 ---
 title: "Cette communion peut être la vôtre"
 menu_title: ""
-description: "Cette communion peut être la vôtre"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Pendant cette période sur Terre où vous avez été quelque peu retirés du monde en général, vous avez eu … »"
 date: 2022-06-01 06:00:01+00:1143
 draft: False
 hidden: True

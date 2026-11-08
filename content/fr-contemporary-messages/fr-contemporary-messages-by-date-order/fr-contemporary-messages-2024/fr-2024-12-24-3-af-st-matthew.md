@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de Noël"
 menu_title: ""
-description: "Bénédiction de Noël"
+description: "Matthieu, reçu par Albert Fike : « Vous honorez notre frère bien-aimé, Jésus, en recherchant la Vérité qu’il a enseignée, en démontrant la Vérité dans vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

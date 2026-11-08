@@ -1,7 +1,7 @@
 ---
 title: "Les préparatifs de l'esprit se poursuivent"
 menu_title: ""
-description: "Les préparatifs de l'esprit se poursuivent"
+description: "Seretta Kem, reçu par Al Fike : « Nous continuons à vous préparer, chacun, même ceux qui sont en voyage. Nous continuons à travailler avec vous et à vous … »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes réels"
 menu_title: ""
-description: "Nous sommes réels"
+description: "Anonyme, reçu par PJR : « Je sais qu’il semble que le monde des esprits n’existe que sous la forme d’une sorte de conte de fées farfelu des frères Grimm … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

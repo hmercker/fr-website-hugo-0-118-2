@@ -1,7 +1,7 @@
 ---
 title: "Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité"
 menu_title: ""
-description: "Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité"
+description: "Jésus, reçu par Al Fike : « Aujourd'hui, je souhaite parler des obstacles que rencontre l'esprit dans sa relation avec les royaumes spirituels. »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

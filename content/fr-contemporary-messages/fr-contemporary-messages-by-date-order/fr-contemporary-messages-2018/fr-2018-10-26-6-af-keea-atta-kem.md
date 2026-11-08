@@ -1,7 +1,7 @@
 ---
 title: "L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons"
 menu_title: ""
-description: "L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons"
+description: "Keea Atta Kem, reçu par Al Fike : « Je vous ai donné à tous des roses pour commémorer vos efforts ensemble. Chaque rose reflète les teintes de vos robes … »"
 date: 2022-06-01 06:00:01+00:545
 draft: False
 hidden: True

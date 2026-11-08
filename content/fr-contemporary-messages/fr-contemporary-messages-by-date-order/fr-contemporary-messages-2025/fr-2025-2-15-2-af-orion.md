@@ -1,7 +1,7 @@
 ---
 title: "Dissoudre la tyrannie de notre esprit est essentiel à la conscience de l'âme"
 menu_title: ""
-description: "Dissoudre la tyrannie de notre esprit est essentiel à la conscience de l'âme"
+description: "Orion, reçu par Albert Fike : « Que la bénédiction de l’Amour de notre Créateur continue de se déverser en vous. Cet Amour, fondement même de tout … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

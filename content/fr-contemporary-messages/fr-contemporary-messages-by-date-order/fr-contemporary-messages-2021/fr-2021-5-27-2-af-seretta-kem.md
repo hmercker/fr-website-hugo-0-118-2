@@ -1,7 +1,7 @@
 ---
 title: "Encourager le developpement de la Voix Directe dans le Monde"
 menu_title: ""
-description: "Encourager le developpement de la Voix Directe dans le Monde"
+description: "Seretta Kem, reçu par Al Fike : « Mon cher frère est plutôt surpris de me voir tel que j’étais sur Terre, et d’avoir la peau foncée, car j’étais Nubien … »"
 date: 2022-06-01 06:00:01+00:1518
 draft: False
 hidden: True

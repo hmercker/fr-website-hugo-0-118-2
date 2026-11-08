@@ -1,7 +1,7 @@
 ---
 title: "Répondre par l’Amour"
 menu_title: ""
-description: "Répondre par l’Amour"
+description: "Yogananda, reçu par Jimbeau Walsh : « Tant de personnes souhaitent, prient pour une guérison. Prenons le corps humain et lorsqu’il y a une maladie, cela … »"
 date: 2022-06-01 06:00:01+00:1305
 draft: False
 hidden: True

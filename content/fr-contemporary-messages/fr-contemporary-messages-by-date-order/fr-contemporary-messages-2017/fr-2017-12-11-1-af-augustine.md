@@ -1,7 +1,7 @@
 ---
 title: "Le voyage de l'éveil"
 menu_title: ""
-description: "Le voyage de l'éveil"
+description: "Augustin, reçu par Al Fike : « Que l'Amour du Père continue d'inonder vos âmes et de vous amener à l'expiation. Je l'ai fait en croyant sincèrement que … »"
 date: 2022-06-01 06:00:01+00:268
 draft: False
 hidden: True

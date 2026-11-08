@@ -1,7 +1,7 @@
 ---
 title: "Moïse sur le Judaïsme et le Christianisme"
 menu_title: ""
-description: "Moïse sur le Judaïsme et le Christianisme"
+description: "Moïse, reçu par FAB : « Permettez-moi de poursuivre la présentation suite à la canalisation précédente relative à mes commentaires concernant le Judaïsme. »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

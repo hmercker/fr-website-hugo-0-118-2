@@ -1,7 +1,7 @@
 ---
 title: "Prier pour l'Amour de Dieu"
 menu_title: ""
-description: "Prier pour l'Amour de Dieu"
+description: "St Matthieu, reçu par Al Fike : « Il y a un grand désespoir dans votre monde. Beaucoup d'âmes éprouvent un sentiment de deuil et de perte parce qu'elles … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

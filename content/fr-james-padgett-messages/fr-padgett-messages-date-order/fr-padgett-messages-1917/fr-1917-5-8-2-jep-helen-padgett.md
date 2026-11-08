@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le message de Jésus sur le travail de M. Padgett parmi les esprits sombres"
 menu_title: ""
-description: "Hélène commente le message de Jésus sur le travail de M. Padgett parmi les esprits sombres"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as eu, ce soir, un message du Maître que tu ne t’attendais pas à recevoir. Il t’éclairera considérablement … »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

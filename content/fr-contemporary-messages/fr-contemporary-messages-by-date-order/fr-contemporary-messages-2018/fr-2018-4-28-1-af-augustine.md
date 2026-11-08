@@ -1,7 +1,7 @@
 ---
 title: "Préparez-vous aux changements à venir"
 menu_title: ""
-description: "Préparez-vous aux changements à venir"
+description: "Augustin, reçu par Al Fike : « Vous voyez qu’à l’intérieur de ce plan, il y aura une sorte de grande révélation, une sorte de réveil qui commencera en … »"
 date: 2022-06-01 06:00:01+00:383
 draft: False
 hidden: True

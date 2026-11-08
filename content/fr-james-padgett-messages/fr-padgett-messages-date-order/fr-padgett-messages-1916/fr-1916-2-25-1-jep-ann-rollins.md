@@ -1,7 +1,7 @@
 ---
 title: "Ann Rollins. Qui et qu’est ce que Dieu (Suite) ? "
 menu_title: ""
-description: "Ann Rollins. Qui et qu’est ce que Dieu (Suite) ? "
+description: "Anne Rollins, reçu par James Padgett : « Eh bien nous allons essayer, et si je remarque que tu ne l’es pas, j’arrêterai. Comme je le disais, Dieu n’est … »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

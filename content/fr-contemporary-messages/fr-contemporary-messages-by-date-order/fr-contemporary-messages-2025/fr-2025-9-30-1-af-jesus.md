@@ -1,7 +1,7 @@
 ---
 title: "Boire des Eaux Vives"
 menu_title: ""
-description: "Boire des Eaux Vives"
+description: "Jésus, reçu par Albert Fike : « En ouvrant grand votre âme, buvez de ces Eaux Vives, buvez de cette bénédiction, afin que vous puissiez véritablement … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

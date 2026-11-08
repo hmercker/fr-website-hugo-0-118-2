@@ -1,7 +1,7 @@
 ---
 title: "La sœur du Dr Stone dit qu’elle n’était pas très avisée lors de sa vie terrestre, mais elle connaît maintenant les merveilleuses choses qui sont venues à elle avec l’influx de l’amour du Père"
 menu_title: ""
-description: "La sœur du Dr Stone dit qu’elle n’était pas très avisée lors de sa vie terrestre, mais elle connaît maintenant les merveilleuses choses qui sont venues à elle avec l’influx de l’amour du Père"
+description: "Kate Stone, reçu par James Padgett : « Laissez-moi juste écrire une ligne ou deux, car tant qu’il y a tant d’amour, je veux en profiter et dire à mon … »"
 date: 2022-06-01 06:00:01+00:241
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Parvenir à la Vérité et à la Clarté n'est pas chose aisée"
 menu_title: ""
-description: "Parvenir à la Vérité et à la Clarté n'est pas chose aisée"
+description: "Confucius, reçu par Al Fike : « Soyez bénis, mes enfants, belles âmes. Mais je vous le dis : si le plan de Dieu devait se dérouler selon la volonté et les … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

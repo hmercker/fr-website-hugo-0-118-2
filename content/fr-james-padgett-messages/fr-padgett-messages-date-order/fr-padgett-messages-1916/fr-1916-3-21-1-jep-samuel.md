@@ -1,7 +1,7 @@
 ---
 title: "La continuité de la vie d’un homme après la mort du corps, comme le montrent les manifestations de la nature, n’est pas concluante"
 menu_title: ""
-description: "La continuité de la vie d’un homme après la mort du corps, comme le montrent les manifestations de la nature, n’est pas concluante"
+description: "Samuel, reçu par James Padgett : « Je désire écrire un court instant sur un sujet qui est important pour ceux qui ont des doutes quant à la réalité de la … »"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True

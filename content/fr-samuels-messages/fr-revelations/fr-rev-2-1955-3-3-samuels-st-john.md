@@ -1,7 +1,7 @@
 ---
 title: "2ème Révélation : La vie et le ministère de Jean le Baptiste"
 menu_title: ""
-description: "2ème Révélation : La vie et le ministère de Jean le Baptiste"
+description: "Jean le Baptiste, reçu par Dr Samuels : « Je me rends compte que vous êtes fatigué après avoir reçu le message de Jésus, mais je tiens à fournir quelques … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La seule partie de l’homme qui est immortelle c’est l’âme, l’esprit est simplement l’énergie active qui manifeste la vie et ces énergies pour l’existence dépendent des énergies émises par l’âme"
 menu_title: ""
-description: "La seule partie de l’homme qui est immortelle c’est l’âme, l’esprit est simplement l’énergie active qui manifeste la vie et ces énergies pour l’existence dépendent des énergies émises par l’âme"
+description: "Jésus, reçu par James Padgett : « Je vois que vous n’avez pas été bien portant et que votre vitalité est un peu épuisée, et qu’il n’est pas judicieux pour … »"
 date: 2022-06-01 06:00:01+00:264
 draft: False
 hidden: True

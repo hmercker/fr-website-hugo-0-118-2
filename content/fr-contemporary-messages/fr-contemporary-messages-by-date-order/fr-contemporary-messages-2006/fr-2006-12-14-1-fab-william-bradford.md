@@ -1,7 +1,7 @@
 ---
 title: "Pensées d'un leader Pèlerin"
 menu_title: ""
-description: "Pensées d'un leader Pèlerin"
+description: "William Bradford, reçu par FAB : « Regardez dans votre passé, et vous vous souviedrez de tant de circonstances difficiles qui se sont bien terminées, et … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

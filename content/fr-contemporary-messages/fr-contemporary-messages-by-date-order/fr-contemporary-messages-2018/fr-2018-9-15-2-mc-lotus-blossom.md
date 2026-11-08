@@ -1,7 +1,7 @@
 ---
 title: "Faites appel à moi pour la guérison"
 menu_title: ""
-description: "Faites appel à moi pour la guérison"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Je vous propose de m'inviter à être près de vous pour la guérison, car il n'est pas facile d'être dans de … »"
 date: 2022-06-01 06:00:01+00:478
 draft: False
 hidden: True

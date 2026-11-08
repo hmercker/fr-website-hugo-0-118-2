@@ -1,7 +1,7 @@
 ---
 title: "Jésus – La puissance de l’Amour pour racheter les hommes du péché et de l’erreur"
 menu_title: ""
-description: "Jésus – La puissance de l’Amour pour racheter les hommes du péché et de l’erreur"
+description: "Jésus, reçu par James Padgett : « Je veux écrire ce soir sur le pouvoir de l’Amour Divin pour racheter les hommes du péché et de l’erreur. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

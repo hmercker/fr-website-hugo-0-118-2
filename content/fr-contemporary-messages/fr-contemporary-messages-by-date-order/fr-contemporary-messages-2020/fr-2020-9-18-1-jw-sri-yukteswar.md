@@ -1,7 +1,7 @@
 ---
 title: "Sri Yukteswar rend hommage Yogananda"
 menu_title: ""
-description: "Sri Yukteswar rend hommage Yogananda"
+description: "Sri Yukteswar, reçu par Jimbeau Walsh : « Je fus l'enseignant de Paramahansa Yogananda alors qu’il était sur terre et je l’ai guidé dans son voyage en esprit. »"
 date: 2022-06-01 06:00:01+00:1252
 draft: False
 hidden: True

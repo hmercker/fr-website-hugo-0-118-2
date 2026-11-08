@@ -1,7 +1,7 @@
 ---
 title: "Jésus confirme son intention de se matérialiser"
 menu_title: ""
-description: "Jésus confirme son intention de se matérialiser"
+description: "Jésus, reçu par Al Fike : « Âmes bien-aimées, c'est cette ferveur et ce désir, cet effort fourni qui a permis ma venue en ce lieu. »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

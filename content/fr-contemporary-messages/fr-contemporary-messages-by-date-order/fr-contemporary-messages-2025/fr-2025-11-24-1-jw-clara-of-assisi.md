@@ -1,7 +1,7 @@
 ---
 title: "Réticence et Courage"
 menu_title: ""
-description: "Réticence et Courage"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Je souhaite vous parler de la réticence et de la gravité. Avant tout, lorsque la foi qui accompagne vos … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

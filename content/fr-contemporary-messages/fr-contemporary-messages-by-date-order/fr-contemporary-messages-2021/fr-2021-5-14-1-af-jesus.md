@@ -1,7 +1,7 @@
 ---
 title: "Un appel au leadership spirituel"
 menu_title: ""
-description: "Un appel au leadership spirituel"
+description: "Jésus, reçu par Al Fike : « Puissiez-vous continuer à demeurer dans la lumière de l’amour de Dieu. Puissiez-vous continuer à prier pour vos frères et … »"
 date: 2022-06-01 06:00:01+00:1504
 draft: False
 hidden: True

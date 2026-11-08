@@ -1,7 +1,7 @@
 ---
 title: "N'est-ce pas le désir de votre cœur ?"
 menu_title: ""
-description: "N'est-ce pas le désir de votre cœur ?"
+description: "Anne Rollins, reçu par Jimbeau Walsh : « Je souhaite vous rappeler gentiment le fondement de votre communauté. Elle repose sur la confiance dans cette … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez ouverts à l’Amour de Dieu"
 menu_title: ""
-description: "Soyez ouverts à l’Amour de Dieu"
+description: "Jésus, reçu par Al Fike : « Vous êtes aimés, chacun est une belle âme, chacun est digne du toucher d’amour de Dieu. Chaque personne qui permet ce contact … »"
 date: 2022-06-01 06:00:01+00:229
 draft: False
 hidden: True

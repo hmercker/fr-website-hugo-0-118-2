@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que le message précédent a bien été révélé par Samuel"
 menu_title: ""
-description: "Hélène confirme que le message précédent a bien été révélé par Samuel"
+description: "Hélène Padgett, reçu par James Padgett : « Et bien mon cher, je vois que tu es fatigué et je n’écrirai pas beaucoup. Le message que tu as reçu est de … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

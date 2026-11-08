@@ -1,7 +1,7 @@
 ---
 title: "Soyez attentif aux désirs de votre cœur"
 menu_title: ""
-description: "Soyez attentif aux désirs de votre cœur"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Il est tellement plus facile de voir le travail du Créateur dans la nature. Je veux vous encourager tous … »"
 date: 2022-06-01 06:00:01+00:759
 draft: False
 hidden: True

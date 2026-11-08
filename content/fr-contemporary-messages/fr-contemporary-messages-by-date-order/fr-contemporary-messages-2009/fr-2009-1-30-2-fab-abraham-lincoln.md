@@ -1,7 +1,7 @@
 ---
 title: "Lincoln gagne en confiance"
 menu_title: ""
-description: "Lincoln gagne en confiance"
+description: "Abraham Lincoln, reçu par FAB : « Au fur et à mesure que la guerre avançait, je devenais de plus en plus à l'aise dans le commandement. »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

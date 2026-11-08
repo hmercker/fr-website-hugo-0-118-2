@@ -1,7 +1,7 @@
 ---
 title: "Ishmirama"
 menu_title: ""
-description: "Ishmirama"
+description: "Keea Atta Kem : « N'était-il pas merveilleux ? C'est une âme merveilleuse. »"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True

@@ -2,8 +2,7 @@
 title: "La paix et l'amour sont assurés
 "
 menu_title: ""
-description: "La paix et l'amour sont assurés
-"
+description: "Will Rogers, reçu par FAB : « Vous m'avez manifestement attiré en lisant mes paroles. Je me suis vraiment senti concerné, et je le suis toujours. »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

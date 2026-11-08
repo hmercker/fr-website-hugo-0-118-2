@@ -1,7 +1,7 @@
 ---
 title: "Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous"
 menu_title: ""
-description: "Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous"
+description: "Martha, reçu par Al Fike : « Je désire vous transmettre un message. Chacun de vous, dans la semaine à venir recevra un signe, une vision, un message, une … »"
 date: 2022-06-01 06:00:01+00:608
 draft: False
 hidden: True

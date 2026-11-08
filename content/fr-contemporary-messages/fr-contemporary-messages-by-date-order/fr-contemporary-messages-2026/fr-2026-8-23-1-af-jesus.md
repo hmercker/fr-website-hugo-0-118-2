@@ -1,7 +1,7 @@
 ---
 title: "Soyez prêts et préparés au changement imminent de la réalité de l’humanité"
 menu_title: ""
-description: "Soyez prêts et préparés au changement imminent de la réalité de l’humanité"
+description: "Jésus, reçu par Albert Fike : « L’éveil de l’humanité est imminent. Ceux qui sont disposés à s’éveiller et qui le désirent trouveront une grande joie et … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

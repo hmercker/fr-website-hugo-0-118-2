@@ -1,7 +1,7 @@
 ---
 title: "Une mystique médiévale exulte dans le monde spirituel"
 menu_title: ""
-description: "Une mystique médiévale exulte dans le monde spirituel"
+description: "Hildegarde de Bingen, reçu par FAB : « Oh, j'ai trouvé ici l'accomplissement de mon cœur, et d'une manière que je ne pouvais guère croire sur terre. »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

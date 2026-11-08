@@ -1,7 +1,7 @@
 ---
 title: "Ensemble, nous porterons amour, lumière et élévation"
 menu_title: ""
-description: "Ensemble, nous porterons amour, lumière et élévation"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « …une figure qui fait désormais partie de moi. J’ai hâte de visiter ce lieu pour lequel je me suis tant battue. »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

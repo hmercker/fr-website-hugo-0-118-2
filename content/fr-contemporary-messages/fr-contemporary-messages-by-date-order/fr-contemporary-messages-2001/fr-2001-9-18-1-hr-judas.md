@@ -1,7 +1,7 @@
 ---
 title: "Islam et Mohammed"
 menu_title: ""
-description: "Islam et Mohammed"
+description: "Judas, reçu par H : « Mon cher frère, je vois que tu lis le Coran. Tu l’as déjà lu une fois, et cela ne t’a pas particulièrement impressionné. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

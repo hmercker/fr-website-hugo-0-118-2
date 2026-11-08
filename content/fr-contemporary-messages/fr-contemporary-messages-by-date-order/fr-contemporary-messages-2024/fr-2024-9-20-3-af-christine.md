@@ -1,7 +1,7 @@
 ---
 title: "Être est notre religion"
 menu_title: ""
-description: "Être est notre religion"
+description: "Christine, reçu par Al Fike : « Dieu a demandé et imploré de nombreuses personnes de venir aider ceux qui sont sur la Terre alors que vous continuez à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

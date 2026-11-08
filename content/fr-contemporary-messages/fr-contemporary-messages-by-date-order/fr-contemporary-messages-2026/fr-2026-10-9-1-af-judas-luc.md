@@ -1,7 +1,7 @@
 ---
 title: "Cercles de prière en présentiel (Amour Divin)"
 menu_title: ""
-description: "Cercles de prière en présentiel (Amour Divin)"
+description: "Judas et Luc, reçu par Albert Fike : « Je vous encourage à inviter à votre cercle les personnes qui, selon vous, manifestent un intérêt au niveau de leur âme. »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

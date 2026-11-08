@@ -1,7 +1,7 @@
 ---
 title: "Jean affirme la grande importance du message de Jésus dans le choix de son ami, le Dr Stone, afin qu’il accomplisse également une grande œuvre au nom du Royaume"
 menu_title: ""
-description: "Jean affirme la grande importance du message de Jésus dans le choix de son ami, le Dr Stone, afin qu’il accomplisse également une grande œuvre au nom du Royaume"
+description: "St Jean, reçu par James Padgett : « Je me réfère plus particulièrement à la partie qui dit que votre ami (le Dr Stone) a été choisi pour effectuer un … »"
 date: 2022-06-01 06:00:01+00:296
 draft: False
 hidden: True

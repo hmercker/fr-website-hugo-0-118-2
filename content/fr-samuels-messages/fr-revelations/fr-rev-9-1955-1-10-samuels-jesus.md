@@ -1,7 +1,7 @@
 ---
 title: "9ème Révélation : L’Enfance de Jésus en Égypte"
 menu_title: ""
-description: "9ème Révélation : L’Enfance de Jésus en Égypte"
+description: "Jésus, reçu par Dr Samuels : « Je veux que vous et le Dr Stone, sachiez que ce que j’ai écrit, sur ma vie, par le biais de M. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

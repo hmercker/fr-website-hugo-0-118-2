@@ -1,7 +1,7 @@
 ---
 title: "Quand on a la foi, on peut plonger sans crainte dans l’immensité de la Création Divine"
 menu_title: ""
-description: "Quand on a la foi, on peut plonger sans crainte dans l’immensité de la Création Divine"
+description: "Augustin, reçu par Al Fike : « L’univers est empli de vérité. Il faudrait une éternité pour la comprendre et l’intégrer pleinement. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

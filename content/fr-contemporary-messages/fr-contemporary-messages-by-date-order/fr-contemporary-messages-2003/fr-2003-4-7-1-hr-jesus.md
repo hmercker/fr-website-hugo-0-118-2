@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi Jésus a-t-il choisi Judas et Marie-Madeleine ?"
 menu_title: ""
-description: "Pourquoi Jésus a-t-il choisi Judas et Marie-Madeleine ?"
+description: "Jésus, reçu par H : « Tout d’abord, comment ai-je pu approcher Judas, voir le bien en lui? Deuxièmement, de même, comment ai-je pu choisir Marie … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

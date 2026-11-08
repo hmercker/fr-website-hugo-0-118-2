@@ -1,7 +1,7 @@
 ---
 title: "Les richesses de l’Amour de Dieu"
 menu_title: ""
-description: "Les richesses de l’Amour de Dieu"
+description: "Augustin, reçu par Albert Fike : « Vous avez établi des contacts précieux et reçu de nombreuses bénédictions. Que pourriez-vous demander de plus à un … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

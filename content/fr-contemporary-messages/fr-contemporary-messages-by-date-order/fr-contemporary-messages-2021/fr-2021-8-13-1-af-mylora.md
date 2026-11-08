@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de guérison - Un jardin en vous"
 menu_title: ""
-description: "Bénédiction de guérison - Un jardin en vous"
+description: "Mylora, reçu par Al Fike : « Que l’Amour de Dieu réveille vos âmes, mes beaux amis. Que cette lumière éclate dans le monde comme un canal de l’Amour de … »"
 date: 2022-06-01 06:00:01+00:1599
 draft: False
 hidden: True

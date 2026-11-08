@@ -1,7 +1,7 @@
 ---
 title: "Jimmy Stewart et son rôle"
 menu_title: ""
-description: "Jimmy Stewart et son rôle"
+description: "Jimmy Stewart, reçu par FAB : « Bon sang, j'aurais aimé prendre mes films aussi sérieusement que vous le faites ! J'aurais eu une vie beaucoup plus … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

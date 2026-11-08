@@ -1,7 +1,7 @@
 ---
 title: "Thomas Padgett, un grand-oncle, veut assurer à M. Padgett que les esprits éminents écrivent réellement"
 menu_title: ""
-description: "Thomas Padgett, un grand-oncle, veut assurer à M. Padgett que les esprits éminents écrivent réellement"
+description: "Thomas Padgett, reçu par James Padgett : « J’ai vécu dans le comté de St. J’étais son frère (le frère de ton grand-père). »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

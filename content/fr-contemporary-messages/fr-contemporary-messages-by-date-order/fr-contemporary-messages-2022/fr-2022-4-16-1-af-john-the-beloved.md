@@ -1,7 +1,7 @@
 ---
 title: "Prier pour l’Amour Divin"
 menu_title: ""
-description: "Prier pour l’Amour Divin"
+description: "Jean le Bien-Aimé, reçu par Al Fike : « Puissiez-vous vous enfoncer profondément en vous-même et trouver ce lieu saint où vous et Dieu êtes ensemble, où … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

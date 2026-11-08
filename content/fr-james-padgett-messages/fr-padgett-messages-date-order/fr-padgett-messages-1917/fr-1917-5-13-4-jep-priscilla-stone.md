@@ -1,7 +1,7 @@
 ---
 title: "La mère de l’éditeur est reconnaissante qu’il possède un peu de l’Amour du Père et souhaite que ces autres enfants cherchent aussi Son Amour"
 menu_title: ""
-description: "La mère de l’éditeur est reconnaissante qu’il possède un peu de l’Amour du Père et souhaite que ces autres enfants cherchent aussi Son Amour"
+description: "Priscilla Stone, reçu par James Padgett : « Je veux seulement dire un seul mot avant que vous arrêtiez d’écrire, car j’ai été présente toute la soirée, ai … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

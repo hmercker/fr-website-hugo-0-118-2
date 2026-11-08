@@ -1,7 +1,7 @@
 ---
 title: "Posséder l’Amour"
 menu_title: ""
-description: "Posséder l’Amour"
+description: "Jésus, reçu par FAB : « Laisse-moi vous expliquer. Vous vous sentez si bien en présence de ces charmants travailleurs. »"
 date: 2022-06-01 06:00:01+00:195
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reconnaissance du 10ème anniversaire du DLSF"
 menu_title: ""
-description: "Reconnaissance du 10ème anniversaire du DLSF"
+description: "Jésus, reçu par Al Fike : « Alors que vous continuez à apporter la Vérité de l’Amour de Dieu dans le monde, chacun d’entre vous est béni. »"
 date: 2023-09-01 06:00:01+00:11
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Moïse dans le désert"
 menu_title: ""
-description: "Moïse dans le désert"
+description: "Moïse, reçu par FAB : « Nous sommes heureux que vous ne connaissiez pas à l’avance le contenu de ces messages. Cela vous aide à développer votre confiance … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conversations avec Dieu, Prière et Magnétisme Spirituel"
 menu_title: ""
-description: "Conversations avec Dieu, Prière et Magnétisme Spirituel"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je vous invite humblement à prendre ce temps ensemble pour ouvrir votre cœur, afin que Dieu puisse ouvrir … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

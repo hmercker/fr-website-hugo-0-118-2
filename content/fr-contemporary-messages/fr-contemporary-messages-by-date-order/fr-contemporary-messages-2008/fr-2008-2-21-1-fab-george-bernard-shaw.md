@@ -1,7 +1,7 @@
 ---
 title: "George Bernard Shaw a réexaminé sa vie sur Terre"
 menu_title: ""
-description: "George Bernard Shaw a réexaminé sa vie sur Terre"
+description: "George Bernard Shaw, reçu par FAB : « Vous avez survécu à mon livre et à mon manuel. [Le médium venait de lire sa pièce, L'homme et le surhomme, et le … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

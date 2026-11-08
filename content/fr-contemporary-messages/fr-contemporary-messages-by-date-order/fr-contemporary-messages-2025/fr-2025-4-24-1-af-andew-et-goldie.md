@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour Al et Jeanne avant leur départ pour la Californie"
 menu_title: ""
-description: "Conseils pour Al et Jeanne avant leur départ pour la Californie"
+description: "André et Goldie, reçu par reçu par Jimbeau Walsh : « André : Nous avons effectivement un but. Chaque jour aura son but, précis et général. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

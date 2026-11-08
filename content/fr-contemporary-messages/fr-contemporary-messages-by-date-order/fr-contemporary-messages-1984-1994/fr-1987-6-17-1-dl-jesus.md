@@ -1,7 +1,7 @@
 ---
 title: "Sur la loi du progrès, du changement et de la Croissance"
 menu_title: ""
-description: "Sur la loi du progrès, du changement et de la Croissance"
+description: "Jésus, reçu par Révérend Dave Lampron : « Comme vous le savez par le message de K et même par le vôtre, j’ai introduit le concept et le sujet de la Loi du … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

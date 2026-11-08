@@ -1,7 +1,7 @@
 ---
 title: "Jésus priait et aidait M. Padgett à recevoir l’Amour Divin du Père pour que l’écriture soit reçue par lui"
 menu_title: ""
-description: "Jésus priait et aidait M. Padgett à recevoir l’Amour Divin du Père pour que l’écriture soit reçue par lui"
+description: "Jésus, reçu par James Padgett : « J’ai été avec vous aujourd’hui, essayant de vous encourager avec mon amour et mon influence. »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

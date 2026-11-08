@@ -1,7 +1,7 @@
 ---
 title: "Priera avec des liens d'Âme"
 menu_title: ""
-description: "Priera avec des liens d'Âme"
+description: "Faith, reçu par Al Fike : « Et je vous aime, bien-aimées belles âmes de lumière, je vous aime tendrement. L’élan monte et les anges se rassemblent et la … »"
 date: 2023-09-01 06:00:01+00:106
 draft: False
 hidden: True

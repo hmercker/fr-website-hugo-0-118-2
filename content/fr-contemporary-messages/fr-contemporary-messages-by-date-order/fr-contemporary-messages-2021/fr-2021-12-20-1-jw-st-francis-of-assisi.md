@@ -1,7 +1,7 @@
 ---
 title: "Ce choix simple"
 menu_title: ""
-description: "Ce choix simple"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Dans mes premiers jours sur Terre, j’ai fait l’expérience du monde ; j’avais mon agenda ; j’avais des … »"
 date: 2022-06-01 06:00:01+00:1735
 draft: False
 hidden: True

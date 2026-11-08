@@ -1,7 +1,7 @@
 ---
 title: "Faites grandir vos âmes dans le jardin d’Amour de Dieu"
 menu_title: ""
-description: "Faites grandir vos âmes dans le jardin d’Amour de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Il a été très influencé par la lecture de ma vie et par sa visite à Assise au cours de sa vie et il a eu … »"
 date: 2022-06-01 06:00:01+00:1010
 draft: False
 hidden: True

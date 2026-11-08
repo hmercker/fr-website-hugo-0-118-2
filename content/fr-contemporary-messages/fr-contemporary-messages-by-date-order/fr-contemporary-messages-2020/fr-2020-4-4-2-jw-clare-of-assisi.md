@@ -1,7 +1,7 @@
 ---
 title: "Richesse et joie"
 menu_title: ""
-description: "Richesse et joie"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Vous me connaissez peut-être comme la fondatrice de l’ordre des femmes monastiques qui se sont appelées et … »"
 date: 2022-06-01 06:00:01+00:1052
 draft: False
 hidden: True

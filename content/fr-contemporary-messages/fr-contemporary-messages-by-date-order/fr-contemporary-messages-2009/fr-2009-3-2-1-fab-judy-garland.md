@@ -1,7 +1,7 @@
 ---
 title: "Judy Garland et le spectacle"
 menu_title: ""
-description: "Judy Garland et le spectacle"
+description: "Judy Garland, reçu par FAB : « J'aimais vraiment me produire sur scène, préférant toujours les spectacles et les concerts, même s'ils ne se passaient pas … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La valeur de la connaissance de vos âmes"
 menu_title: ""
-description: "La valeur de la connaissance de vos âmes"
+description: "James Reid, reçu par Al Fike : « Mes amis, c’est James, James Reid . Comme c’est différent de parler de ce côté de la voix. »"
 date: 2022-06-01 06:00:01+00:269
 draft: False
 hidden: True

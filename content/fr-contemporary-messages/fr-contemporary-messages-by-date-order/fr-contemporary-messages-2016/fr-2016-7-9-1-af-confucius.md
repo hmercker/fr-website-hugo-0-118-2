@@ -1,7 +1,7 @@
 ---
 title: "Priez quotidiennement pour une âme éveillée"
 menu_title: ""
-description: "Priez quotidiennement pour une âme éveillée"
+description: "Confucius, reçu par Al Fike : « Âmes bien-aimées, posez vos questions, exprimez votre vérité, apprenez à connaître votre véritable nature — cet espace en … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bijoux d'amour"
 menu_title: ""
-description: "Bijoux d'amour"
+description: "Jésus, reçu par Amada Reza : « Je vous remercie très sincèrement pour votre volonté d'accepter que ce don que vous possédez est une chose que vous vous … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

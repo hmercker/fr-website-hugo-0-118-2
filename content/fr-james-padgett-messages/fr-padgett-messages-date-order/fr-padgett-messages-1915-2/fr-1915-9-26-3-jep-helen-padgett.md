@@ -1,7 +1,7 @@
 ---
 title: "Jésus a montré sa gloire"
 menu_title: ""
-description: "Jésus a montré sa gloire"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, maintenant tu dois être convaincu au-delà de tout doute que tu es l’élu du Maître pour … »"
 date: 2022-06-01 06:00:01+00:274
 draft: False
 hidden: True

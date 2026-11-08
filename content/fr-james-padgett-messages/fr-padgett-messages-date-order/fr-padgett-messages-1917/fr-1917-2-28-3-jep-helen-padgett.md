@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que Luther a écrit sur « Dieu incarné »"
 menu_title: ""
-description: "Hélène affirme que Luther a écrit sur « Dieu incarné »"
+description: "Hélène Padgett, reçu par James Padgett : « Il semblait être très sérieux et très désireux d’écrire, et voyant qu’il était un bon esprit avec un message … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

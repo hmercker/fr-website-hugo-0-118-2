@@ -1,7 +1,7 @@
 ---
 title: "Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme"
 menu_title: ""
-description: "Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme"
+description: "Marie-Madeleine, reçu par Jimbeau Walsh : « Je vis dans une sphère élevée dans les Royaumes Célestes. Je vous rejoint dans votre discussion sur le … »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

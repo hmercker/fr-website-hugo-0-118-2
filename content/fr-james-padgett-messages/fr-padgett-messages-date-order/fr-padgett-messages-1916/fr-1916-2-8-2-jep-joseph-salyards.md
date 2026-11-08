@@ -1,7 +1,7 @@
 ---
 title: "M. Padgett est un ancien élève du professeur Salyards et maintenant, les rôles sont inversés"
 menu_title: ""
-description: "M. Padgett est un ancien élève du professeur Salyards et maintenant, les rôles sont inversés"
+description: "Professeur Salyards, reçu par James Padgett : « Eh bien, je viendrai un soir cette semaine et j’essaierai de le terminer. Je vois que vous êtes en très … »"
 date: 2022-06-01 06:00:01+00:141
 draft: False
 hidden: True

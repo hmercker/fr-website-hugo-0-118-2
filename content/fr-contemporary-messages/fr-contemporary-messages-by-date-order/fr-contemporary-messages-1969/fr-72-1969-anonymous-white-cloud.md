@@ -1,7 +1,7 @@
 ---
 title: "Vous devez chercher et vous préparer à recevoir"
 menu_title: ""
-description: "Vous devez chercher et vous préparer à recevoir"
+description: "Nuage Blanc : « Les Indiens ne s'assoient jamais sur une chaise. Que les bénédictions du Grand Esprit Blanc tombent sur vous, mes amis. »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

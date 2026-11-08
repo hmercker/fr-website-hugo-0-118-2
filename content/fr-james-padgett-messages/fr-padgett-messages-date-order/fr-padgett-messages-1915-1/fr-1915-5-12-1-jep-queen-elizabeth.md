@@ -1,7 +1,7 @@
 ---
 title: "Une grande reine à son époque avoue librement les violations de la Loi de compensation qu’elle a commis et révèle une âme pleine de remords et de contrition"
 menu_title: ""
-description: "Une grande reine à son époque avoue librement les violations de la Loi de compensation qu’elle a commis et révèle une âme pleine de remords et de contrition"
+description: "Reine Elizabeth1, reçu par James Padgett : « Eh bien, j’ai été une femme très mauvaise sur terre comme je vois maintenant la vraie réalité des choses et … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

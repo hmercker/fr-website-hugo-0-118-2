@@ -1,7 +1,7 @@
 ---
 title: "La lumière doit vaincre les ténèbres"
 menu_title: ""
-description: "La lumière doit vaincre les ténèbres"
+description: "Jésus, reçu par Al Fike : « Frères et sœurs, me voici. Il y a deux courants puissants dans ce monde, l’un qui se dirige vers les ténèbres et l’autre vers … »"
 date: 2022-06-01 06:00:01+00:635
 draft: False
 hidden: True

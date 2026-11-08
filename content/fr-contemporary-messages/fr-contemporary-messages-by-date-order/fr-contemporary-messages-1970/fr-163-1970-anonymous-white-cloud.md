@@ -1,7 +1,7 @@
 ---
 title: "Conférence sur la guérison"
 menu_title: ""
-description: "Conférence sur la guérison"
+description: "Nuage Blanc : « Très heureux de voir tant de guérisons au début de la séance. Beaucoup de ceux qui pensent qu'ils n'ont pas besoin de guérison, ont besoin … »"
 date: 2022-06-01 06:00:01+00:165
 draft: False
 hidden: True

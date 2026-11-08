@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste"
 menu_title: ""
-description: "Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste"
+description: "Anne Rollins, reçu par James Padgett : « Tu n’étais pas en état de comprendre ce que j’ai écrit. Tu étais seulement dans le doute quant à ce que tu devais … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

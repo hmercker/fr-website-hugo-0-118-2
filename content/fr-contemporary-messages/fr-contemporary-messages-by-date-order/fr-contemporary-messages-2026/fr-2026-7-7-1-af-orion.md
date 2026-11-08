@@ -1,7 +1,7 @@
 ---
 title: "Maintenez une grande intensité de désir dans vos prières et votre dessein"
 menu_title: ""
-description: "Maintenez une grande intensité de désir dans vos prières et votre dessein"
+description: "Orion, reçu par Albert Fike : « Les conditions d'obscurité qui règnent dans votre monde continuent d'intensifier les nombreux défis auxquels chacun de … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

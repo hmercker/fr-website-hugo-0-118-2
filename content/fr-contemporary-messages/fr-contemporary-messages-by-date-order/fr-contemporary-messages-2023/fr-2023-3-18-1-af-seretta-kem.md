@@ -1,7 +1,7 @@
 ---
 title: "Développer la conscience de l'âme"
 menu_title: ""
-description: "Développer la conscience de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Il est bon que vous vous réunissiez de cette façon. Mais notre plan et nos efforts visent à affiner vos sensibilités et … »"
 date: 2023-09-01 06:00:01+00:99
 draft: False
 hidden: True

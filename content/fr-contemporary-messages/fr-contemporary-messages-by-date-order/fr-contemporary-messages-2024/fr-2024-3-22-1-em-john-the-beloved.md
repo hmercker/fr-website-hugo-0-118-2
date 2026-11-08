@@ -1,7 +1,7 @@
 ---
 title: "Plongez-vous dans la rivière de l’Amour de Dieu"
 menu_title: ""
-description: "Plongez-vous dans la rivière de l’Amour de Dieu"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Je vous souhaite à tous la bienvenue dans cet état d’amour, dans cet espace sacré où vos âmes peuvent … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

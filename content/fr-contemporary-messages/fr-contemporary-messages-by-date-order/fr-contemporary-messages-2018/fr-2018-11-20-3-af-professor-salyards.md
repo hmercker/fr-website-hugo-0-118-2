@@ -1,7 +1,7 @@
 ---
 title: "L’amour naturel contre l’Amour Divin - Développement de l’âme"
 menu_title: ""
-description: "L’amour naturel contre l’Amour Divin - Développement de l’âme"
+description: "Professeur Salyards, reçu par Al Fike : « Puisque j’étudie ce sujet, il m’a été demandé de vous donner quelques points d’intérêt et des détails concernant … »"
 date: 2022-06-01 06:00:01+00:569
 draft: False
 hidden: True

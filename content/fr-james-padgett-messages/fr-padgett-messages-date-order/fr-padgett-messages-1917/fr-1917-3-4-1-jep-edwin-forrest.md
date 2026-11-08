@@ -1,7 +1,7 @@
 ---
 title: "Edwin Forrest se réjouit du progrès qu’il fait pour sortir des ténèbres et se sent « aussi léger que l’air »"
 menu_title: ""
-description: "Edwin Forrest se réjouit du progrès qu’il fait pour sortir des ténèbres et se sent « aussi léger que l’air »"
+description: "Edwin Forrest, reçu par James Padgett : « Je ne vais pas écrire plus maintenant, et je sais que tu me pardonneras de m’être immiscé. »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

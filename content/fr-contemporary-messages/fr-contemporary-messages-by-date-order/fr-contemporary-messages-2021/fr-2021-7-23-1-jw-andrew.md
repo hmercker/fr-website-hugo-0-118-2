@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "André, reçu par Jimbeau Walsh : « Que les bénédictions de l’Amour de Dieu balaient vos âmes, chères et belles âmes que vous êtes, qui continuez à vous … »"
 date: 2023-09-01 06:00:01+00:06
 draft: False
 hidden: True

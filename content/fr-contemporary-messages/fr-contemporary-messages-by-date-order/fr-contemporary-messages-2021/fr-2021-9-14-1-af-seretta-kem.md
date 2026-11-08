@@ -1,7 +1,7 @@
 ---
 title: "Ajustements à l'ouverture de nos dons spirituels (2021 Voix Directe II)"
 menu_title: ""
-description: "Ajustements à l'ouverture de nos dons spirituels (2021 Voix Directe II)"
+description: "Seretta Kem, reçu par Al Fike : « Vous commencez à comprendre vos sensibilités et ce qui peut résulter du temps que vous passez ensemble dans ce cercle de … »"
 date: 2022-06-01 06:00:01+00:1641
 draft: False
 hidden: True
