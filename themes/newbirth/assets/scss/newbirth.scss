@@ -72,6 +72,11 @@
     background: url(../images/ico-search.png) no-repeat center center; /* Custom search icon */
     background-size: contain; /* Ensures the icon fits inside the button */
     visibility: visible; /* Ensure the button is visible once the styles are loaded */
+    /* Hide the browser's default "Submit" text (the build's minifier removes
+       the empty value=""), as on the German site. */
+    text-indent: -9999px;
+    overflow: hidden;
+    color: transparent !important;
 }
 
 /* Hover effect for the search button */
