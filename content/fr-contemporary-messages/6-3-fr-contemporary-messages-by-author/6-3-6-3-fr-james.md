@@ -58,3 +58,4 @@ Jacques | [Soyez au service du monde](/fr-contemporary-messages/fr-contemporary-
 Jacques | [L’Amour de Dieu agit à travers nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-16-1-af-james/) | 16 Août 2024
 Jacques | [Accueil de la première prière en personne à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-3-af-james/) | 10 Janvier 2025
 Jacques | [Sachez qu'il y a beaucoup plus à venir avec vos prières, votre service, votre développement de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-4-em-james/) | 19 Janvier 2025 
+Jacques (frère de Jésus) | [Priez pour exprimer vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-2-1-em-james-brother-of-jesus/) | 2 Avril 2026

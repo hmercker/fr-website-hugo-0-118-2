@@ -86,5 +86,6 @@ Saint Luc | [Cherchez à connaître les vérités de Dieu depuis votre âme](/fr
 Saint Luc | [L’Amour de Dieu éveillera en votre âme un désir et une réceptivité accrus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-2-mc-st-luke/) | 5 Juillet 2026
 St Luc | [La guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-10-1-jw-st-luke/) | 10 Septembre 2026 
 Judas  & Luc | [Cercles de prière en présentiel (Amour Divin)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-9-1-af-judas-luc/) | 9 Octobre 2026
+St Luc | [Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-4-1-jw-st-luke/) | 4 Novembre 2026 
 
 

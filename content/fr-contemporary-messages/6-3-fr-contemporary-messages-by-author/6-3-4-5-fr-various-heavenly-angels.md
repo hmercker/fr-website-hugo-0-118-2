@@ -72,7 +72,9 @@ Jean Hugues | [La prière d'une personne rayonne au-delà d'une seule personne](
 Jean Hugues | [Beaucoup est donné à la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-14-2-em-john-hugues/) | 14 Avril 2025
 Jean Hughes | [Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-4-em-john-hughes/) | 5 Mai 2025
 Jean Hugues | [Nous avons un aperçu de cet Amour en vivant sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-8-1-em-john-hugues/) | 8 Juin 2025
-Jean Hugues | [Le Voile](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-3-2-em-john-hugues/) | 3 Juillet 2025  
+Jean Hugues | [Le Voile](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-3-2-em-john-hugues/) | 3 Juillet 2025 
+Jean Hugues | [Prier ensemble est une source de joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-5-1-em-john-hugues/) | 5 Février 2026
+Jean Hugues | [Soyez à l’écoute de la vérité transmise par cet Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-7-2--john-hugues/) | 7 Mai 2026 
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
 La Joya | [Éléments utilisés dans la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-2-mc-la-joya/) | 8 Octobre 2020
 Le père du médium | [Aide aux pays en difficulté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-23-2-fab-mediums-father/) | 23 Janvier 2007
@@ -87,7 +89,8 @@ Marthe | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messa
 Marthe | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
 Marthe | [Prière d'ouverture de Konda Coast](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-1-4-af-martha/) | 1 Mars 2024
 Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
-Marthe | [Marthe prodigue ses conseils aux bénévoles et aux membres de l’Église spiritualiste de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-16-1-af-martha/) | 16 Septembre 202
+Marthe | [Marthe prodigue ses conseils aux bénévoles et aux membres de l’Église spiritualiste de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-16-1-af-martha/) | 16 Septembre 2026
+Marty Ketterman | [La joie de la progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-14-4-em-marty-ketterman/) | 14 Mai 2026 
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004
 Meera | [Importance de la dualité et des limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-19-1-wv-meera/) | 19 Février 2004
 Melvina | [L’influence de notre cheminement sur nos proches dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-23-2-mc-melvina/) | 23 Août 2026

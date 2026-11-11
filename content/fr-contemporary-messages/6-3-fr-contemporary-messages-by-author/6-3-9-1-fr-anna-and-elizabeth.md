@@ -29,6 +29,7 @@ Anne (Grand mère de Jesus) | [Œuvres en coulisses](/fr-contemporary-messages/f
 Anne | [Le travail au sein des Cercles de Lumière se poursuit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-3-1-af-anna-grandmother-of-jesus/) | 3 Mai 2022
 Anne | [Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs!](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-5-af-anna/) | 4 Mai 2025
 Anne | [Laissez briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-4-em-anna/) | 6 Mai 2025 
+Anne | [Des dons offerts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-5-em-anna/) | 12 Janvier 2026
 Anne | [Mettre votre vie matérielle en pause aide à renforcer les perceptions de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-15-2-mc-anna/) | 15 Février 2026 
 Anne | [Reconnaissance de la création de la femme par Dieu en cette fête des Mères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-3-mc-anna/) | 10 Mai 2026
 ||<p align="center"><span style="color:red">**Messages d'Elizabeth**</span></p> | |

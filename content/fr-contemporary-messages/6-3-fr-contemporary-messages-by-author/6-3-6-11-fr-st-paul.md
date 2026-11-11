@@ -39,3 +39,5 @@ St Paul | [Un message pour tous les Tisserands de Lumière qui se réunissent en
 St Paul | [Nous encourage à travers les luttes du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-18-1-af-st-paul/) | 18 Février 2024
 St Paul | [Dieu nous a donné à chacun un guide Céleste pour nous aider dans nos luttes sur Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-10-1-af-st-paul/) | 10 Mai 2024
 Paul | [La prière profonde crée un magnétisme qui attire chaque âme à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-28-1-jw-paul/) | 28 Septembre 2025
+Paul de Tarse | [Apprenez à connaître Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-19-2-em-paul-of-tarsus/) | 19 Mars 2026
+Paul de Tarse | [Vous faites partie des bénédictions qui contribuent à transformer cette Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-9-1-em-paul-of-tarsus/) | 9 Avril 2026

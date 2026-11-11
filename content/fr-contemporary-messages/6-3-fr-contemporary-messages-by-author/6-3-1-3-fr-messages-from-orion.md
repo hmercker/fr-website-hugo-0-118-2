@@ -218,7 +218,7 @@ Orion et Jésus | [La prière est un élément essentiel du plan divin pour la t
 Orion | [Cet Amour est Universel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-2-af-orion/) | 14 Janvier 2026
 Orion | [Vous ne pouvez pas vous permettre de prendre votre engagement sur cette voie à la légère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-17-1-af-orion/) | 17 Février 2026
 Orion | [C’est vous qui déterminez la vitesse de votre progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-21-2-af-orion/) | 21 Février 2026
-Orion | [Révéler l'existence d'amis stellaires ouvrira les portes de votre instrumentation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-24-1-af-orion/) | 24 Février 2026
+Orion | [Révéler l'existence d'amis stellaires ouvrira les portes de votre instrumentation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-24-2-af-orion/) | 24 Février 2026
 Orion | [Questions-Réponses : Orion ouvre la parole aux questions, aborde la conscience de l'âme et comment discerner les différentes influences stellaires/spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-28-1-af-orion/) | 28 Février 2026
 Orion | [Soyez courageux, priez et soyez attentifs en ce tournant crucial pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-3-1-af-orion/) | 3 Mars 2026
 Orion | [Faites le choix authentique d'être la cloche retentissante de la vérité dans un monde en perpétuelle mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-7-1-af-orion/) | 7 Mars 2026
@@ -254,6 +254,7 @@ Orion | [Le processus de nettoyage de l’âme et la possibilité de purificatio
 Orion | [Questions-réponses avec Orion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-30-1-af-orion/) | 30 Septembre 2026 
 Orion | [Lorsque les changements surviendront, vous pourrez compter sur l’interconnectivité offerte par la Trame de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-3-1-af-orion/) | 3 Octobre 2026
 Orion | [À mesure que vous êtes moins distraits par le monde matériel, la fleur de votre âme s’épanouira](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-13-2-af-orion/) | 13 Octobre 2026
+Orion | [Il est temps de rassembler l’humanité autour de vous et d’abandonner les peurs du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-3-1-af-orion/) | 3 Novembre 2026
 
 
 

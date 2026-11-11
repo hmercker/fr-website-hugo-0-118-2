@@ -37,6 +37,7 @@ David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contemporary-me
 David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
 David | [David, roi des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-2-af-king-david/) | 18 Novembre 2017
 David | [Message de David de la Bible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-1-af-david/) | 22 Février 2026
+David | [Auteurs-compositeurs gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-25-2-jw-david/) | 25 Octobre 2026
 Élie | [La véritable âme sœur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) | 11 Février 2008
 Élie | [C'est votre destin de mettre vos dons en avant pour l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-21-1-af-elijah/) | 21 Février 2019
 Élie | [Vous êtes appelés à vous réveiller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-5-1-af-elijah/) | 5 Mai 2019
@@ -76,6 +77,7 @@ Jésus, Isaïe et Pierre | [Soyez fidèles à la volonté de Dieu : Un appel à 
 Isaïe, Jésus, Moïse | [Vous êtes les canaux vivants des bénédictions divines sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-12-1-af-isaiah-jesus-moses/) | 12 Décembre 2025
 Isaïe, Jésus, Moïse | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-8-1-af-isaiah-jesus-moses/) | 8 Janvier 2026
 Isaïe | [Dieu vous offre une vie nouvelle dans Son Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-isaïe/) | 13 Janvier 2026 
+Isaïe | [Assainir l’environnement sur le plan spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-23-2-em-isaiah/) | 23 Février 2026
 Isaïe | [Chacun doit trouver son chemin vers une relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-12-1-af-isaiah/) |12 Avril 2026
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020
@@ -103,6 +105,7 @@ Josué | [Réduire les différences avec amour](/fr-contemporary-messages/fr-con
 Judah Maccabee | [La sanction de la violence physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-18-1-fab-judah-maccabee/) | 18 Juin 2010
 Michée | [Les encouragements d'un prophète biblique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-25-1-fab-micah/) | 25 Septembre 2008
 Miriam | [Continuez à être une lumière dans le monde de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-2-af-miriam/) | 26 Novembre 2024
+Miriam | [Miriam parle de son parcours et de sa demeure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-24-4-em-miriam/) | 24 Avril 2026
 Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-2-1-fab-noah/) | 2 Février 2003
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017

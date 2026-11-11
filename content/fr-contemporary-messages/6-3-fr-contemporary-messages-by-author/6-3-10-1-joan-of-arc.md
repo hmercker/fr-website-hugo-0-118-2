@@ -82,3 +82,6 @@ Jeanne d'Arc | [L'Œuvre de la Prière](/fr-contemporary-messages/fr-contemporar
 Jeanne d'Arc | [Changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-20-2-em-joan-of-arc/) | 20 Octobre 2025 
 Augustin, Jeanne d'Arc, Jésus et Mathieu | [Guidance pour le Cercle de Lumière de l'Amour Divin francophone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-2-af-augustine-joan-of-arc-jesus-and-matthew/) | 20 Décembre 2024
 || <p align="center"><span style="color:red">**Pour les années 2026 à 2028*</span>**</p> | |
+Jeanne d’Arc, Barbara Davies et Thomas | [L’amour attire – Vos prières ont touché autrui – Soyez la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-12-2-em-joan-of-arc-barbara-davies-thomas/) | 12 Février 2026
+Jeanne d'Arc | [Les changements auxquels vous pouvez vous attendre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-30-1-em-joan-of-arc/) | 30 Avril 2026 
+Jeanne d’Arc | [À travers vous, nous œuvrerons à instaurer davantage d’harmonie sur cette Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-13-1-em-joan-of-arc/) | 13 Mai 2026

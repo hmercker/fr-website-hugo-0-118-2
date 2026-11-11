@@ -56,7 +56,8 @@ Care Darby Walsh | [Permettre à votre âme, à votre vie, d'être transformées
 Claire d'Assise | [Le silence est d’or](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-12-1-jw-clare-of-assisi/) | 12 Octobre 2026
 Yogananda | [Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-14-1-jw-yogananda/) | 14 Octobre 2026
 Yogananda | [La véritable paix au-delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-19-1-jw-yogananda/) | 19 Octobre 2026 
-
-
+David | [Auteurs-compositeurs gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-25-2-jw-david/) | 25 Octobre 2026
+Judas | [Jour des défunts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-2-1-jw-judas/) | 2 Novembre 2026
+St Luc | [Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-4-1-jw-st-luke/) | 4 Novembre 202
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

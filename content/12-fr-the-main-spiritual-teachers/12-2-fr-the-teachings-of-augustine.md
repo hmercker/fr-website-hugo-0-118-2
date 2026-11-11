@@ -437,6 +437,7 @@ Augustin | [Vous devez tenir compte de nos avertissements et vous préparer à l
 Augustin | [C’est une voie qui englobe tout ; il n’existe rien de plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-7-2-mc-augustine/) | 7 Septembre 2026
 Augustin | [Sonder les profondeurs de son être pour déterminer si nous sommes prêts pour ce qui arrive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-29-1-af-augustine/) | 29 Septembre 2026 
 Augustin | [Vous devez abandonner votre besoin de contrôle et vous aligner sur la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-10-1-af-augustine/) | 10 Octobre 2026
+Augustin | [N’attendez pas pour activer votre rôle d’instrument ; la progression s’acquiert par le dévouement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-24-1-af-augustine/) | 24 Octobre 2026 
 
 
 

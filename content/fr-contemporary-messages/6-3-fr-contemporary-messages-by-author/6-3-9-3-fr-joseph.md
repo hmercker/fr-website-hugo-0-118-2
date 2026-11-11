@@ -53,3 +53,6 @@ Joseph | [Réflexion sur les sensibilités liées au fait d'avoir un fils diffé
 Joseph | [Fête des Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-10-1-jw-joseph/) | 10 Juin 2024
 Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-5-em-joseph/) | 23 Janvier 2025 
 Joseph | [La puissance de l’Amour de Dieu pour dissiper les montagnes de négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-20-1-em-joseph/) | 20 Février 2025
+Joseph | [Gratitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-19-1-em-joseph/) | 19 Février 2026
+Joseph | [Notre famille qui s’agrandit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-14-3-em-joseph/) | 14 Mai 2026
+Joseph | [Les bénédictions sont abondantes et puissantes en cette période de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-20-1-af-joseph/) | 20 Octobre 2026

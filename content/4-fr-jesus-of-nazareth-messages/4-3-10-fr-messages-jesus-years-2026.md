@@ -30,15 +30,19 @@ Jésus | [Il vient nous aider à reconnaître notre appel](/fr-contemporary-mess
 Jésus | [Soyez des instruments de paix par l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-22-3-af-jesus/) | 22 Mars 2026
 Christine et Jésus | [Devenir des instruments de lumière dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-27-1-af-christine-jesus/) | 27 Mars 2026
 Jésus | [Le moment est venu : Avancez comme une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-29-1-af-jesus/) | 29 Mars 2026
+George Stokes et Jésus | [Jésus vient faciliter les bénédictions de Dieu pour l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-30-2-em-george-stokes-jesus/) | 30 Mars 2026 
 Jésus | [Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-2-af-jesus/) | 5 Avril 2026
 Jésus | [Méditation guidée suivie d'une bénédiction de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-12-2-af-jesus/) | 12 Avril 2026 
 Jésus | [Heureux ceux qui proclament la Parole de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-15-1-af-jesus/) | 15 Avril 2026
 Jésus | [Méditation guidée suivie d'une bénédiction de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-15-3-af-jesus/) | 15 Avril 2026 
 Jésus | [Vous êtes la lumière : Appelés à recevoir et à partager l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-19-1-af-jesus/) | 19 Avril 2026
+Jésus | [Pentecôte à Tell City](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-24-3-em-jesus/) | 24 Avril 2026
 Jésus | [La porte de l’Amour de Dieu vous est ouverte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-3-1-af-jesus/) | 3 Mai 2026
 Jésus | [Éveillez-vous, recevez et devenez la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-26-1-af-jesus/) | 26 Avril 2026 
+Jésus | [Demandez au Père de vous montrer tout ce qui vous a été donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-26-3-em-jesus/) | 26 Avril 2026 
 Jésus | [Recherchez le don de l'Amour Divin et devenez une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-1-af-jesus/) | 10 Mai 2026
 Jésus | [Déposez vos fardeaux aux pieds de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-2-mc-jesus/) | 10 Mai 2026 
+Jésus | [C’est à travers vous que l’Amour de Dieu s’exprime dans le monde matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-14-2-em-jesus/) | 14 Mai 2026
 Jesus | [Je suis avec vous : L’éveil de l’âme par l’Amour divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-1-mc-jesus/) | 17 Mai 2026 
 Jésus | [La Pentecôte dans les œuvres que vous pouvez accomplir : L'appel à être des disciples de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-24-1-af-jesus/) | 24 Mai 2026 
 André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage venant du monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-1-af-andrew-jesus-mary/) | 26 Mai 2026 
@@ -73,6 +77,7 @@ Jésus | [Apporter les eaux vives de l’Amour Divin à l’humanité](/fr-conte
 Jésus | [Avancer ensemble : accomplir le dessein de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-15-1-af-jesus/) | 15 Octobre 2026
 Jésus | [Soyez des instruments de vérité, de lumière et d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-23-1-af-jesus/) | 23 Octobre 2026 
 Jésus | [L’amour sans jugement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-25-1-af-jesus/) | 25 Octobre 2026
+Jésus | [Perceptions et compréhensions découlent naturellement du développement de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-30-1-af-jesus/) | 30 Octobre 2026
 
 
 
