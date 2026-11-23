@@ -36,3 +36,7 @@ Jésus : Je viens, mes bien-aimés. Je viens pour vous bénir et vous élever. J
 Notre cher frère (Copernic) souhaite vous enseigner certaines choses. Moi, je désire vous conduire au sein de l’Amour de Dieu, afin que vous puissiez faire l’expérience de ce don. Nous œuvrons tous ensemble pour vous soutenir et vous montrer le chemin de la vérité. Nous continuerons à le faire, mes bien-aimés frères et sœurs, par des moyens que vous pourrez comprendre, des moyens qui vous élèveront et vous inspireront. L'essentiel est que vous sachiez que vous êtes véritablement aimés, que vous puissiez ressentir cet Amour tel qu'il est réellement — cette expérience de l'éveil de votre âme et de ces aspects de l'âme qui continuent d'être touchés et transformés par l'Amour du Père.
 
 Je vous bénis, mes bien-aimés, dans ce cheminement vers la vérité et dans l'éveil de votre âme ; une transformation qui ne s'achève jamais mais qui, avec le temps, vous permettra d'entrer dans le Royaume Céleste, où nous sommes véritablement frères et sœurs sur la voie du progrès éternel. Que Dieu vous bénisse, mes bien-aimés. Je vous aime. Je suis avec vous. Je suis avec vous. Que Dieu vous bénisse dans Son Amour et Sa Vérité. Je suis Jésus et je suis avec vous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

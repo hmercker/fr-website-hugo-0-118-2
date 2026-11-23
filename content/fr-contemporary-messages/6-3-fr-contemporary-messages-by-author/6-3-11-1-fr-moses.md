@@ -76,3 +76,4 @@ Moïse | [Honorez votre promesse envers Dieu](/fr-contemporary-messages/fr-conte
 Moïse | [Une leçon sur la mise en œuvre de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-13-3-af-moses/) | 13 Avril 2026 
 Moïse | [Moïse décrit son voyage spirituel et le pouvoir transformateur de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-21-2-af-moses/) | 21 Avril 2026
 Moïse | [L’importance de votre ministère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-25-3-em-moses/) | 25 Avril 2026
+Moïse | [Le don de la Volonté de Dieu, insufflé dans vos âmes, vous guidera sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-5-3-em-moses/) | 5 Juin 2026

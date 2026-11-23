@@ -22,3 +22,7 @@ Que la création de Dieu est merveilleuse ! Que vous êtes merveilleux en son se
 Nous continuons de découvrir, mes chers amis, ce qui nous attend, ce qui est à notre disposition, ce qui nous est offert en abondance : un magnifique voyage d’éveil, de lumière, d’amour et de joie. Ce don nous est offert chaque jour. Mes chers amis, puissiez-vous profiter chaque jour de ce que Dieu vous offre, de ce qui nourrit votre âme, de ce qui vous est donné par la grâce de son contact, de la paix qui surpasse toute intelligence, de la vérité qui vous libère, de l’amour qui emplit votre cœur d’une joie infinie. Chacun de vous a choisi ce chemin et, en vérité, je vous accompagne, comme beaucoup d’autres, tandis que vous continuez à grandir dans cet Amour, dans cette Lumière et tout ce qu’elle comporte.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Orion. Je vous aime sincèrement. Je vous aime et je chemine avec vous comme un ami. Je vous soutiens et prie pour vous, vous offrant tout le bien que l’univers a à offrir, créé pour créer davantage d’harmonie, d’amour et de lumière. Que Dieu vous bénisse tous. Orion vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

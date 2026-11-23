@@ -18,3 +18,7 @@ Cela m’a aidée… une fois que j’ai franchi le seuil du monde des esprits e
 Vous aussi, vous rencontrerez des épreuves, mais souvenez-vous que lorsque vous entrerez dans le Royaume des Cieux Célestes de Dieu, toutes vos épreuves en auront valu la peine. La maison de mon Père est d’une beauté incomparable, empreinte d’un amour qui dépasse l’entendement. La porte s’ouvre en grand et notre Maître Jésus se tient là pour accueillir chacun avec majesté. Il offre son amour à chacun et les accueille chez eux, dans leur foyer. Cet environnement est si rempli d’Amour que l’on pense aux enfants sur Terre qui ont besoin d’aide, mais il n’y a aucun remords à avoir quitté la Terre, à avoir quitté le monde des esprits, à avoir laissé derrière soi ces choses qui sont des épreuves. Son Amour est tout. Son Amour est épanouissant, il nous comble et nous rapproche de Lui. Notre amour pour Lui est éternel. Vous le verrez un jour. Vous verrez à quel point nous sommes comblés dans cet Amour.
 
 Que Dieu vous bénisse et vous fasse avancer, plus près de votre future demeure dans cet Amour. Je suis Miriam, amoureuse de Dieu, gardienne de nombreux enfants. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

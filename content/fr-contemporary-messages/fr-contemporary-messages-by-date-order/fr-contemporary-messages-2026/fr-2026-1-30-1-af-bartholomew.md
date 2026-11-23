@@ -22,3 +22,7 @@ Allez-y doucement, mes amis. Soyez respectueux et bienveillants. Soyez simples d
 Que vous soyez bénis, mes âmes bien-aimées, dans toute la bonté et la lumière, tout l’amour et la joie qui vous habitent et qui émanent de vous. Oui, il y a beaucoup à faire. C’est un chemin exigeant, mais continuez d’avancer en disant : « Oui, je suis prêt. Je suis là. Je souhaite accomplir ton œuvre, cher Dieu », et de le faire avec amour, avec foi, en ayant confiance que ce que nous sommes appelés à faire et à dire se réalisera et sera partagé au sein du petit groupe qui se formera. Les débuts sont toujours modestes, mais ils grandiront. Ils grandiront, surtout grâce à ce précieux instrument qui les guidera et les aidera, eux qui demeurent fidèles et font partie de cette communauté.
 
 Que Dieu vous bénisse tous. Que la sagesse vous accompagne. Que la paix et la joie règnent parmi vous. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse de Sa Lumière. Je suis Barthélemy et je suis impatient de commencer cette œuvre, non seulement ici, mais dans toutes les nations de cette partie du monde. Que Dieu vous bénisse tous, âmes bien-aimées. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

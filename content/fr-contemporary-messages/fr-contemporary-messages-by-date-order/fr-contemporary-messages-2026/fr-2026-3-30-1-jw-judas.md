@@ -26,3 +26,7 @@ Révélez votre âme au grand jour. Partagez ce don précieux que vous avez reç
 Que l'Amour de Dieu vous accompagne et vous habite, et que le monde soit béni. Je suis votre frère et ami en Christ.
 
 Je suis Judas. Allez en paix, mes amis. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Nous ne viendrons pas tant que le monde ne sera pas prêt. Le monde doit être p
 Je suis très heureuse de venir vous parler aujourd’hui, car on parle beaucoup ces temps-ci d’autres êtres sur d’autres planètes. Je suis venue vous dire que, oui, dans notre conscience, nous sommes avec vous et que nous nous efforçons de vous aider, de vous enseigner et de vous guider, comme beaucoup d’autres. Pourtant, l’ignorance persiste. Mais nous travaillerons ensemble, n’est-ce pas, pour que la vérité triomphe et que l’harmonie règne dans votre monde, afin que vous appreniez à manier le pouvoir de l’amour, à instaurer l’harmonie et la paix, à prendre soin de vos frères et sœurs, à vous aider à franchir ce cap vers une conscience plus profonde et plus élevée de l’âme. Ainsi, vous serez prêts pour la prochaine étape de l’évolution de l’humanité.
 
 Que Dieu vous bénisse abondamment, mes amis, profondément de Son Amour. Car c’est dans cette profonde bénédiction que tout sera révélé, que la vérité viendra, que les éveils prévaudront et que les âmes seront de lumière et d’amour. Que Dieu vous bénisse, mes amis. Je suis Christine. Je viens à vous avec amour. Je viens à vous parce que je vous aime et que vous êtes mes frères et sœurs. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

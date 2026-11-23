@@ -32,3 +32,7 @@ Ce monde n’est pas facile et il ne cesse de présenter ses défis. Il ajoute c
 On attend beaucoup de vous, mes amis. Vous êtes exigeants envers vous-mêmes. En effet, grâce à la puissance de l’Amour Divin qui réside en vous, à la conscience qui en découle et à mesure que vous vous épanouissez selon les enseignements reçus, le succès sera vôtre. Ce succès se mesurera jour après jour, un succès qui vous transformera véritablement et vous mènera vers une plus grande harmonie, une plus grande lumière et un plus grand amour. Le chemin est simple, mais la route que vous empruntez l’est rarement. En continuant de vous encourager et de vous guider, nous espérons que ce chemin sera droit plutôt que sinueux et prudent, mais qu’il reflétera pleinement le courage, la concentration et les aspirations de votre âme à progresser vers l’éveil, la perception, la lumière et la clarté.
 
 Que Dieu vous bénisse sur ce chemin, mes amis. Je suis Orion. Je vous dis tout cela parce que je vous aime profondément et que je vous encourage, comme tant d’autres, sur ce chemin qui exige souvent une grande foi, une grande confiance, du courage et de la détermination. Que Dieu vous bénisse, mes chères âmes. Que Dieu vous bénisse avec amour.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

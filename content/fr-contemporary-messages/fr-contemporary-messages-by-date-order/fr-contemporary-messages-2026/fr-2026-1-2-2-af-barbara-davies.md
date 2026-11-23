@@ -19,3 +19,7 @@ Mes amis, il y a tant en vous qui a encore besoin de s’exprimer, de se dévelo
 
 Que Dieu vous bénisse, mes amis. Je suis Barbara. Je comprends vos difficultés, car je les ai vécues aussi, mais nous les surmonterons, mes amis. Nous triompherons dans la lumière, la vérité et l’amour. Que Dieu vous bénisse. Je vous aime tous. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

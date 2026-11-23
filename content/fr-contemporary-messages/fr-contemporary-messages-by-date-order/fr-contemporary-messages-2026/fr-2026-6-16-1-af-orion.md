@@ -31,6 +31,10 @@ Que Dieu vous bénisse sur votre chemin, mes amis. Sachez que nous sommes à vos
 
 Que Dieu vous bénisse, mes amis. Je suis Orion. Oh, je vous aime tant et je suis impatient de vous voir découvrir ce qui vous attend, d'être témoin de ce grand saut dans la foi et de vous accompagner véritablement, tant dans votre élan que lors de votre atterrissage. Je serai là, tout comme beaucoup d'autres. Nous célèbrerons tous ensemble, mes chers amis. Que Dieu vous bénisse et vous garde dans Son amour. Je vous aime. Je suis avec vous. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 
 
 

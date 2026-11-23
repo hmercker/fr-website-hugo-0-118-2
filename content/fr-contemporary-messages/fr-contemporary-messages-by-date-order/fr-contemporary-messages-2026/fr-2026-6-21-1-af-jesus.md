@@ -22,3 +22,7 @@ Je prie pour que chacun en prenne conscience. En effet, lorsque vous allez vers 
 De nombreuses opportunités attendent chacun d'entre vous. Vous êtes de magnifiques lumières, et souvent, vous ne saisissez ni ne reconnaissez le potentiel, les possibilités, la force et les dons que vous portez en vous. À mesure que vous recevez le don de l'amour du Père, ces qualités se renforcent et se déploient. Ce don d'amour vous transforme, vous guérit et illumine davantage votre esprit. Mes disciples bien-aimés, mes frères et sœurs, nous cheminons ensemble sur la voie du service, dans un voyage d'éveil et de transformation — un voyage magnifique et sublime qui ne connaîtra jamais de fin. Mes bien-aimés, nous sommes véritablement les enfants de Dieu. Puissions-nous exprimer cette lumière et cette vérité à chaque souffle.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je suis avec vous dans l'amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

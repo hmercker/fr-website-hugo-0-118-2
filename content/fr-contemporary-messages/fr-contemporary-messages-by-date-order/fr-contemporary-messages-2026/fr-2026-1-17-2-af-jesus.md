@@ -16,3 +16,7 @@ Je suis votre frère et votre ami. Je suis le Jésus dont vous parlez et que vou
 Les croyances de l’esprit n’ont aucune importance sur ce chemin. C’est la compréhension et l’expérience de l’âme qui vous conduiront à la clarté, à la Lumière et à l’Amour qui viennent de Dieu. Vos luttes spirituelles n’ont aucune importance, car elles ne vous apporteront pas la joie et le bonheur que la conscience et l’expérience de l’âme de Dieu vous apporteront à tous. Je suis ici avec vous pour vous guider et je le ferai pour chacun d’entre vous. Je suis là. Je suis vraiment votre frère. Je suis vraiment votre ami. Comme vous, j’aime Dieu de tout mon cœur, de toute mon âme. Je suis Son enfant, Son fils, comme je suis votre frère.
 
 Que Dieu vous bénisse, mes bien-aimés. Je viens à vous avec amour. Je viens à vous pour vous soutenir, prier avec vous et être avec vous. Que Dieu vous bénisse dans la vérité de son amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

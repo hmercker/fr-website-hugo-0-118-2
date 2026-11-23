@@ -33,8 +33,11 @@ Voici, à présent, une bénédiction du Père.
 
 Nous vous invitons maintenant à rendre grâce pour ce que Dieu a prévu pour vous, et pour ces arts de guérison qui, en vous, ont déjà commencé à se développer, ne serait-ce qu’un peu.
 
-À présent, nous renforçons les liens qui vous unissent les uns aux autres. Je suis Keea Atta Kem ; je vous bénis de mon amour et continuerai à prier avec vous, en rendant grâce à notre Père céleste pour Sa bienfaisance.
+À présent, nous renforçons les liens qui vous unissent les uns aux autres. Je suis Keea Atta Kem ; je vous bénis de mon amour et continuerai à prier avec vous, en rendant grâce à notre Père Céleste pour Sa bienfaisance.
 <small>
 
 1. <large id="f1"> Il s’agissait d’un cercle de développement guidé, réalisé par canalisation ; l’enregistrement comporte plusieurs pauses, correspondant aux moments où le travail décrit était effectué.[↩](#a1)
-Note : 
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

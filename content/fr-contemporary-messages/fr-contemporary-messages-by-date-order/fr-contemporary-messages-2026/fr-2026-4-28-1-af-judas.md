@@ -24,3 +24,7 @@ Mes chers et magnifiques amis, vous êtes, chacun d’entre vous, une lumière. 
 Que Dieu vous bénisse, mes chers amis. Je suis ici, à vos côtés. (Au début, l’instrument a cru sentir la présence d’Aaron, mais c’est moi, Judas*). En réalité, c’était bien moi. Il arrive parfois que le médium éprouve quelque confusion quant à l’identité de celui qui s’exprime, lorsqu’il ne lui est pas familier. J’apporte ici la clarté, et je remercie cet instrument de m’avoir permis de prendre la parole. Que Dieu vous bénisse tous, mes chers amis. Que Dieu vous bénisse.
 
 Le médium a d’abord cru qu’il s’agissait d’Aaron. À la fin du message, l’ange a apporté une rectification, précisant qu’il s’agissait en fait de Judas. L’enregistrement a été interrompu à ce moment précis ; les propos manquants ont donc été restitués en concertation avec le médium.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par Elizabeth Mack le 25 Avril 2026, Retraite à Tell City, Indiana, États-Unis.
 
-Je suis James Padgett. Oh, elle est surprise.<sup id="a1">[1](#f1)</sup> C’est un privilège pour moi d’être ici, dans ce cercle, avec vous, âmes qui parlez des Vérités de Dieu — ces vérités que j’ai écrites il y a plus de 100 ans. J’ai avancé à tâtons. Je n’étais pas sûr de moi. Ma chère, très chère épouse ne cessait de m’encourager. Aujourd’hui, je vois que le Maître avait raison. Il était essentiel que j’accomplisse ce que j’ai fait ; je regrette les moments où j’ai détruit des écrits, douté, ou servi de canal à des esprits qui n’étaient pas des plus élevés. Mais nous voici : grâce au pardon de Dieu, à Sa miséricorde et à Son Amour.
+Je suis James Padgett. Oh, elle est surprise.<sup id="a1">[1](#f1)</sup> C’est un privilège pour moi d’être ici, dans ce cercle, avec vous, âmes qui parlez des Vérités de Dieu — ces vérités que j’ai écrites il y a plus de 100 ans. J’ai avancé à tâtons. Je n’étais pas sûr de moi. Ma chère, très chère épouse, ne cessait de m’encourager. Aujourd’hui, je vois que le Maître avait raison. Il était essentiel que j’accomplisse ce que j’ai fait ; je regrette les moments où j’ai détruit des écrits, douté, ou servi de canal à des esprits qui n’étaient pas des plus élevés. Mais nous voici : grâce au pardon de Dieu, à Sa miséricorde et à Son Amour.
 
 Plus de 100 ans plus tard, nous y sommes. Ces vérités, ces volumes, contiennent la Vérité de Dieu et sont diffusés dans le cadre du plan divin pour le salut, non seulement de l’humanité, mais du monde entier. Vous n’êtes ici que quelques-uns de ceux qui œuvrent à cette mission. Il vous arrive peut-être de vous interroger, voire de douter ; mais, là où je me trouve, je peux vous dire qu’il n’y a aucune raison de douter ni de s’interroger. Vous connaissez votre guidance. Vous savez ce qu’il convient de faire, et vous êtes guidés avec une grande force et une grande intensité. Votre rôle est de porter ces vérités dans le monde, par tous les moyens dont vous disposez. Avec la bénédiction et l’Amour de Dieu, vous êtes protégés ; votre avenir, tout comme votre présent, est parfaitement assuré. L’Amour présent dans vos âmes garantit votre protection à chaque souffle que vous prenez. À chaque parole que vous prononcez avec amour, vous accomplissez la Volonté de Dieu.
 
@@ -21,3 +21,7 @@ Que Dieu continue de vous bénir. Puissiez-vous jouir de Ses bénédictions. Pui
 <small>
 
 1. <large id="f1"> James Padgett a fait l’objet d’une discussion entre les participants juste avant la prière. Dans l’enregistrement audio, on peut entendre les participants et le médium exprimer leur surprise et rire après qu’il s’est manifesté.[↩](#a1)
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

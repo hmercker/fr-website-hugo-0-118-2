@@ -18,3 +18,7 @@ Dire que Dieu est tout-puissant est bien en deçà de la réalité. Dire que Die
 Véritables enfants de Dieu, efforcez-vous d’ouvrir votre esprit autant que votre âme, et libérez-vous des conceptions que vous pouvez avoir sur la nature et l’identité de Dieu. Demandez à ce qu’Il ​​vous soit révélé. Car Dieu désire que vous Le connaissiez, que vous appreniez à Le connaître de plus en plus clairement. Il s’agit d’une relation fondamentale entre Dieu et chaque âme individuelle — une relation qu’Il ​​souhaite entretenir avec chacun de Ses enfants. Demandez. Demandez à connaître la Vérité sur qui Il est et ce qu’Il ​​est ; faites l’expérience, par vous-mêmes, de qui est réellement Dieu — de la Lumière qu’Il ​​est, de l’Essence qu’Il ​​est — et découvrez à quel point Il vous aime, chacun d’entre vous.
 
 J’en ai assez dit pour le moment. Je vais maintenant prier avec vous, afin que vous puissiez apprendre à connaître Dieu, véritablement. Que Dieu vous bénisse tous. Que vos âmes soient emplies de Son Essence, de Son Amour, de Sa miséricorde et de tout ce qu’Il ​​choisit d’offrir à chacun d’entre vous. Je suis Paul de Tarse et je vous remercie, tandis que je me mets en retrait pour me joindre à vous dans cette prière.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

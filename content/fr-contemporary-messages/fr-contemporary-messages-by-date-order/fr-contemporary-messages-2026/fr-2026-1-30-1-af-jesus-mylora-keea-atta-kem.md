@@ -26,3 +26,7 @@ Que les bénédictions de votre âme s’élèvent dans votre conscience, vous a
 **Keea atta Kem** : C’est votre amie, Keea atta Kem. Je m’investirai également pour vous, m’occupant de vous aider et de vous assister de diverses manières dans votre cheminement spirituel et dans votre union pour vous soutenir et vous aimer les uns les autres. Que Dieu vous bénisse abondamment et que le travail ne manque pas.
 
 Que Dieu vous bénisse, mes amis. Keea est là et le restera. Que Dieu vous bénisse tous. Je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

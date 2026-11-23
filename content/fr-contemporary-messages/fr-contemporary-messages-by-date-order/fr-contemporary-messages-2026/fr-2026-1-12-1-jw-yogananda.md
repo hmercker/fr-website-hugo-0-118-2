@@ -24,3 +24,7 @@ Et maintenant, au sein de cette belle assemblée, vous commencez à entrevoir la
 Je vous aime tous de tout mon Amour Divin. Je suis votre frère et ami en Christ. Que Dieu vous bénisse.
 
 Je suis Yogananda. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

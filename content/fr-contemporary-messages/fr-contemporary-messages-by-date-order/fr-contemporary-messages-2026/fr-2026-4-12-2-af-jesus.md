@@ -34,3 +34,7 @@ Mes bien-aimés, vous joindrez-vous à moi dans cette quête pour apporter l’e
 Soyez cette lumière, mes bien-aimés, et suivez ce chemin. Il nous mènera dans un voyage magnifique, au-delà de tout ce que vous pourriez imaginer. Mes bien-aimés, je vous appelle. Je vous appelle à vous rapprocher, à écouter votre guidance et à écouter la Volonté de Dieu. Nous œuvrerons sans relâche pour apporter la paix sur Terre, une paix qui est destinée à advenir, mais qui doit survenir bientôt. Mes bien-aimés, nous marchons ensemble. Nous ne faisons qu’un.
 
 Que Dieu vous bénisse. Que Son Amour continue de se déverser dans vos âmes, illuminant toujours davantage les êtres magnifiques que vous êtes, et vous donnant la force d’être les messagers de Dieu ainsi que des instruments de vérité et d’amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus. Je viens pour être auprès de mes frères. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

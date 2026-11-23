@@ -18,3 +18,7 @@ C'est alors que la lumière de votre âme rayonnera à travers vous et que votre
 Demeurez dans la paix qui surpasse toute intelligence et abreuvez-vous pleinement de l'Amour de Dieu, de Son Essence, afin de parvenir à l'union parfaite avec Celui qui vous a créés. À chaque étape de ce cheminement vers l'union, vous saurez qu'il y a toujours davantage à découvrir. Sans cesse, vous réaliserez l'union de votre être en Dieu et de Dieu en vous, dans une communion bénie d'Amour.
 
 Je suis Marie, et je prie pour vous alors que vous poursuivez votre chemin éternel. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Ainsi, nous sommes tous frères et sœurs. Nous faisons tous partie de la famill
 Ô mes bien-aimés, puissions-nous entrer dans le Hall de la Paix et goûter aux bienfaits de ce lieu. Que vos âmes s’ouvrent pleinement au don de Son Amour. Puissions-nous tous être emplis de la joie et de l’extase de Son Amour, qui nous éveille davantage et nous rapproche de la communion avec notre Père céleste. Nous sommes aimés, chacun d’entre nous, infiniment aimés, d’un amour si profond et si vaste qu’il serait impossible de le voir et de le comprendre. Pourtant, Dieu nous comble de cet amour lorsque nous prions ensemble et que nous sommes saisis par la Lumière de Son Amour et de Sa Présence.
 
 Que Dieu vous bénisse tous, mes bien-aimés. Je suis Jésus et je vous aime. Prions ensemble pour recevoir cette bénédiction. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

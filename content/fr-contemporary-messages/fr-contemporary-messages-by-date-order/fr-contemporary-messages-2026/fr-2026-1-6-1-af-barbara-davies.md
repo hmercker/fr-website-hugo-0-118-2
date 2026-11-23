@@ -24,3 +24,7 @@ Oh, mes êtres chers, je suis heureuse que vous soyez ensemble. Je suis heureuse
 Tant de choses vous attendent. En effet, votre effort pour vous rassembler sera profondément béni. Vous accéderez à de nouveaux éveils, à une transformation plus profonde, à une lumière plus éclatante et à un Amour plus grand. Tout est là pour vous, mes bien-aimés. Tout est là parce que Dieu est là. Vos amis anges sont là, et les esprits lumineux sont là.
 
 Que vous soyez élevés. Puissiez-vous voir, ressentir et percevoir toute la bonté des bénédictions de Dieu pour vous. Que Dieu vous bénisse, mes êtres chers. Je suis Barbara. Oh, comme je vous aime tous ! Je vous aime tous. Que Dieu vous bénisse. Je serai près de vous, comme beaucoup d’autres. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

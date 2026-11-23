@@ -30,3 +30,7 @@ Jésus : Père céleste bien-aimé, nous venons à Toi le cœur ouvert ; nos âm
 Ouvrez-vous. Ouvrez-vous grandement, bien-aimés, car voici votre opportunité, l'instant de grâce qui s'offre à vous. Soyez prêts à recevoir. Écartez toute résistance. Laissez l'Amour pénétrer en vous et nous transformer à jamais.
 
 Père bien-aimé, nous sommes là. Nous sommes là, dans la paix, le désir ardent et la disponibilité de nos âmes. Tout ce que Tu attends de nous, nous l'offrons et l'exprimons dans nos prières communes. Nous attendons Tes bénédictions, Père bien-aimé. Nous attendons Ton Toucher et nous nous présentons avec humilité, grâce et un désir exprimé dans toute sa plénitude envers Toi, cher Père. Nous sommes là. Nous sommes là. Ouvre-nous, bénis-nous, transforme-nous dans Ton Amour ; car c'est la grâce que nous recherchons, et c'est pourquoi nous sommes ici. Nous Te remercions, cher Père.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

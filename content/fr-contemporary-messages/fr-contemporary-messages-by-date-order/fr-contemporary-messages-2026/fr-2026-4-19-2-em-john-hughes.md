@@ -16,3 +16,7 @@ Je suis Jean Hughes. Je m'approche, si près que vous me sentirez. Il y a peu de
 C’est ce que l’humanité a fait avec l’amour naturel. Les expressions sont devenues plus importantes que l’amour lui-même. Il existe ces désaccords qui persistent et continuent de s’amplifier. Rappelez-vous que, dans toute expression, l’attention doit être portée sur Dieu. C’est un exercice que vous devez tous et chacun pratiquer pour mieux comprendre comment exprimer votre Amour Divin tant que vous êtes dans la chair. Priez Dieu pour recevoir tout ce que vous devez savoir sur les expressions de l’amour divin tant que vous êtes dans la chair. Chacune sera différente, car chacune est unique.
 
 Je viens vous offrir ces conseils. Concentrez-vous sur Dieu dans vos expressions et priez pour que Dieu vous guide dans vos expressions. Que Dieu vous bénisse. Mon amour est avec vous et, ma chère sœur, je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

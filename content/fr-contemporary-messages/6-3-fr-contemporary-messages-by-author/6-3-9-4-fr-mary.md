@@ -185,6 +185,7 @@ Jeanne d'arc, Marie et Keea Atta Kem | [Venez soutenir toutes les femmes](/fr-co
 Marie | [Nous cherchons à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-1-af-mary/) | 18 Septembre 2025
 Marie | [Marie remet une rose rouge à chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-3-mc-mary/) | 10 Janvier 2026 
 Marie | [Votre transformation dans l’Amour de Dieu est possible dès votre séjour sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-3-af-mary/) | 12 Janvier 2026
+Marie | [On ne peut épuiser l'Amour de Dieu ni lui demander trop ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-31-3-af-mary/) | 31 Janvier 2026
 Marie | [Nous, du Royaume Céleste, désirons être proches de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-15-1-af-mary/) | 15 Février 2026 
 Pierre, Marie et Jésus | [Ayez foi et efforcez-vous d'établir cette vérité dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-2-af-peter-maria-jesus/) | 22 Février 2026 
 Marie | [L'importance de la prière pour la guérison des âmes sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-26-1-em-mary/) | 26 Février 2026 
@@ -196,6 +197,7 @@ Marie | [Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins]
 Marie | [Dieu n’a jamais voulu que la souffrance existe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-23-3-af-mary/) | 23 Mai 2026
 André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage venant du monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-1-af-andrew-jesus-mary/) | 26 Mai 2026 
 Marie | [Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-3-mc-mary/) | 7 Juin 2026 
+Marie | [Les souvenirs de vos cercles de prière sont inscrits dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-8-2-em-mary/) | 8 Juin 2026
 Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026
 Marie et Jésus | [Marie décrit la bénédiction du toucher de Dieu sur elle ; Jésus bénit le groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-23-1-af-mary-and-jesus/) | 23 Juin 2026
 Marie | [Foi, service et bénédictions d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-18-1-af-mary/) | 18 Août 2026 

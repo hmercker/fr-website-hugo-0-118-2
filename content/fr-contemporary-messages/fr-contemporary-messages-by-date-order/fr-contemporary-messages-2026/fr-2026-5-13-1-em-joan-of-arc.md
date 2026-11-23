@@ -16,3 +16,7 @@ Merci, chers enfants, de vous être rassemblés, de permettre aux bénédictions
 À travers vous, nous œuvrerons à instaurer davantage d’harmonie sur cette Terre. Ouvrez-vous pleinement. Autorisez-vous à servir de canaux d’amour, tout particulièrement durant les prières qui ponctueront cette retraite. C’est pour vous une occasion de grandir, de mettre à profit vos dons, et de servir Dieu ainsi que l’humanité tout entière. C’est une opportunité, pour chacun d’entre vous, de faire évoluer votre âme vers un Amour plus grand et un service accru envers Dieu, ainsi qu’envers vos frères et sœurs sur cette Terre. Nous serons à vos côtés tout au long de cette retraite ; il est possible que vous perceviez notre présence à certains moments. Nous sommes proches, et nous le resterons. Laissez-nous vous inspirer durant ces journées, alors que nous vous rassemblons tous en une unité.
 
 Que Dieu vous bénisse, chacun et chacune. Puissions-nous œuvrer ensemble à élever l’humanité. Je suis votre sœur Jeanne ; mon amour vous accompagne, tout comme celui de tous ceux qui sont ici présents.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

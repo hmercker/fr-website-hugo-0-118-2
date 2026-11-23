@@ -30,3 +30,7 @@ Que Dieu vous bénisse, mes amis. Je suis Orion. Je vous aime tant, mes amis, in
 Chacun d’entre vous en est bien conscient, mais vous finirez par trouver votre voie. Cela viendra. Nous espérons que cela se produira avant que vous ne quittiez cette planète, car le monde a besoin de ses enseignants, de ses modèles, de ses lumières, de ses canaux d’amour, de ses instruments du Créateur — de ses amis, qu’ils soient anges, êtres stellaires ou autres. Nous travaillerons ensemble. Nous trouverons les moyens d’ouvrir les portes de la réalité. Comme je l’ai dit, cela se fera étape par étape, mais chacun d’entre vous est prêt. Chacun d’entre vous peut franchir ce pas ; vous découvrirez alors un sol ferme de l’autre côté, et vous éprouverez une grande joie et un immense bonheur d’avoir choisi de vivre véritablement au sein de la lumière de la réalité — cette création divine, ce monde réel, cet univers véritable qui attend que vous vous y engagiez et que vous veniez l’habiter.
 
 Que Dieu vous bénisse, mes amis. Je suis Orion. Je vous aime tant, mes amis, intrépides voyageurs sur le chemin de la vérité, de l’amour, de la réalité. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

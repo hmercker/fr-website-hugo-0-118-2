@@ -22,3 +22,7 @@ Que Dieu vous bénisse, belles âmes. Je suis André. Je suis un ami et un ensei
 **Jésus** : Les bénédictions du Père reposent sur vous, mes bien-aimés. Sa bénédiction de l'âme vous est acquise dans la mesure où vous la désirez et la demandez par la prière. Je suis avec vous, moi, Jésus, votre frère et votre ami. Je suis avec vous dans la prière. Je suis souvent à vos côtés, comme vous le savez, mes beaux frères et sœurs de la Terre. Vous avez en moi un ami véritable et fidèle. Je suis avec vous. Je continuerai à marcher à vos côtés pour l'éternité. Que Dieu vous bénisse tous, mes bien-aimés.
 
 **Marie** : Les portes sont ouvertes, mes bien-aimés. Je suis Marie. Je me tiens sur le seuil avec vous. Je prendrai votre main. Je vous guiderai à l'intérieur. Ensemble, nous pourrons apprécier et nous baigner dans les gloires de l'Amour du Père et dans Ses bénédictions. Nous sommes tous Ses enfants, et Il nous aime d'un amour égal, profond et infini. Recherchez ce don. Il vous appartient dès lors que vous le demandez, et nous baignerons ensemble dans cet Amour glorieux. Que Dieu vous bénisse ; je suis Marie et je vous aime. Je suis avec vous. Prenez ma main et nous avancerons dans la lumière. Que Dieu vous bénisse, beaux enfants de Dieu.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

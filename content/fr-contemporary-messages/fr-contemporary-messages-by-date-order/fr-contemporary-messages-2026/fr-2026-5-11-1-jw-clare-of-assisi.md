@@ -20,3 +20,7 @@ Vivre sur Terre, dans le monde matériel, peut être très difficile. Tant de ch
 Accrochons-nous au vêtement Céleste de notre Créateur, qui nous élève et nous remplit de Son essence. Voici la joie, voici le bonheur et la liberté dans la progression de votre âme au sein de l'amour de Dieu.
 
 Je me retire dans cette belle prière, portant toutes mes bénédictions dans ce cercle sacré. Je vous remercie. Que Dieu vous bénisse tous. Je suis Claire, votre sœur en Christ, originaire d'Assise et désormais ange Céleste reconnaissant et racheté. Je vous aime. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

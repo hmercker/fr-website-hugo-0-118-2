@@ -38,5 +38,5 @@ Barthélémy | [Priez pour ces âmes tendres, mais profondément blessées](/fr-
 Barthélemy | [Vos choix et vos désirs déterminent votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-4-1-af-bartholomew/) | 4 Février 2026
 Barthélémy et Keea Atta Kem | [Foi et Âme 2 : Ayez confiance en vous, en votre âme et en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-9-2-af-bartholomew-keea-atta-kem/) | 9 Février 2026
 Barthélémy | [La créativité de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-2-mc-bartholomew/) | 17 Mai 2026 
-
+Barthélemy | [Barthélemy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-19-2-em-bartholomew/) | 19 Juillet 2026
 

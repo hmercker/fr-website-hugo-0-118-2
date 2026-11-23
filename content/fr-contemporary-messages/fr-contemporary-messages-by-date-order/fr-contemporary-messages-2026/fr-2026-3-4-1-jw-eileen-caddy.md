@@ -22,3 +22,7 @@ Lorsque vous vous réunissez, que ce soit virtuellement ou physiquement, vous ab
 Et puis, comme dans le film que vous connaissez tous, *« La vie est belle »*, notre protagoniste, désespéré, adresse une prière : *« Mon Dieu, aidez-moi, je suis perdu »*, et un ange apparaît, et finalement, le bien l'emporte. Ce film était entièrement guidé par des esprits Célestes et des anges bienveillants. Je vous dis tout cela pour que vous vous souveniez que l'aide est à votre portée, il suffit de la demander. Il n'y a pas de difficulté qui ne puisse se transformer en bénédiction, et même si cela peut paraître impossible, au fond de vous, vous savez que tout est possible avec Dieu et qu'avec Son Amour, l'échec est impossible. Alors, courage et espoir ! Ayez confiance en la puissance, la gloire et la miséricorde de Dieu, et faites rayonner votre lumière sur tous. Je vous remercie de m'avoir accordé ce temps, et je retourne auprès de vous, dans la lumière et l'amour.
 
 Je suis Eileen Caddy. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

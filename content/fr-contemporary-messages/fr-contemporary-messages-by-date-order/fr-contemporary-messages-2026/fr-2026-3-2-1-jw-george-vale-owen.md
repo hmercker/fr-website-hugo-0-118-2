@@ -22,3 +22,7 @@ Puisque vous poursuivez également ce travail, c’est un grand honneur pour moi
 Je vous remercie tous, et mon frère ici présent, qui sait certainement ce que c’est que d’hésiter, d’avoir reçu ce message. Enfin, je tiens à assurer chacun de vous du soutien d’innombrables anges et, surtout, du Maître Jésus et de ses anges, qui, dans l’Amour de Dieu, transcendent toute religion. Qu’il soit vôtre.
 
 Avec tout mon amour et mes bénédictions, je vous remercie. Je suis George Vale Owen, une âme rachetée dans les Cieux Célestes. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

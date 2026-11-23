@@ -20,3 +20,7 @@ Vous êtes tous sur ce chemin, mes amis. Vous êtes accompagnés d’une grande 
 Nous voici, mes chers amis, en quête de guérison et d’éveil, aspirant à la Lumière et à l’harmonie de l’Amour de Dieu. Puissions-nous tous être ouverts à accueillir ensemble ces instants, nous élevant vers ce grand Hall de la Paix, y vivant sa joie, sa paix et son calme, sa lumière, son amour. Il est à notre portée. Je vous encourage tous à le rechercher dans toute sa gloire et son émerveillement, et à vous laisser transporter par le saint Toucher de Dieu sur votre âme.
 
 Que Dieu vous bénisse tous. Je suis la Foi. Je vous aime et je prie avec vous, comme tant d’autres. Que Dieu vous bénisse tous dans Son Amour.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

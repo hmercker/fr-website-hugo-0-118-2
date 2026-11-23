@@ -20,3 +20,7 @@ Lorsque vous marchez dans l’amour, lorsque vous entrez dans le monde avec amou
 Marchez sur ce chemin du service, mes bien-aimés, le Chemin de l’Amour, de l’Amour de Dieu. Ainsi, tout se déroulera et s’harmonisera avec la Volonté de Dieu. Nous sommes tous serviteurs de Dieu. Nous servons tous de multiples façons, uniques comme nous sommes, mais véritablement des lumières, des lumières dans le monde, des lumières à travers le monde, des lumières dans le monde spirituel, la lumière partout. Celui-ci est important et c’est la volonté de Dieu. Je vous encourage à servir, à servir humblement, à trouver ces petits gestes qui peuvent toucher une autre âme. De là naîtront une grande joie, une profonde satisfaction, un amour plus grand et une lumière magnifique.
 
 Que Dieu vous bénisse, mes chers amis. Je suis Faith. Oh, je vous aime tellement. Je suis ici pour servir, comme vous tous ensemble dans ce grand courant, pour dissiper les ténèbres et faire jaillir la lumière. Que Dieu vous bénisse, mes amis. Foi vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

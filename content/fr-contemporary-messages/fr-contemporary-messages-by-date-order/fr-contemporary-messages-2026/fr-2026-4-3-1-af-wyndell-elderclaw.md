@@ -21,3 +21,6 @@ Le magnifique chant que nous avons entendu émane d’une âme qui connaît bien
 
 Je vous remercie de m’avoir écouté. Je suis votre aîné et je continue de cheminer à vos côtés dans l’Amour de Dieu, en tant qu’ange racheté par Son Amour. Je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

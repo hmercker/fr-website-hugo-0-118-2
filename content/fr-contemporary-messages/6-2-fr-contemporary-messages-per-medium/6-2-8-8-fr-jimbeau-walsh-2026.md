@@ -58,6 +58,9 @@ Yogananda | [Nous ne souhaitons pas que vous rattachiez vos prières à une reli
 Yogananda | [La véritable paix au-delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-19-1-jw-yogananda/) | 19 Octobre 2026 
 David | [Auteurs-compositeurs gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-25-2-jw-david/) | 25 Octobre 2026
 Judas | [Jour des défunts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-2-1-jw-judas/) | 2 Novembre 2026
-St Luc | [Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-4-1-jw-st-luke/) | 4 Novembre 202
+St Luc | [Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-4-1-jw-st-luke/) | 4 Novembre 2026
+Care Darby Walsh | [Est-ce étonnant ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-9-1-jw-care-darby-walsh/) | 9 Novembre 2026
+Hazrat Inayat Khan | [L’univers est un chant qui fredonne l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-16-1-jw-hazrat-inayat-khan/) | 16 Novembre 2026
+St Paul | [Foi, espérance et charité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-20-1-jw-st-paul/) | 20 Novembre 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

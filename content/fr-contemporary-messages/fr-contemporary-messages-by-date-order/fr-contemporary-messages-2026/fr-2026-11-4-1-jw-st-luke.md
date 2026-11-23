@@ -11,7 +11,7 @@ weight:
 
 Luc - reçu par Jimbeau Walsh le 04 Novembre, Nashville, Tennesse, USA.
 
-C’est moi, votre frère, votre ami et votre guide, Luc. Vous avez peut-être déjà entendu l’expression « la paix vient sur les ailes d’une colombe ». Et vous savez peut-être que la colombe symbolise le fait d’apporter cette paix du Père céleste dans le cœur et l’âme de ceux qui prient, tandis que Son Esprit Saint leur transmet Son amour.
+C’est moi, votre frère, votre ami et votre guide, Luc. Vous avez peut-être déjà entendu l’expression *« la paix vient sur les ailes d’une colombe »-. Et vous savez peut-être que la colombe symbolise le fait d’apporter cette paix du Père céleste dans le cœur et l’âme de ceux qui prient, tandis que Son Esprit Saint leur transmet Son amour.
 
 Ainsi, lorsque vous priez pour recevoir ce merveilleux don, le don par excellence, vous êtes transformés. Votre colère se transforme en acceptation et en empathie. Là où vous étiez découragés, vous ressentez de l’espoir. Car la main de l’éternité repose sur vous dans l’Amour de Dieu.
 

@@ -27,3 +27,6 @@ Mes bien-aimés, marchez avec moi dans le monde et aidez Dieu et les anges à ap
 
 Que Dieu vous bénisse. Mes bien-aimés. Soyez les instruments de Dieu et mes disciples. Vous bénéficierez d’une vie comblée, pleine de promesses, de joie et d’expériences qui dépassent votre entendement actuel. Ce qui adviendra sera pour vous, mes bien-aimés, une bénédiction immense. Car celui qui transmet le message est béni, tout comme ceux qu’il sert le seront. Tout est donné par amour, et le pouvoir de cet amour de transformer et de guérir se manifestera de multiples façons. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et votre ami. Je suis Jésus, Maître des Cieux. Je vous apporte mon message pour vous encourager dans votre mission. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous à chaque instant. Je suis avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse de son amour.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

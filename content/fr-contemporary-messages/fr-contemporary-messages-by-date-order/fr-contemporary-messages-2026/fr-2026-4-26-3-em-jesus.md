@@ -17,6 +17,10 @@ Alors que nous arrivons au terme de cette retraite, je vous offre mon amour et m
 
 Réfléchissez à tout ce qui vous a été donné. Demandez au Père de vous montrer tout ce qui vous a été accordé. Ayez foi dans le fait que ce que vous percevez finira par se manifester, car telle est la Volonté de Dieu et cela fait partie de Son dessein. Sachez que cela se réalisera. C’est là la foi — une foi fondée sur la connaissance issue de votre expérience avec Dieu. Vous avez été bénis par davantage de foi, davantage de vérité et davantage d’Amour. Vous avez été richement bénis. Acceptez et accueillez ces dons.
 
-Sur le chemin du retour vers vos foyers, vous serez accompagnés par des anges Célestes qui veilleront sur votre sécurité. Alors que vous réfléchirez à tout ce qui s’est vécu ici, vous serez inspirés par ces anges célestes ; sachez qu’ils resteront toujours à vos côtés. Accueillez cela profondément en vous et apprenez à collaborer avec vos anges.
+Sur le chemin du retour vers vos foyers, vous serez accompagnés par des anges Célestes qui veilleront sur votre sécurité. Alors que vous réfléchirez à tout ce qui s’est vécu ici, vous serez inspirés par ces anges Célestes ; sachez qu’ils resteront toujours à vos côtés. Accueillez cela profondément en vous et apprenez à collaborer avec vos anges.
 
 Je clos maintenant ce cercle, tout en laissant ouvert ce portail pour de futures retraites, de futures prières et de futures communions avec notre Père. Que Dieu vous bénisse. De Sa main puissante, Il vous bénit. Mon amour est avec vous. Je suis votre frère, Jésus. Je veillerai également sur vous. Soyez bénis, chers, très chers vrais enfants, mes disciples, mes apôtres, mes suiveurs. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

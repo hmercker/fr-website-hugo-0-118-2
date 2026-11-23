@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de George-Stokes
 
-George Stokes était, lors de sa transition vrrs le monde des esprits, un membre très ancien de la communauté de l'Amour Divin et il a animé pendant de longues années, à Santa Cruz, un groupe d'études des messages de James Padgett dont il avait pris connaissance, dans une bibliotèque, lors de la lecture des premiers volumes des messages de James Padgett alors publés. Il est décédé en 1978.
+George Stokes était, lors de sa transition vers le monde des esprits, un membre très ancien de la communauté de l'Amour Divin et il a animé pendant de longues années, à Santa Cruz, un groupe d'études des messages de James Padgett dont il avait pris connaissance, dans une bibliotèque, lors de la lecture des premiers volumes des messages de James Padgett alors publés. Il est décédé en 1978.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -30,3 +30,4 @@ George Stokes et Timothée | [Un don de communication](/fr-contemporary-messages
 George Stokes et Marie | [Éveillez vos dons et cheminez dans l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-20-2-em-george-stokes-mary/) | 20 Mars 2026
 George Stokes et Jésus | [Jésus vient faciliter les bénédictions de Dieu pour l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-30-2-em-george-stokes-jesus/) | 30 Mars 2026
 George Stokes | [Changements à venir pour soutenir les âmes sur cette Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-27-1-em-george-stokes/) | 27 Avril 2026
+George Stokes | [Les êtres très sensibles sont ouverts. Priez pour eux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-13-1-em-george-stokes/) | 13 Août 2026

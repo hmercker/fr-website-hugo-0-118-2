@@ -39,3 +39,5 @@ Jean le Baptiste | [Annonce de sa supervision des projets de Gestion des Message
 Jean le baptiste | [L'humanité a une grande œuvre à accomplir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-3-em-john-the-baptist/) | 1 Février 2025 
 Jean le Baptiste | [Il y a désormais plus d'amour dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-5-em-john-the-baptist/) | 9 Mars 2025
 Jean-Baptiste | [Soyez des instruments de paix par l’Amour divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-22-4-em-john-the-baptist/) | 22 Mars 2026
+Jean-Baptiste | [La véritable spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-2-1-em-john-the-baptist/) | 2 Juillet 2026
+Jean-Baptiste | [Prenez conscience de qui vous êtes et de ce que vous êtes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-9-1-em-john-the-baptist/) | 9 Juillet 2026

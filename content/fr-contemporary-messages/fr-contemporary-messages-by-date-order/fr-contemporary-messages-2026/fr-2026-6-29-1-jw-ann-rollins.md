@@ -21,3 +21,7 @@ Laissez le baume guérisseur de cette bénédiction vous toucher. Accueillez le 
 Je sais qu'il peut être difficile d'atteindre ceux qui sont en guerre contre eux-mêmes et, parfois, les uns contre les autres ; mais lorsque vous faites briller votre lumière dans une pièce sombre, ce qui était invisible est mis en lumière, et un choix devient possible : demeurer dans la lumière ou lui résister. C'est une question de libre arbitre, et tout ce que nous demandons, c'est que vous apportiez cet Amour à tous, pour bénir chacun. Je vais donc regagner ce cercle de lumière, afin que le Père Céleste puisse répandre Son grand Amour en abondance sur tous. Tenez bon, mes amis. Gardez la prière dans votre cœur et un chant de joie dans votre âme. Que Dieu vous bénisse. Je suis votre sœur en Christ et votre amie pour l'éternité. 
 
 Je suis Anne Rollins. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

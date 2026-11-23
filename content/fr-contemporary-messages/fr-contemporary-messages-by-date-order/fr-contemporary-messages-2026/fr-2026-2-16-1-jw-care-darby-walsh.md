@@ -22,3 +22,7 @@ Je sais que mon bien-aimé préfère que l'on ne parle pas de lui, mais j'étais
 Je vous remercie et je vous aime de tout mon cœur. Je suis votre sœur et votre amie, pour l'éternité. Que Dieu vous bénisse.
 
 Je suis Care.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

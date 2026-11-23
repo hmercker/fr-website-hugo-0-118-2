@@ -18,3 +18,7 @@ Vous apprenez les leçons de l’amour. Vous apprenez ce qu’est véritablement
 Il n’y a pas de plus grand don, mes bien-aimés, pas de plus grand don, que l’Amour du Père. Mon Fils bien-aimé est venu sur Terre pour en parler et il le fait encore à tous ceux qui veulent bien l’écouter : le salut de l’âme est accessible à tous. Vous, mes chers et précieux enfants de lumière, vous devez en parler, être les disciples de Jésus sur Terre et connaître les bénédictions et les bienfaits que vos efforts et vos prières apporteront à vos vies, à celles de vos proches et à celles de toute l’humanité. Cette bénédiction touchera profondément tous ceux qui s’abreuveront à cette source.
 
 Mes bien-aimés, nous sommes un dans l’Amour du Père et cheminerons ainsi vers la réconciliation avec Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Marie et je vous aime. Que Dieu vous bénisse, chers enfants de Dieu.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

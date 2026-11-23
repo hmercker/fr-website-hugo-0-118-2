@@ -22,3 +22,7 @@ Ainsi, il y a le grand bateau, la communauté qui crée un refuge, et il y a, co
 Il y a une immense joie à savoir que l’on a touché une autre âme, que l’on a nourri une bouche affamée, que l’on a vêtu et abrité une personne dans le besoin. Et la plus grande joie est de savoir que l’on a conduit quelqu’un à la vérité de ce grand don d’amour qui transforme l’âme, la faisant passer de mortelle à immortelle, d’humaine à divine. Je vous remercie pour ce moment et mon frère d’avoir reçu ce message. Je vous souhaite toutes les bénédictions et tous les dons de l’Amour de Dieu. Qu’ils vous soient accordés. Je suis votre sœur et amie.
 
 Je suis Eileen Caddy. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

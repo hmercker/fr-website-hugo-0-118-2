@@ -21,4 +21,8 @@ Je souhaite à ceux qui sont à l'aube d'un changement de l'accueillir dans l'Am
 
 Alors, ayez confiance en l’Amour de Dieu. Ayez confiance en Sa miséricorde et en Sa foi. Gardez un cœur plein d’espérance et priez pour que cette joie, cette transformation, soit vôtre. Je suis votre sœur en Christ et je vous aime. Que Dieu vous accompagne.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 

@@ -20,3 +20,7 @@ L'Amour Divin est un don. Il est le lien entre les mondes, et plus vous priez, p
 Et comme il a été dit, le désir de servir autrui existe dans tous ces royaumes, au-delà des sphères inférieures, et nous nous réjouissons de ce service, dont nous constatons les fruits. Et nous vous voyons tous ici, au cœur de votre propre transformation, chacun une âme unique et magnifique.
 
 Alors, n'ayez pas peur de l'avenir et permettez à ceux que vous aimez en transition de poursuivre leur chemin, au-delà des limites du plan terrestre et du monde physique. Car, tandis que vous parcourez ce chemin, tandis que vous priez pour être transformés, vous attirez à vous une multitude d'esprits progressistes et d'anges Célestes. Ayez foi et confiance en votre marche avec Dieu. Gardez espoir. Vous êtes tellement aimés. Je vous remercie tous, ainsi que mon frère ici présent, et je me joins à vous pour partager la beauté de cette prière en présence du Père et de sa grâce. Avec tout mon amour et mes bénédictions, je suis votre frère en Christ, Luc « le Médecin ». Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

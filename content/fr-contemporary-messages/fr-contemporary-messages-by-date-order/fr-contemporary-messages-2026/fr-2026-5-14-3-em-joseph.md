@@ -16,3 +16,7 @@ Je suis Joseph, le père terrestre de Jésus. Mon jeune ami a parlé de la famil
 Voilà la véritable famille de l’humanité. C’est ce lien authentique que le Père a voulu pour tous Ses enfants : être unis par cet Amour indestructible, inaltérable et éternel. Vous commencez désormais à entrevoir à quel point notre Créateur aime chacun de Ses enfants. En progressant dans cet Amour et en priant pour vos frères et sœurs, où qu’ils se trouvent, vos liens deviennent plus forts et plus sincères ; vous bâtissez ainsi votre vie au sein de votre famille unie par l’Amour Divin — la famille de Dieu.
 
 J’espère que vous prendrez le temps de méditer sur cette relation que vous êtes en train de tisser, non seulement avec Dieu, mais aussi avec vos frères et sœurs — une relation fondée sur l’amour véritable et la parenté spirituelle. Je vous remercie de votre écoute et de votre attention. Je suis votre frère Joseph. Mon amour vous accompagne, et notre Père vous aime tous, profondément — aussi profondément que vous Lui permettez de vous aimer.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

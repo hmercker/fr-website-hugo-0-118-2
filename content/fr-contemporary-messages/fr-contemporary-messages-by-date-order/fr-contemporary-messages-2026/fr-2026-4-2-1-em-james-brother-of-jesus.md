@@ -18,3 +18,7 @@ C’est aussi ce qui vous est demandé : prier et exprimer ce don particulier �
 Alors, priez depuis le plus profond de votre âme et de votre cœur. Priez pour devenir ces instruments de Dieu. Priez pour accueillir ces âmes qui viennent à vous, en leur offrant le plus grand amour que vous portez en vous. Sachez que nous travaillons à vos côtés. De grands changements s’annoncent. Vous commencerez vous-mêmes à ressentir les changements en votre for intérieur. Plus vous serez ces instruments, plus vous percevrez la différence entre ce que vous étiez autrefois et ce que vous devenez. Rayonnez intensément, mes enfants, rayonnez intensément, et laissez l’Amour de Dieu passer à travers vous pour toucher vos frères et sœurs, d’une manière que vous ne sauriez imaginer. Laissez Son Amour vous traverser et bénir ces enfants.
 
 Je vous remercie de votre écoute. Je vous remercie de vos prières. Nous souhaitons prier avec vous en ce moment. Que Dieu vous bénisse. Que Dieu vous bénisse abondamment. Je suis Jacques, le frère de Jésus, qui est mon Maître.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

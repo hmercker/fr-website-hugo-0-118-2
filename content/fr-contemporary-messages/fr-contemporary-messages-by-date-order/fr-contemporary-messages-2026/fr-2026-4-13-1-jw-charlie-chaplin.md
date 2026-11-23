@@ -26,3 +26,7 @@ Alors, gardez espoir, car on se souviendra de vous pour l'amour que vous avez do
 Puissions-nous tous recevoir une abondance de l'Amour de Dieu et répandre la joie. J'ai promis à mon frère un t-shirt avec l'inscription *« L'amour de Dieu et plus encore »*, et je vais économiser pour ce t-shirt. Que Dieu vous bénisse tous et merci. Je suis votre frère dans l'Amour de Dieu, un disciple du Maître et votre ami éternel.
 
 Je suis Charlie Chaplin. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

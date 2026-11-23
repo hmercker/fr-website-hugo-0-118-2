@@ -25,3 +25,7 @@ Je suis profondément reconnaissant de cette occasion de m’exprimer par l’in
 
 Je suis Alexander Pope. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

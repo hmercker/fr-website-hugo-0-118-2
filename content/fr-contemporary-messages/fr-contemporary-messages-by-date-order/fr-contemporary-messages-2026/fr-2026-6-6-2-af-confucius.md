@@ -36,3 +36,7 @@ Vous trouverez en cela un grand épanouissement, mes bien-aimés, un épanouisse
 Comprenez cela profondément et vivez en accord avec cette vérité. Vous constaterez que votre vie se transformera et s'harmonisera avec cette découverte et cette expression de votre âme. Nous continuons de vous accompagner sur ce chemin, de vous aider à le comprendre, à vous rapprocher de Dieu et de votre véritable nature. C'est avec une immense joie que nous sommes parmi vous. Chers frères et sœurs, nous ne formons qu'une seule famille et, en vérité, nous servons tous Dieu, n'est-ce pas ?
 
 Que la paix, l'humilité et la connaissance vous comblent, âmes bien-aimées, mais surtout que vous puissiez rayonner de l'Amour de Dieu à travers vous. Que Dieu vous bénisse. Je suis Confucius et je viens à vous avec amour, reconnaissance, joie et émerveillement. Vous êtes magnifiques. Vous êtes beaux et aimés, si aimés. Que Dieu vous bénisse. Confucius vous aime. Je vous offre mon amour.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

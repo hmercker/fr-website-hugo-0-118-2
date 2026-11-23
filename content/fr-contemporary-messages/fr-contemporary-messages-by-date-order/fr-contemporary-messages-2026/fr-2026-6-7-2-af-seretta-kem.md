@@ -24,3 +24,7 @@ Communiquer ne signifie pas nécessairement passer par la médiumnité de transe
 Mes amis, priez pour recevoir l'Amour de Dieu. Cherchez en vous ce désir. Souhaitez-vous que nous puissions communiquer avec vous lorsque les temps à venir ne vous permettront plus de vous réunir en cercles comme vous le faites aujourd'hui ? Voulez-vous que nous soyons proches de vous ? Désirez-vous que votre lien avec Dieu soit fort ? Si tel est le cas, alors laissez-nous entrer. Laissez Dieu entrer. Permettez à vos âmes de se développer de telle sorte que la communion et la communication deviennent possibles.
 
 Je suis Seretta Kem ; je suis là pour vous guider, vous encourager et vous inspirer dans votre cheminement vers l'éveil spirituel dans l'Amour Divin. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

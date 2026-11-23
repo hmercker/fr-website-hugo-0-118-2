@@ -16,3 +16,7 @@ Je suis Jésus, et je vous accompagnerai également dans ce voyage, vous apporta
 Nous devons voyager sur le plan terrestre. Nous le faisons avec amour. Nous le faisons avec humilité. Nous apportons notre grâce avec nous pour vous soutenir et vous élever. Nous venons être avec vous en ce temps de besoin, en ce temps de désir, en ce temps d’élévation, en ce temps d’apprentissage et d’expérience de la vérité de l’âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je demeurerai avec vous. Mes prières vous accompagnent et de nombreux anges vous entourent de la grâce de l’amour de Dieu. Nous sommes là pour vous et pour le monde. Que Dieu vous bénisse, âmes bien-aimées. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

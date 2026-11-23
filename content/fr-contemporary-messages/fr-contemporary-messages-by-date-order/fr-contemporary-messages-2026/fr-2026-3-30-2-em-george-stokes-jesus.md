@@ -18,3 +18,7 @@ George Stokes et Jésus - reçu par Elizabeth Mack le 26 Mars 2026, One Nation C
 Le Père rassemble tout le monde autour de Lui et les rapproche, les rapproche comme le ferait un père aimant. Il les bénit tous de multiples façons, par des moyens qu’ils ne connaissent peut-être même pas, mais qu’ils vont expérimenter. Son Amour se déverse sur vous tous lorsque vous vous ouvrez et permettez à Son Amour d’entrer. Grande est cette œuvre. Plus grand encore est Son Amour, généreux pour Ses enfants. Puissent tous ces enfants recevoir la générosité de Son Amour glorieux.
 
 Que Dieu vous bénisse tous. Que Dieu vous bénisse tous. Je vous aime. Je suis votre frère. Je suis Jésus. Mon amour pour vous est immense, et celui du Père est incommensurable. Restez ouverts, mes chers enfants, car le Père continue de bénir vos frères et sœurs sur Terre de bien des façons.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

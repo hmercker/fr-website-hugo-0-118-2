@@ -24,3 +24,7 @@ Ainsi, où que vous soyez sur ce chemin, et chaque fois que vous vous sentez ind
 Je remercie mon petit-fils spirituel d'avoir été réceptif à ce message, et je remercie chacune de vous, chères âmes, si belles, si bénies. Que la joie de l'Amour de Dieu vous accompagne, et que votre chemin vers l'éternité soit béni et lumineux au-delà de toute imagination. Ayez confiance en ces paroles et, par-dessus tout, ayez confiance en Dieu. Ayez foi. Réjouissez-vous. Je suis votre frère et ami en Christ, une âme rachetée dans le Royaume Céleste.
 
 Je suis George Gurdjieff. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

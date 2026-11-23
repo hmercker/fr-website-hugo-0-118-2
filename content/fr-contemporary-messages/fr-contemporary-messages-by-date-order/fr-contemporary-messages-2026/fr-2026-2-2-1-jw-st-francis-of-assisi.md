@@ -20,3 +20,7 @@ Voilà l'amour face à ce que l'on pourrait percevoir comme un ennemi. Des gens 
 Ainsi, à mon retour à Assise auprès de mes frères, j'ai revêtu la robe du soufi, « suf » signifiant laine. Nous n'avions que de simples vêtements de laine, et nous chantions et priions. Comme vous le savez, notre petit groupe a réussi à amener à nous ceux qui avaient besoin de prières, de nourriture, d'un abri et, surtout, de l'Amour de Dieu. Vous savez, bien sûr, que vous pouvez faire de même à tout moment, en toute situation, où que vous soyez et avec qui que vous soyez. Il suffit d'aller d'abord vers Dieu, de lui demander conseil, de le protéger et de lui demander le grand don de l'amour. Gardez cela avec vous partout où vous irez, et vous ne serez pas déçus, ni ceux que vous rencontrerez. Je vous le dis par expérience. Je retourne donc à ce cercle bienveillant et je remercie mon frère d'avoir une fois de plus reçu mon message. Que l'Amour de Dieu nous accompagne, nous bénisse et nous transforme à jamais. Je suis votre frère en Christ.
 
 Je suis François. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

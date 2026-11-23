@@ -21,3 +21,7 @@ Je vous exhorte, belles âmes de la Terre, à aller de l’avant. Soyez cette lu
 
 Que Dieu vous bénisse, mes chers amis. Je suis Moïse. Je viens réaffirmer la vérité, vous apporter une bénédiction de lumière, et vous dire tout ce dont vous avez besoin pour poursuivre le chemin de la transformation de votre âme et de la réconciliation avec Dieu. Cela est donné. Cela sera donné, pour l’éternité, à ceux qui le recherchent et le désirent. Que Dieu vous bénisse. Mon amour vous accompagne. Votre ami Moïse est ici, priant avec vous, ainsi que de nombreuses autres personnes du Royaume Céleste. Nous prions avec vous pour vous et pour le monde. Que Dieu vous bénisse tous dans la Lumière de Son Amour. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

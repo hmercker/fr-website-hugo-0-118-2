@@ -21,3 +21,7 @@ Je suis votre frère, George. J’éprouve un immense amour pour vous, ainsi qu�
 
 **Marie** : Je suis Marie, la mère de Jésus. Je viens à vous pour vous offrir mon amour et mes bénédictions. Puissiez-vous tous avancer, la tête haute, dans cet amour, et l’exprimer au quotidien, à chaque instant, afin de ressentir cet amour en vous et de le voir rayonner. Que Dieu vous bénisse. Mon amour est avec vous, maintenant et pour toujours. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

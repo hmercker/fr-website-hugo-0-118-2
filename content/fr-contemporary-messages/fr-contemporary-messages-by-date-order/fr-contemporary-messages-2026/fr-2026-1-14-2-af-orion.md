@@ -24,3 +24,7 @@ Mes chers amis, vous traversez une période cruciale, une période qui apportera
 Mes amis, poursuivons notre chemin. On nous donne beaucoup, et à votre tour, vous donnerez beaucoup au monde. Vous rencontrerez d'autres personnes, d'autres personnes avec qui vous tisserez des liens, que vous découvrirez dans ce vaste monde. Dieu y veillera. Dieu créera les conditions et les occasions pour que ces rencontres aient lieu. Vous vous reconnaîtrez. Vous saurez qu'ils sont véritablement vos frères et sœurs, véritablement bénis comme vous l'êtes. Certes, il y a beaucoup à faire, beaucoup de bénédictions à donner, beaucoup de bénédictions qui circulent à travers vous. Cherchez cela, mes amis, et vous connaîtrez l'émerveillement, l'accomplissement de la mission de votre âme et vous verrez la Lumière et la puissance de l'Amour de Dieu en vous.
 
 Que Dieu vous bénisse, mes amis. Orion vous aime. (...) J'ai été présent lors de vos prières et de vos réflexions. J'y ai moi aussi participé. Que Dieu vous bénisse tous sur ce chemin. Que Dieu vous guide et vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

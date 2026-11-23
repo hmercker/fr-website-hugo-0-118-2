@@ -45,8 +45,8 @@ Moïse | [L’importance de votre ministère](/fr-contemporary-messages/fr-conte
 Jésus | [Demandez au Père de vous montrer tout ce qui vous a été donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-26-3-em-jesus/) | 26 Avril 2026
 George Stokes | [Changements à venir pour soutenir les âmes sur cette Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-27-1-em-george-stokes/) | 27 Avril 2026
 Jeanne d'Arc | [Les changements auxquels vous pouvez vous attendre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-30-1-em-joan-of-arc/) | 30 Avril 2026
-Ann | [Recevoir l’Amour Divin vous met en harmonie avec la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-3-1-em-ann/) | 3 Mai 2026
-Jean Hugues | [Soyez à l’écoute de la vérité transmise par cet Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-7-2--john-hugues/) | 7 Mai 2026
+Ann | [Recevoir l’Amour Divin vous met en harmonie avec la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-3-2-em-ann/) | 3 Mai 2026
+Jean Hugues | [Soyez à l’écoute de la vérité transmise par cet Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-7-2-em-john-hugues/) | 7 Mai 2026
 Marie | [L’expression de l’Amour de Dieu en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-em-mary/) | 11 Mai 2026
 Jeanne d’Arc | [À travers vous, nous œuvrerons à instaurer davantage d’harmonie sur cette Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-13-1-em-joan-of-arc/) | 13 Mai 2026
 Confucius | [Vous avez reçu des dons pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2026-5-14-1-em-confucius/) | 14 Mai 2026
@@ -56,4 +56,22 @@ Marty Ketterman | [La joie de la progression](/fr-contemporary-messages/fr-conte
 Keea Atta Kem | [Travaux sur le développement des guérisseurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-15-2-em-keea-atta-kem/) | 15 Mai 2026
 Timothé | [Nous sommes à vos côtés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-15-3-em-timothy/) | 15 Mai 2026
 Pierre | [Vous avez tout ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-16-2-em-st-peter/) | 16 Mai 2026
+Marc | [Vos prières, unies, élèveront l’énergie de la planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-4-2-em-mark/) | 4 Juin 2026
+Moïse | [Le don de la Volonté de Dieu, insufflé dans vos âmes, vous guidera sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-5-3-em-moses/) | 5 Juin 2026
+Marie | [Les souvenirs de vos cercles de prière sont inscrits dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-8-2-em-mary/) | 8 Juin 2026
+Joseph | [Ne vous limitez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-11-1-em-joseph/) | 11 Juin 2026
+Jacques | [Votre premier objectif est de recevoir l’Amour Divin et de retourner auprès de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-12-2-em-james/) | 12 Juin 2026
+Daniel | [Nous travaillons ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-15-2-em-daniel/) | 15 Juin 2026
+Jean Hugues | [Éliminez ces montagnes en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-18-1-em-john-hugues/) | 18 Juin 2026
+Daniel | [Dieu vous utilise au sein de ces cercles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-22-2-em-daniel/) | 22 Juin 2026
+Ruth | [Discernez vos fausses croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-28-2-em-ruth/) | 28 Juin 2026
+Marthe | [Priez pour ceux qui résistent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-29-3-em-martha/) | 29 Juin 2026
+Jean-Baptiste | [La véritable spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-2-1-em-john-the-baptist/) | 2 Juillet 2026
+Jacques (de la cinquième sphère) et Jean Hugues | [L’Amour Divin vous portera à travers les épreuves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-6-1-em-james-5th-spherian-john-hughe/) | 6 Juillet 2026
+Jean-Baptiste | [Prenez conscience de qui vous êtes et de ce que vous êtes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-9-1-em-john-the-baptist/) | 9 Juillet 2026
+Marc | [La vérité est nécessaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-16-1-em-mark/) | 16 Juillet 2026
+Barthélemy | [Barthélemy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-19-2-em-bartholomew/) | 19 Juillet 2026
+Jeanne d’Arc | [Enseignez avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-9-2-em-joan-of-arc/) | 9 Août 2026
+St Pierre | [Que signifie « Nous sommes avec vous » ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-10-2-em-st-peter/) | 10 Août 2026
+George Stokes | [Les êtres très sensibles sont ouverts. Priez pour eux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-13-1-em-george-stokes/) | 13 Août 2026
 St Matthieu | [La douceur de la progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-20-1-em-st-mathhew/) | 20 Août 2026

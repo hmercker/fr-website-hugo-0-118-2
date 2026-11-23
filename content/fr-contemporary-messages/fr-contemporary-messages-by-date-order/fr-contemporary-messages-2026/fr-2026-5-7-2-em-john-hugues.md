@@ -18,3 +18,7 @@ Je suis ici. Je suis Jean Hughes. À mesure que je m’approche, vous me reconna
 Votre âme le saura. Votre âme le ressentira. Ce ne sera peut-être qu’un murmure pour vous, mais l’Amour qui l’accompagne est indéniable. Il est apaisant, il est réconfortant, il est doux et il est si bien accueilli par votre âme. Laissez-vous aller. Laissez cela venir à vous. Ouvrez-vous et laissez l’Amour de Dieu venir à vous et, avec lui, tout ce dont vous avez besoin et tout ce que votre âme désire. Telle est la leçon d’aujourd’hui sur la communion avec Dieu.
 
 Que Dieu vous bénisse. Je vous aime tous, chacun d’entre vous. Je m’appelle Jean Hughes et j’accompagne souvent cette médium dans son apprentissage.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

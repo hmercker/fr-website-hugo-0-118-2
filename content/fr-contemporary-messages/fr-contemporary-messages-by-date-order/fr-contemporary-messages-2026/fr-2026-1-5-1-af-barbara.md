@@ -1,7 +1,7 @@
 ---
 title: "Établir une base solide de prière et éviter la rigidité pour devenir des enseignants efficaces"
 menu_title: ""
-description: "Barbara, reçu par Albert Fike : « Les circonstances terrestres dresseront sans aucun doute des obstacles et des situations qui tenteront de contrecarrer … »"
+description: "Établir une base solide de prière et éviter la rigidité pour devenir des enseignants efficaces"
 date: 2026-01-21 06:00:01+00:01
 draft: False
 hidden: True
@@ -34,3 +34,7 @@ Mes amis, ne soyez pas rigides. Laissez l’Amour rayonner en vous, dans le mond
 Dans bien des situations, c’est le mieux que vous puissiez faire. Il est important d’essayer, de faire cet effort, d’accueillir l’autre âme et de partager cette simple vérité qui est aussi la vérité de votre vie. Partagez-la avec vos amis et votre famille. Dites : *« Voici ce qui est important pour moi. Voici ce qui me guide et ce pour quoi je vis : ce don précieux de l’Amour de Dieu. »* Ils ne pourront pas vous le nier et vous aurez révélé quelque chose de très important sur vous-même et sur vos motivations. Ils repartiront peut-être avec le don de votre engagement et de votre témoignage, d’une manière personnelle et authentique. Il existe de nombreuses façons de partager cette Vérité de l’Amour de Dieu. Soyez créatifs. Soyez fidèles à votre propre expérience. Soyez réceptifs aux conseils que Dieu vous donnera et à l’influence et à l’inspiration que nous vous apporterons. Vous avez beaucoup de soutien et beaucoup d’amour. Marchez dans le monde avec cette confiance, en reconnaissant et en accueillant ce qui vous est véritablement donné et qui s’exprime à travers vous.
 
 Que Dieu vous bénisse, mes chers amis. Je suis Barbara. Je suis heureuse de m’adresser à vous de cette manière, afin de partager le plus beau cadeau que vous puissiez offrir à une âme. Je vous encourage à être bienveillants et à dire la vérité avec amour et grâce. Que Dieu vous bénisse. Barbara vous aime. Nous continuerons d’être à vos côtés et de prier ensemble. Je vous aime, oh combien je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

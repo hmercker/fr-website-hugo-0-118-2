@@ -26,3 +26,7 @@ Votre esprit ne le perçoit pas. Il a beaucoup de mal à saisir la complexité, 
 Mes chers et précieux élèves, continuez à vous épanouir, à grandir, à apprendre et à progresser. Il est important que vous reconnaissiez que chaque jour est une occasion de le faire. Voyez votre journée sous cet angle. Réjouissez-vous de savoir que Dieu vous utilisera comme instruments de manière merveilleuse et sublime. Dieu vous aime profondément. Que votre amour pour Dieu grandisse et s’étende, et que de ce sentiment et de cette expression partagés se manifestent en vous et, par vous, pour le monde.
 
 Que Dieu vous bénisse, mes élèves. Je suis votre enseignant, Augustin. Je vous aime. Je continuerai à enseigner et à exprimer la vérité, et je vous encourage à faire de même. Partout où l’occasion se présente, proclamez cette vérité et soyez des instruments de l’Amour de Dieu, chers frères et sœurs. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

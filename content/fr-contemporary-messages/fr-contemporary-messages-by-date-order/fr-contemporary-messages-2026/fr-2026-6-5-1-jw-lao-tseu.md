@@ -22,3 +22,7 @@ Je souhaite vous parler des attentes. Les attentes représentent un résultat so
 Sur ce chemin, vous vous souviendrez peut-être, et vous vous en souvenez peut-être déjà, des paroles du Maître : *« À moins de redevenir comme de petits enfants, vous ne pouvez entrer dans le Royaume. »* Je le souligne car les enfants sont pleinement présents et entièrement dépendants de ceux qui prennent soin d'eux. Et à mesure que vous progressez sur ce chemin et que vous prenez conscience de votre dépendance absolue envers Dieu, la foi grandira et votre âme progressera. De plus, j'ajouterai que l'humilité est requise. L'humilité devant votre Créateur, née du désir profond de votre âme d'être unie à Lui, de recevoir la substance de l'Amour Divin. Chez les enfants, nous appelons cela l'innocence et la confiance. Enfin, je vous le dis, tandis que vous avancez sur ce chemin d'Amour Divin et de transformation, ne vous souciez pas du résultat, mais marchez avec foi. Soyez ici et maintenant dans l'Amour de Dieu, dans la sainte présence qui vous relie à l'éternité et à l'immortalité, où nous ne ferons qu'un, dans la joie, la béatitude et l'amour. Je vous remercie pour ce moment, et mon frère d'avoir reçu ce message.
 
 Que Dieu vous bénisse. Je suis Lao Tseu.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

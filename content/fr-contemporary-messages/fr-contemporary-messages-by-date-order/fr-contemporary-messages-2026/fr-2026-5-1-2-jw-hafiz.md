@@ -19,5 +19,9 @@ Pourquoi ne pas commencer par allumer la lumière pour pouvoir voir ? Par écout
 
 Le sage sait marcher en silence pour que son âme puisse entendre, même les murmures de son Créateur. Quant à la femme sage, elle est tout ouïe dès l'instant même. Je ne vous dirais pas tout cela si vous n'étiez pas à l'écoute. Sept grains de vérité peuvent rassasier toute âme en quête de nourriture. Régalez-vous-en.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 
 

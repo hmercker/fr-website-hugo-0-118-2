@@ -18,3 +18,7 @@ Vous agissez et rendez un grand service à l’humanité en faisant rayonner cet
 Ce chemin sera éternel, mes bien-aimés, vous rapprochant sans cesse de l’éveil divin, l’enrichissant toujours plus des capacités et des facultés de votre âme. Cherchez-le. Cherchez-le, mes amis bien-aimés, et vous serez véritablement bénis. Le moment est venu d’exercer votre désir et votre volonté d’être avec Dieu et de vous ouvrir à Ses bénédictions.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je prie avec vous. Mon amour vous accompagne tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

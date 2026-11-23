@@ -32,3 +32,7 @@ Puissiez-vous être bénis par la conscience de ce don que Dieu vous offre à tr
 Ce Toucher est à votre portée et vous avez le pouvoir d’attirer cette bénédiction à vous. Ouvrez-vous à cette bénédiction. Aspirez-y, désirez-le de tout votre cœur et de toute votre âme, et vous verrez que Die vous répondra à la mesure de cette ferveur et de cet effort.
 
 Que vous soyez bénis, mes bien-aimés, par l’effusion des bénédictions de l’Âme de Dieu sur la vôtre. Dieu le souhaite pour vous, et cela se réalisera selon votre propre désir. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Nous avons compris, il y a bien longtemps, toute la valeur de la vie sur Terre l
 Nous touchons chacun d’entre vous, en vous transmettant certaines des bénédictions que notre Père céleste nous a accordées. Puissiez-vous prendre conscience à quel point vous êtes bénis, ressentir toute la profondeur des bénédictions qui vous sont offertes à chaque fois que vous priez, et apprendre à cheminer avec elles, en les exprimant toujours davantage — parfois sans même réaliser à quel point vous avez été transformés. Mais lorsque vous passerez de l’autre côté du voile, vous percevrez plus clairement les bénédictions que vous portez en vous — ces dons, ces manières d’exprimer l’âme que Dieu a créées en vous. Il vous reste encore beaucoup à apprendre et beaucoup de chemin à parcourir ; mais vous devez désormais comprendre que nous marchons à vos côtés. Nous sommes avec vous, et il vous arrive même de nous sentir, tout particulièrement dans la prière.
 
 Que le Père vous bénisse toujours davantage, à mesure que vous progressez sur ce chemin sacré qui mène à Dieu, dans Son Amour. Je suis Claire ; je suis très heureuse de pouvoir m’entretenir avec vous aujourd’hui et de vous témoigner mon amour. Que Dieu vous bénisse. Je suis Claire.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

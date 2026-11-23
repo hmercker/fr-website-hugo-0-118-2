@@ -22,3 +22,7 @@ J’aborde ce sujet aujourd’hui d’une manière quelque peu différente de ce
 Nous sommes avec vous, véritables enfants de Dieu. Et nous continuerons de l’être. Notre amour vous accompagne, et l’Amour du Père vous est, quant à lui, toujours accessible. Ouvrez-vous dès maintenant et permettez à ce don d’Amour sacré et transformateur — émanant directement de l’Âme de Dieu — de pénétrer vos propres âmes pour les transformer davantage. Prier souvent, et avec une profonde sincérité, intensifiera cette transformation de vos âmes et éveillera en vous l’amour pour vos frères et sœurs ; cela les aidera, à leur tour, à apprendre à vivre dans l’amour sur cette planète.
 
 Je vous remercie de votre écoute. Je vous remercie d’avoir entendu. Je vous remercie pour votre contribution à la transformation des âmes sur cette Terre, ainsi que de celles qui résident dans le monde spirituel. Que Dieu vous bénisse abondamment en ce jour. Je suis Isaïe ; je suis heureux d’être parmi vous aujourd’hui et de me tenir à vos côtés tandis que vous priez notre Père, l’âme la plus glorieuse qui soit. Que Dieu vous bénisse ; je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

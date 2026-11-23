@@ -20,3 +20,7 @@ Mes chers amis, enfants de Dieu, ne sous-estimez pas le pouvoir de Dieu et de se
 Oui, il y a beaucoup à faire et vous êtes prêts, mes chers amis. Nous aussi, nous sommes prêts. Ensemble, le flot de ces bénédictions sera immense, d’une portée considérable, touchant de nombreuses âmes. Vous verrez. Vous comprendrez et réaliserez la complexité, la puissance, la profondeur et la magnificence du plan de Dieu, comment Il a tissé vos belles lumières dans ce plan et créé une tapisserie de service unique, d’une beauté puissante et pleine de potentiel pour aider à changer le monde comme il doit l’être, à le guérir comme il doit l’être et à ouvrir les portes qui doivent l’être, afin que l’amour puisse circuler librement, que tout se réalise selon la volonté de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu. Je vous aime, je vous honore et je vois vos lumières, si belles et si brillantes. En effet, ces lumières attirent beaucoup de personnes à vous par votre service à Dieu. Que Dieu vous bénisse, mes bien-aimés. Matthieu vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

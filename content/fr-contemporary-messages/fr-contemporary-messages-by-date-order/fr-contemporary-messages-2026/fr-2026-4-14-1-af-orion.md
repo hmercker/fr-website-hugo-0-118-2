@@ -43,3 +43,7 @@ Nous poursuivons notre cheminement ensemble, mes amis. Je suis Orion. Non, je ne
 <small>
 
 1. <large id="f1"> Le groupe discutait de l'existence et des intentions d'amis stellaires lors d'une séance de questions-réponses consacrée à ce sujet.[↩](#a1)
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

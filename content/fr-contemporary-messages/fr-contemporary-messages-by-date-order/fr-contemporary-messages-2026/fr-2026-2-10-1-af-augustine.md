@@ -49,3 +49,7 @@ Continuez sur ce chemin, âmes bien-aimées, et peu de choses vous seront refus�
 Concentrez-vous sur cela, mes bien-aimés, concentrez-vous sur cela. Vous connaîtrez alors les joies dont je parle et l'émerveillement qui s'y trouve. C'est à vous de le découvrir. Dieu vous donne toutes les capacités et toutes les occasions de vivre ces expériences, faisant de vous ses enfants véritables. Il vous nourrit de tout ce qu'il peut donner. Nous sommes là comme vos amis et vos soutiens, vos guides, vos gardiens et vos protecteurs, pour veiller à ce que la lumière vous parvienne. Il vous appartient de vous ouvrir à ces bénédictions, d'être fidèles et de respecter ce que Dieu vous a offert comme un don précieux qui vous transformera et vous donnera la vie éternelle.
 
 Que Dieu vous bénisse, mes élèves. Je suis votre enseignant, Augustin, et je vous aime profondément. Je vous aime et je continue de vous enseigner et de vous encourager tandis que nous cheminons ensemble sur cette voie divine. Mon amour vous accompagne. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

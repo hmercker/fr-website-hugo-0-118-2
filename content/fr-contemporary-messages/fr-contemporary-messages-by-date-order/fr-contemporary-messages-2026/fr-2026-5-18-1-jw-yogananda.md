@@ -21,4 +21,8 @@ Enfin, je tiens à ajouter qu’il n’est pas nécessaire de tout contrôler da
 
 Je vous remercie pour ce moment, et je retourne dans ce cercle sacré, dans l’Amour de Dieu, pour être avec vous. Avec tout mon amour, je suis votre frère en Christ. Je suis Yogananda. Allez en paix.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 

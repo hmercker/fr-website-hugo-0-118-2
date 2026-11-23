@@ -28,3 +28,7 @@ Mes chers amis, il y a encore tant à découvrir, à connaître, à voir, à res
 Mes frères et sœurs bien-aimés, nous sommes tous, au Royaume Céleste, très heureux de vous voir réunis ainsi, de voir que vous discutez non pas de futilités, mais de sujets importants, de voir que vous vous adressez les uns aux autres avec amour, acceptation, respect et reconnaissance de la beauté que Dieu a créée, de la beauté de vos âmes. Ainsi vous sont donnés ces dons, cette opportunité et ces bénédictions. Vous êtes dans la lumière, mes frères et sœurs. Nous sommes ensemble dans la lumière et serons bénis en conséquence.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis André et je vous aime. Je vous reconnais. Je vous vois, je vous vois vraiment, et je vous aime. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

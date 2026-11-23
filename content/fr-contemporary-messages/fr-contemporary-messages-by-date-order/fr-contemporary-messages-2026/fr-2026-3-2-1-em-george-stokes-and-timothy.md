@@ -20,3 +20,7 @@ Nous venons en paix, comme vous le savez. Plus encore, nous venons dans l’amou
 Alors, écoutez-nous. Soyez disposés à nous entendre lorsque nous nous adressons à vous. Lorsque nous vous guidons, c’est pour votre bien et pour celui de ce monde. Nous resterons présents quelque temps pour vous accompagner. N’hésitez pas à faire appel à nous ; et si, pour une raison quelconque, vous avez un doute sur ce que vous entendez, tournez-vous vers Dieu et demandez à percevoir les choses avec vérité et plus de clarté. Personne ne vous fera de mal. Nous sommes là pour vous aider.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, vous qui œuvrez pour Lui sur cette Terre. Que Dieu vous bénisse. Je suis votre frère, Timothé, et je resterai parmi vous. Je vous aime tous. Vous êtes mes frères et sœurs, tout comme le sont ceux qui vivent sur la planète où je réside.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

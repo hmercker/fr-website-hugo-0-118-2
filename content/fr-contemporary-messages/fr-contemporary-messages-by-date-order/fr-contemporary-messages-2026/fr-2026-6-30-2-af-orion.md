@@ -26,3 +26,7 @@ Mes amis, allez de l'avant. Recherchez les solutions qui vous sont offertes. Fai
 Mes chers amis, soyez des artisans de paix. Soyez ceux qui sont forts dans la lumière. Soyez ceux dont les actions sont empreintes de clarté. Soyez des canaux d'amour. Votre désir de manifester notre présence — à nous qui sommes à vos côtés sans être vus des autres — se concrétisera grâce aux actions dont je parle. Le choix vous appartient, comme toujours. Pourtant, le temps presse, et les solutions que vous apporterez à votre vie auront des effets et des retombées puissants dans les temps à venir. Soyez fidèles à votre âme, mes amis. Votre âme vous sera fidèle, et Dieu sera fidèle à nous tous.
 
 Que Dieu vous bénisse. Je suis Orion. Je vous aime tant, mes merveilleux amis, vous qui cherchez des solutions pour votre vie et pour ce monde, en quête d'harmonie et de paix. Puisse votre amour rayonner et les solutions jaillir dans toute leur beauté, leur complexité et leur puissance. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse dans Son amour.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

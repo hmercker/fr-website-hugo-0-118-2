@@ -16,3 +16,7 @@ Je suis ici. Je suis George Stokes. Je viens accompagné de nombreux amis, dont 
 De nombreux changements sont encore à venir pour soutenir les âmes de l’Amour Divin sur Terre et dans le monde des esprits. Ils surviendront sous peu. Vos frères et sœurs des sphères Célestes seront très proches de chacun d’entre vous. Dieu vous tient entre Ses mains. Ce sont des mains puissantes qui vous mèneront vers un lieu sûr et rempli d’amour.
 
 Soyez patients, chers frères et sœurs sur Terre, car la Volonté de Dieu est devenue la vôtre et une grande manifestation de cet Amour est imminente. Vous êtes enveloppés dans Ses Bras et sous Sa protection. Vous ne faites qu’un avec Lui en ce moment. Imprégnez-vous de cet Amour, de Sa Volonté, de Son attention à votre égard. Ayez confiance en cet Amour et sachez que votre Père insuffle, pour votre bien, de l’Amour sur ce plan terrestre. Je suis George, votre frère. Continuez à prier.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

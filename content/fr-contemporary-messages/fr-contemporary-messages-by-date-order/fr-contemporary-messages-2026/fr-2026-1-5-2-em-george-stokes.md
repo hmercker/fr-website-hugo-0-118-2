@@ -16,3 +16,7 @@ Nous avons de la chance, mes chers enfants. Je m’appelle George. Je vis dans l
 Il y a tant d’amour qui afflue, qui se déverse sur cette Terre en ce moment, tant d’amour. Vous êtes élevés, emmenés au-delà de tout ce qui a besoin de guérison et d’amour pour purifier la Terre, pour purifier ces âmes qui n’ont pas encore pris conscience de qui elles sont vraiment, de leur raison d’être et de l’endroit où aller pour recevoir de l’aide.
 
 Tant d’âmes vous entourent en ce moment, vous apportant leur Amour, qui vient de Dieu. Le Père bénit chacun d’entre vous, par milliers et par milliers, et vous êtes mis à contribution, avec d’autres, pour transmettre ces bénédictions qui seront accordées à la Terre entière, afin qu’elle soit purifiée et élevée. Les enfants de vos enfants, et bien au-delà, verront de grands changements, vivront dans un environnement rempli d’amour, en partie grâce à des prières telles que la vôtre aujourd’hui.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

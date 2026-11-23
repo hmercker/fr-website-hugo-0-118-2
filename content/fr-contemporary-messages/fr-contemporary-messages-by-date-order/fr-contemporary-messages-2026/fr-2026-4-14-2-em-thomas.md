@@ -18,3 +18,7 @@ Vous êtes des instruments entre les mains de Dieu. C’est pourquoi vous recevr
 Accueillez autant d’Amour qu’il vous est possible d’en recevoir ; votre progression sera proportionnelle à votre volonté de vous ouvrir et d’accepter tout ce que Dieu désire vous donner. Vous ne renoncez à rien, si ce n’est à ce qui vous nuit. En réalité, vous gagnez tout — bien au-delà de ce que vous pourriez imaginer. Laissez faire. Laissez cet Amour affluer, avec une abondance toujours plus grande. Laissez les bénédictions affluer dans vos vies, dans vos âmes, dans vos êtres et dans vos expériences. Sans attentes, chers enfants, sans doutes ; soyez simplement ouverts, grandement ouverts. Ici, maintenant, le Souffle de Dieu est sur vous. Il insuffle profondément la vie en votre âme. Permettez-le, accueillez-le et embrassez-le, tandis qu’il opère une transformation.
 
 Que Dieu vous bénisse. Je suis votre frère, Thomas. L’Amour est tout autour de vous, en vous, il émane de vous. Respirez-le. Que Dieu vous bénisse, belles âmes, beaux enfants de Dieu.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

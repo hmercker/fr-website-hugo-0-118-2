@@ -22,3 +22,7 @@ Ainsi, ce qui peut sembler être une grande lutte contre les forces des ténèbr
 Je ne viens pas souvent sur cette terre, mais je souhaitais vraiment partager ceci par l'intermédiaire de mon frère et avec vous tous, et j'avoue être attiré par la lumière, l'amour et le magnétisme de vos âmes, et c'est un honneur pour moi d'être parmi vous. Je me retire dans la paix de l'Amour de Dieu, et je tiens à vous dire avant de partir que nous sommes nombreux à être réunis ici. Alors, détendez-vous, gardez le cœur ouvert, faites confiance aux aspirations de votre âme et soyez avec nous dans cette lumière et en présence du Dieu tout-puissant. Je vous remercie.
 
 Je suis Galilée.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

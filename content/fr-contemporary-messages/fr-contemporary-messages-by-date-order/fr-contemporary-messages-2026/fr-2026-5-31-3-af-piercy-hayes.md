@@ -16,4 +16,8 @@ Chères âmes, chaque fois que vous entrez dans cette église, dans ce lieu, et 
 
 1. <large id="f1"> FUSC : First United Spiritual Church (Première Eglise Spiritualiste Unie).[↩](#a1)
 
-1. <large id="f1"> Percy Hayes fut un des pionniers du mouvement de l’Amour Divin au Canada et a largement contribué à l’établissement de la communauté de Vancouver.[↩](#a1)
+1. <large id="f2"> Percy Hayes fut un des pionniers du mouvement de l’Amour Divin au Canada et a largement contribué à l’établissement de la communauté de Vancouver.[↩](#a2)
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

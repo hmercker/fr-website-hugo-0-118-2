@@ -44,3 +44,7 @@ Ceci est très important pour nous tous. C’est notre motivation. Votre jeune p
 Il y a de nombreux problèmes à résoudre et beaucoup de personnes peuvent vous aider à les résoudre. Le moment approche où l’aide se manifestera et vous sera apportée directement. En attendant, durant ce court laps de temps que nous passons ensemble, ce temps préparatoire qui fait partie intégrante de votre expérience dans le monde en ce moment, nous échangeons autant que possible pour vous aider à grandir et à vous éveiller spirituellement. J’espère que cela répond à votre question, ma chère fille.
 
 S’il n’y a pas d’autres questions, pouvons-nous prier ensemble pour recevoir la nourriture spirituelle, les bénédictions divines, cet Amour universel qui continue d’éveiller non seulement l’humanité ici sur Terre, mais l’humanité entière à travers l’univers ? Que cette bénédiction soit vôtre, mes amis, en abondance, dans toute sa puissance pour éveiller, éclairer, apporter la vérité, l’harmonie et la paix, et faire naître la joie en vous. Que cette glorieuse bénédiction soit vôtre maintenant et à jamais.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ C’est une grande vérité : nous sommes tous unis dans cette condition, en esp
 Alors, que votre lumière brille sur tous, réjouissez-vous de ce don, ensemble. Rassemblez-vous dès que vous le pouvez, physiquement, et lorsque vous ne le pouvez pas, venez ici, dans ces cercles, où vous pouvez vous libérer du monde et vous laisser envelopper par le baume guérisseur de l’Amour de Dieu. Je vous remercie, et avec tout mon amour et mes bénédictions, je me retire et me joins à votre belle prière. Je suis votre frère en Christ, disciple du Maître et habitant du royaume céleste.
 
 Je suis Luc, le Médecin, votre ami et frère éternel. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

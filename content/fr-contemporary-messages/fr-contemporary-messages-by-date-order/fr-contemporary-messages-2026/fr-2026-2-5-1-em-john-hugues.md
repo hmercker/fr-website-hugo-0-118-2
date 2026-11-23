@@ -18,3 +18,7 @@ C’est la Volonté du Père que nous priions ensemble, où que nous soyons. Le 
 Nous vous remercions, vous qui vivez sur Terre dans la chair, pour le travail que vous accomplissez ; nous percevons la joie que votre âme ressent en l’accomplissant. Cela ne ressemble peut-être pas à un « travail », mais c’est pourtant ce que souhaite le Père : que cet Amour se répande sur toute la Terre, auprès de tous Ses enfants. Vous qui, sur Terre, avez connaissance de cet Amour Divin et qui le recevez — chaque fois que vous priez, chaque fois que vous pensez à Dieu, chaque fois que vous vous ouvrez pour accueillir Ses bénédictions — vous accomplissez ce travail. Vous partagez et exprimez cet amour. C’est une source de joie, n’est-ce pas ? Eh bien, je tenais simplement à dire que cela réjouit mon cœur — mon cœur, au sens figuré — de me retrouver, une fois de plus, parmi mes frères et sœurs sur Terre.
 
 Que Dieu vous bénisse, chers véritables enfants de Dieu. Puissiez-vous toujours rester ouverts aux bénédictions qui sont, à tout instant, à votre portée. Que Dieu vous bénisse. Je suis John Hughes, âme sœur de ce médium et grand amoureux de notre Père Céleste.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

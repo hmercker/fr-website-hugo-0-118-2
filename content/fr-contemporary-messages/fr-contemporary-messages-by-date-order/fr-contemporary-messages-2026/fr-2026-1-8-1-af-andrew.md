@@ -16,3 +16,7 @@ Le pont qui vous relie à Dieu continue de s’édifier à chaque prière. Chaqu
 Mes chers amis, priez avec ferveur. Ayez foi : Dieu entend chacun et chacun, et il répondra à chacun d’une manière ou d’une autre. Ce sera une réponse. C’est Sa loi. C’est ainsi que Dieu vous bénit, prend soin de vous et vous fait recevoir davantage de ce grand don d’Amour. C’est dans la prière, mes amis bien-aimés. C’est dans vos efforts pour atteindre Dieu.
 
 Que vos efforts soient clairs, beaux et puissants, car c’est ainsi que ce lien entre vous et Dieu se tisse et perdure. Que votre âme continue de grandir et de s’éveiller grâce à toutes les bénédictions divines. Nous sommes avec vous. Dieu est avec vous. Que Dieu vous bénisse tous de Son amour. Je suis André et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ Ainsi, je vous demande de vous attacher au vêtement sacré de l’Amour du Pèr
 Je vous remercie et, avec tout mon amour et mes bénédictions, je me retire. Que l’amour de Dieu vous accompagne et vous guide tout au long de votre vie, sur terre et au-delà, lorsque vous nous rejoindrez au royaume céleste.
 
 Je vous aime. Je suis votre frère et ami, Yogananda. Reposez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

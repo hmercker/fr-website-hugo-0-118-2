@@ -20,3 +20,7 @@ En ce jour de célébration, nous vous demandons de prier pour le monde et pour 
 Il y a beaucoup à dire sur les événements qui se déroulent sur Terre, mais ce n’est pas là l’essentiel. L’essentiel à dire est que ceux qui possèdent l’Amour Divin, comme vous, ainsi que nous tous qui sommes des âmes rachetées, pouvons influencer la vie des personnes sur cette Terre. Alors, priez. Priez pour ces âmes sur Terre, afin qu’elles se tournent vers Dieu, découvrent la vérité et vivent la Vérité de l’Amour Divin de Dieu. Vos prières seront une bénédiction pour beaucoup. Priez souvent, en particulier aux moments où les êtres humains sont plus réceptifs à la prière.
 
 Que Dieu vous bénisse. Nous sommes avec vous. Nous sommes nombreux à vous accompagner dans vos prières, aujourd’hui et toujours. Mon amour vous accompagne. Je suis André. Que notre Père vous bénisse, chacun et tous, abondamment. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

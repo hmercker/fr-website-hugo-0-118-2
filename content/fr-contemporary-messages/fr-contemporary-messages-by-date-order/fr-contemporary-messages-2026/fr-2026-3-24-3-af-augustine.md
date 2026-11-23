@@ -18,3 +18,7 @@ Il existe en vous bien des aspects que vous ignorez encore ; des potentiels qui 
 Je vous encourage, mes amis, mes merveilleux élèves, à rester éveillés, à vous éveiller à vous-mêmes et à vos propres dons. Bien entendu, nous savons tous comment cela s’accomplit : en recherchant l’Amour du Père, de manière constante et avec un ardent désir. Ainsi, tout ce qui est appelé à se manifester et à s’exprimer en vous pourra se déployer en harmonie, au sein d’un flux qui demeure en parfaite cohérence et en alignement avec la Volonté de Dieu et Ses desseins pour vous. De grandes choses attendent chacun d’entre vous. Bien des aspects demeurent encore inconnus, mais ils peuvent être révélés, selon votre désir et vos efforts pour vous éveiller à votre véritable nature.
 
 Que Dieu vous bénisse, mes chers élèves. Votre enseignant, Augustin, vous aime ; il est à vos côtés et continue de vous accompagner dans votre croissance, afin que vous puissiez vous exprimer dans toute votre authenticité, votre beauté et votre richesse intérieure. Que Dieu vous bénisse. Augustin vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

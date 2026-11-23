@@ -18,3 +18,7 @@ Cela vous transforme d’une manière qui dépasse votre entendement, mais nous 
 Permettez l’intégration de la Substance de Dieu, reçue à travers chaque ouverture et chaque don par lequel Dieu répond à vos aspirations profondes et à vos désirs sincères. Autorisez-vous à découvrir qui vous êtes véritablement, qui est Dieu, ainsi que votre rôle d’instrument et les dons que Dieu a déposés en votre âme. C’est un voyage béni qui, à mesure que vous progressez dans votre transformation — par votre propre éveil et la découverte de votre véritable identité —, enflammera les désirs de votre âme, harmonisant ainsi l’esprit et l’âme. Vous deviendrez un puissant instrument d’amour, de lumière, de joie, de paix et de toutes les vertus sublimes ; vous vous éveillerez et serez fortifiés par la grâce divine qui réside en vous, simplement en demandant à Dieu de bénir votre âme et en L’y invitant.
 
 Je suis Keea Atta Kem. Que Dieu vous bénisse. Que Dieu vous bénisse abondamment alors que vous vous éveillez, au sein de votre âme, à votre véritable identité et que vous vivez votre vie à partir de cette dimension de votre être. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

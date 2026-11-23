@@ -31,4 +31,8 @@ Que vous soyez bénis, mes chers amis, profondément bénis par l'amour de Dieu.
 
 Nous sommes aujourd'hui dans ce lieu de prière, pour être avec Dieu, pour l'honorer et honorer nos âmes, sa plus glorieuse création. En vérité, nous sommes ses enfants et nous cheminerons ensemble sur la Voie Divine, toujours et à jamais. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus. Je viens vous bénir et prier avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 

@@ -26,3 +26,7 @@ Il faut poser les fondations. Nous voici, mes amis, en train de créer ces fonda
 Je vous encourage, mes amis, à persévérer afin que nous puissions dépasser la première étape et atteindre d’autres qui vous émerveilleront et vous impressionneront profondément, non seulement intellectuellement, mais aussi spirituellement. Des éveils se produiront, des compréhensions émergeront, une vérité sera vôtre et vous l’embrasserez de tout votre cœur. Tant de choses vous attendent, mes amis, et le monde entier compte sur vos efforts, sur les épreuves que vous traversez, sur les éveils et les révélations qui vous parviendront. Nous continuons. Nous continuons, et l’Amour, cet élément si vital, continue de grandir en vous, et vous continuez de comprendre son pouvoir et sa capacité à tout changer et à tout transformer.
 
 Que Dieu vous bénisse, mes amis. Je suis Orion et je vous aime de tout mon cœur. Je souhaite vous aider à comprendre véritablement ce qu’est l’amour. Que la paix soit avec vous, mes amis. Orion vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

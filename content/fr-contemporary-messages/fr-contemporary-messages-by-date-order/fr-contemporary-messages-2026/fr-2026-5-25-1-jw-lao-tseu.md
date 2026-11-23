@@ -22,3 +22,7 @@ Alors, avant de partir sauver le monde, imprégnez-vous de cet Amour. Ce chemin 
 Mes frères et sœurs, je vous remercie. Mon frère et moi nous retirons dans cette prière, dans ce réseau de lumière, dans ce portail d’Amour Divin, avec tout mon amour et mes bénédictions pour vous. Je suis votre frère en Christ, dans l’Amour de Dieu, et un ange Céleste.
 
 Je suis Lao Tseu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

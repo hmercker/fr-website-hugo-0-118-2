@@ -20,3 +20,7 @@ Voilà ce qu'il faut enseigner. Si certains, parmi vous, portent cette Vérité 
 Car qu'est-ce qui changera le monde, mes bien-aimés ? Ce ne sont pas les mots. C'est l'Essence de Dieu et le pouvoir de cette Essence de transformer les cœurs et les âmes de l'humanité. Cela changera le monde, et c'est pourquoi nous vous réunissons. Ce sont là les occasions que Dieu nous offre, et c'est là que ces âmes chères et intrépides viendront parmi vous pour porter ce message. Vous êtes, mes bien-aimés, de magnifiques canaux de lumière et d'amour, et nous souhaitons utiliser ces dons de manière puissante et efficace pour transformer les cœurs et les âmes de l'humanité.
 
 Que ce voyage vous soit doux, mes chers amis. Nous serons avec vous. Je suis David, et mon amour vous accompagne. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

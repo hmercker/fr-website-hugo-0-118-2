@@ -20,3 +20,7 @@ Chacun de vous développe sa capacité à vivre en harmonie au-delà des simples
 Ce n’est pas difficile. C’est un chemin simple. Vous apprenez, vous grandissez, vous vous alignez et vous fusionnez la communication du mental et celle de l’âme. Permettez-vous de véritablement connaître, vivre et ressentir votre vie de l’intérieur, dans la profondeur de votre âme. Laissez votre âme guider les décisions que vous prenez. Ainsi, tout se déploie sous la main de Dieu, avec la sagesse de Dieu et par l’amour de Dieu. Trouvez votre orientation en vous-même. Cela exige que vous sachiez vous recueillir dans le silence pour percevoir ce qui réside en vous. C’est un cheminement béni auquel je suis si heureuse de participer, en vous guidant, en vous aimant et en faisant rayonner mes dons et mon amour sur vous.
 
 Je suis Grâce. Que votre journée soit emplie de la Lumière de l’amour de Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

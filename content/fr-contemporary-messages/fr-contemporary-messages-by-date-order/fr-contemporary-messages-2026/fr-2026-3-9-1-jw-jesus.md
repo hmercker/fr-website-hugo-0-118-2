@@ -20,3 +20,7 @@ Nous vous avons demandé de suivre les conseils de Dieu dans votre journée, ave
 En hommage à l'œuvre remarquable de James Padgett, que je reconnaîtrai toujours, je tiens à vous rappeler que la révélation est continue. Bien que je ne parle pas souvent par l'intermédiaire de mon frère Jimbeau, nous sommes proches et tous ceux par qui je parle me reçoivent chacun à sa manière. Il vous appartient de discerner ce dont votre âme peut bénéficier. Nous ne vous donnons rien d'indigne, et vous êtes tous dignes de recevoir le plus grand amour, celui de Dieu. Alors, dans cette prière, dans cette bénédiction, tournons-nous vers le Père afin qu'il nous comble de son Amour et que sa lumière nous éclaire. Prions pour que le monde soit transformé par Son amour, que chaque âme soit touchée. Je vous remercie pour ce moment, et je vous aime. Je suis votre frère et votre ami.
 
 Je suis Jésus. Allez en paix.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

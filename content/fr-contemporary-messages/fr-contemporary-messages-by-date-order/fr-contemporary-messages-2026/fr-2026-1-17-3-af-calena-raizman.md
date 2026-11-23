@@ -24,3 +24,7 @@ Rien d’autre ne peut véritablement accomplir cela, ni les livres, ni la Bible
 Mes chers amis, merci de m’avoir écoutée. Mon cher George, sache que je suis près de toi, que je le serai toujours. Ne verse plus de larmes pour moi, mais sois heureux, car je suis au plus grand bonheur qui soit. Je réside au Ciel de l’Amour. Ma joie est immense, mon épanouissement infini et mon amour infini. Que pourrais-je désirer de plus ? Que pourriez-vous désirer de plus, sinon être en ce lieu, dans la joie et l’émerveillement du Royaume Céleste ? Je vous y attends tous. Je prierai pour chacun d’entre vous, afin que vous puissiez entrer en ce lieu bientôt et avec joie dans votre cœur.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Calena. Je vous aime. Je suis là. J’ai toujours été là. Je resterai ici pour vous soutenir. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

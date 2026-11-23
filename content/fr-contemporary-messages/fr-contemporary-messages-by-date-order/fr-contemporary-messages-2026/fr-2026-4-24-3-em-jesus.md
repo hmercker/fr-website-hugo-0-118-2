@@ -16,3 +16,7 @@ Sentez Son Amour passer à travers nous. Sentez la force de cet Amour et de cett
 Que Dieu vous bénisse. Je suis votre frère, Jésus. Vous avez reçu la bénédiction du Père et les dons qui vous permettront d’accomplir votre mission sur cette Terre. Partez dans le monde avec Sa bénédiction et donnez votre amour. Touchez ces âmes qui sont dans le besoin, qui cherchent la vérité, qui cherchent, cherchent Dieu, et montrez-leur le chemin. Ainsi, vous êtes bénis de tout ce dont vous avez besoin pour accomplir cette œuvre.
 
 Vous n’êtes pas seuls. Nous marchons avec vous. Nous serons avec vous. N’ayez pas peur. Tout est entre de bonnes mains. Tout vient de Dieu. Je suis votre frère, Jésus, et moi aussi je vous bénis, chacun d’entre vous, de tout mon amour. Cette retraite est bénie. Vous êtes tous entourés et reliés les uns aux autres. Mon amour est avec chacun d’entre vous tandis que je vous embrasse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

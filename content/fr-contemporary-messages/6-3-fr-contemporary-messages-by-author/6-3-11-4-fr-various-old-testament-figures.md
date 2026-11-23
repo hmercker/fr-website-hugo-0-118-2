@@ -32,6 +32,8 @@ Abraham   | [Abraham et la Chaldée](/fr-contemporary-messages/fr-contemporary-m
 Daniel | [Le don de discernement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-28-1969-10-3-anonymous-daniel/) | 3 Octobre 1969
 Daniel | [Expérience de Daniel avec l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-26-1-fab-daniel/) | 26 Août 2007
 Daniel | [Rapport de progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-3-2-em-daniel/) | 3 Novembre 2025 
+Daniel | [Nous travaillons ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-15-2-em-daniel/) | 15 Juin 2026
+Daniel | [Dieu vous utilise au sein de ces cercles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-22-2-em-daniel/) | 22 Juin 2026
 Daniel  | [Ne compliquez pas la simplicité de l’Amour et de la Vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-13-1-af-daniel/) | 13 Octobre 2026 
 David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-8-1-fab-king-david/) | 8 Février 2003
 David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
@@ -51,7 +53,7 @@ David | [Auteurs-compositeurs gardez un chant dans votre cœur](/fr-contemporary
 Élie | [ Priez Dieu de racheter votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-14-1-af-elijah/) | 14 Juin 2024
 Élie | [Vient affirmer la vie et renforcer la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-7-1-af-elijah/) | 7 Février 2025 
 Élie | [Le moment viendra où la Volonté de Dieu s’accomplira](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-5-2-af-elijah/) | 5 Juin 2026 
-Élie | [Soyez flexibles et fidèles alors que le changement nécessaire survient dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-8-3-af-elijah/) | 8 Juin 2026 
+Élie | [Soyez flexibles et fidèles alors que le changement nécessaire survient dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-8-1-af-elijah/) | 8 Juin 2026 
 Élie & Isaïe | [Les âmes que vous attirerez pour travailler ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-16-1-af-elijah-isaiah/) | 16 Décembre 2017
 Ezéchiel | [Heureux ceux qui sont prêts à aimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-1-af-ezekiel/) | 20 Mai 2014
 Ézéchiel | [Dieu rassemble des lumières du monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-16-1-af-ezekiel/) | 16 Mars 2021
@@ -111,5 +113,6 @@ Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-message
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017
 Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
 Noé & Care Darby Walsh | [L’acte de foi et la création de sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-1-jw-noah-care-darby-walsh/) | 23 Octobre 2023
+Ruth | [Discernez vos fausses croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-28-2-em-ruth/) | 28 Juin 2026
 Sarah | [La naissance d'Isaac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-sarah/) | 12 Octobre 2008
 Saul | [Sur l'élévation des vibrations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-39-1969-12-3-anonymous-saul/) | 3 Décembre 1969

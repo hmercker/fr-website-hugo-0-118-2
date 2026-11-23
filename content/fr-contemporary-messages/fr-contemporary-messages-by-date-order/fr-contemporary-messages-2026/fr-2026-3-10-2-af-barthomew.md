@@ -26,3 +26,7 @@ Car lorsque vous êtes en harmonie avec Dieu et que vous vous exprimez ainsi, vo
 Mes chers amis, écoutez attentivement ce que votre âme a à dire à Dieu. Laissez cette expression être claire et directe. Plongez-vous pleinement dans cette connexion, cette communion avec Dieu. Ne laissez pas votre mental vous détourner de cette expérience, mais restez concentrés, fidèles à votre intuition, et toutes les bénédictions qui en découleront vous appartiendront pleinement et en toute conscience. Voilà, mes amis, pourquoi vous priez et pourquoi vous êtes ensemble : pour que la vérité, la beauté, l’émerveillement et les bénédictions de Dieu, son Amour, viennent à vous et demeurent en vous, vous changent, vous éveillent et vous transforment.
 
 Que Dieu vous bénisse dans vos prières, dans la vérité que vous lui exprimez et dans votre vie quotidienne. Au Royaume des Cieux, nous sommes avec vous, mes amis. Nous cheminons à vos côtés, nous prions avec vous, nous vous encourageons et nous vous aimons tous. Belles âmes, puissiez-vous continuer ainsi à attirer les bénédictions de Dieu sur vous et sur le monde. Que Dieu vous bénisse. Je suis Barthélemy et je vous aime tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

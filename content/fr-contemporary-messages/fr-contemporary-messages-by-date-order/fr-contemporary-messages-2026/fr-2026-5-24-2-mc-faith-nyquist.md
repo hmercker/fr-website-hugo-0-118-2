@@ -20,3 +20,7 @@ Une âme humble est celle qui, lorsqu'elle perçoit un besoin et qu'elle est en 
 Dieu ne vous demande pas de sauver le monde. Dieu vous demande d’entrer en harmonie, de trouver l’harmonie en vous-mêmes — dans cet univers qui réside en vous — et d’être en harmonie au sein de votre propre être. Vous verrez se refléter dans votre vie quotidienne, dans votre monde matériel, ce que vous êtes intérieurement. Sachez que l’Amour de Dieu en votre âme transforme toute chose. Demeurez humbles, demeurez en paix, faites preuve de compassion envers vous-mêmes et envers les autres tout au long de votre cheminement. Priez avec ferveur, âmes bien-aimées. Priez pour recevoir ce déversement de la Pentecôte en ce grand jour de Pentecôte. Je m’assiérai avec vous pour prier, vous donnant, à vous et à votre âme, la force de vous tourner plus profondément vers Dieu, de vous ouvrir et d’être réceptifs à un puissant déversement, chacun d’entre vous.
 
 Je suis Faith. Merci de m’avoir entendue, de m’avoir accueillie et de m’avoir permis de transmettre ce humble message, empreint d’humilité et d’amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ Ce matin, vous avez eu un aperçu d’une partie du travail que vous accomplirez
 Ouvrez vos âmes et accueillez ce qui vous purifiera, ce qui activera l’Amour et éveillera les dons qui vous aideront à grandir dans cette faculté de guérison — une faculté qui, très bientôt, s’avérera essentielle, et dont le besoin se fera sentir avec une grande intensité, là où vous vivez et là où vivent les autres. Restez ouverts, restez éveillés, restez conscients, car certains signes seront subtils. Vous puiserez dans ces indices l’inspiration nécessaire pour nourrir une passion plus vive pour la guérison, et pour trouver des solutions aux problèmes qui affligent actuellement ce monde.
 
 Quel merveilleux groupe de guérisseurs je vois devant moi. Merveilleux, vraiment merveilleux. Je me réjouis que vous écoutiez avec votre âme. Que l’Amour de Dieu se déverse maintenant sur vous en grande abondance, telle une pluie bienfaisante pénétrant vos âmes. Laissez venir ces pluies ; laissez les pluies de Son Amour tomber sur vous. Je suis votre frère, Confucius, et je vous bénis chacun en déposant un baiser sur votre front, afin que vous puissiez y voir plus clair.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Ne vous détournez pas. Ne vous sentez pas inadéquats ou incapables de suivre l
 Il y a beaucoup à faire, mes chers amis. Le moment est venu de s’y atteler sérieusement. Réfléchissez-y dans les jours à venir. Réfléchissez et demandez conseil sur votre rôle. Vous constaterez que le chemin sera tracé clairement, précisément et en accord avec votre être, vos dons, ce que vous portez en vous, le dessein que Dieu y a placé. Tout cela attend votre reconnaissance, votre foi et votre désir.
 
 Que Dieu vous bénisse, mes amis. Je suis Orion. Oh, combien je vous aime, belles âmes prêtes à porter l’étendard de la vérité et à marcher droit avec courage, avec la force et la foi d’une âme qui connaît Dieu. Que Dieu vous bénisse, mes amis. Je marche avec vous, comme tant d’autres. Que Dieu vous bénisse dans Son Amour.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

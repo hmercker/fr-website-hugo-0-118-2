@@ -22,3 +22,7 @@ Vos cœurs ont changé et vos âmes sont en pleine transformation. Et la joie qu
 Que le grand Amour de Dieu demeure en vous et que ce lieu soit imprégné de sa grâce afin que tous ceux qui viennent soient bénis, guéris et transformés. Je vous aime.
 
 Je suis votre frère en Christ et votre ami éternel. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

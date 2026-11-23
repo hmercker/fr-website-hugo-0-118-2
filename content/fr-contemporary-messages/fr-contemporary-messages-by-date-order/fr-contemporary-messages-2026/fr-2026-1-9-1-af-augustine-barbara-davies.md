@@ -42,3 +42,7 @@ Que vous soyez bénis, chers élèves, de toutes les manières possibles. Soyez 
 Mes bien-aimés, méditez les paroles d'Augustin. Méditez sur le destin que vous forgez par vos actions, vos pensées et vos désirs. Méditez sur tout ce qui vous est donné. Méditez sur tout ce qui est en harmonie avec ces grandes missions que nous accomplissons pour le bien de l'humanité et du monde. C'est une mission immense, d'une importance et d'une expression suprêmes. Ainsi, les bénédictions vous parviennent en récompense de vos efforts et de votre engagement. Tant de choses en dépendent, alors poursuivrons avec persévérance ces beaux efforts pour sauver votre âme et sauver celles de tant d'autres des ténèbres, de la souffrance, de l'ignorance et des conflits.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse. L'amour grandit à chaque instant. De même que mon âme grandit dans l'amour de Dieu, mon amour pour vous grandit aussi. Ainsi soit-il, et ainsi sera-t-il pour l'éternité. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

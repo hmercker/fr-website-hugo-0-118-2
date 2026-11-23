@@ -23,3 +23,7 @@ Que Dieu vous bénisse, mes chers amis, et que vous ressentiez au fond de votre 
 <small>
 
 1. <large id="f1"> DLSF = Divine Love Sanctuary Foundation (Fondation du Sanctuaire de l’Amour Divin). C’est l’organisme en charge de la publication des messages reçus par James Padgett et les nombreux autres médiums contemporains.[↩](#a1)
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -38,3 +38,7 @@ Suivez la Volonté de Dieu, mes chers et merveilleux amis. Vous apprendrez et gr
 Que Dieu vous bénisse, mes chers amis. Je suis Moïse. J’espère avoir su vous apporter des enseignements utiles. Comme vous connaissez mon histoire, vous savez que les défis liés au service de Dieu, durant ma vie sur Terre, furent considérables ; c’est d’ailleurs pour cette raison que vous me connaissez aujourd’hui. Il en ira de même pour vous, mes chers amis, bien que j’espère que vos épreuves ne ressembleront pas aux miennes. Mon souhait est que vous accomplissiez de grandes choses, capables de changer le cours de l’histoire, d’apporter une plus grande harmonie à l’humanité, et de guider de nombreuses âmes vers la lumière, la vérité, la joie, l’épanouissement et l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Puisse la Vérité de Son Amour continuer de rayonner en vous. Puissiez-vous découvrir cette Vérité et l’embrasser, afin qu’elle devienne l’essence même de votre être, le moteur de vos motivations et de vos efforts. Que Dieu vous bénisse, âmes bien-aimées. Mon amour vous accompagne, tout comme ma reconnaissance pour vos efforts. Que Dieu vous bénisse. Je suis Moïse, et je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Dieu prépare l’humanité à un grand changement. En amont, Dieu prépare chac
 Écoutez. Ayez une foi profonde et permettez à Dieu d’utiliser les dons que vous possédez ainsi que le but qu’Il ​​a insufflé dans vos âmes. Un grand dessein, bien-aimés, un grand dessein. En effet, comprendre ce dessein sera une révélation qui vous transformera. Une œuvre immense vous attend, âmes bien-aimées. Continuez à vous préparer et à demeurer en harmonie avec Dieu. Recherchez Sa bénédiction d'Amour, et tout le reste se mettra en place. Vous saurez. Vous comprendrez. Vous éprouverez de la joie dans cette compréhension. Vous serez fortifiés et déterminés à accomplir le dessein que Dieu vous révélera. Il sera clair et sans équivoque. Soyez forts, mes bien-aimés. Gardez la foi et sachez que vous êtes véritablement aimés.
 
 Je suis Élie. En ce jour, je prie avec vous pour le grand éveil à venir, afin que tout change et se transforme en lumière, en harmonie, en amour et en paix. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -44,3 +44,7 @@ Nous sommes avec vous. Je suis avec vous et le serai pour l'éternité. Nous som
 **Augustin** Alors que Jésus vous a parlé et bénis, mes chers amis et élèves, ces bénédictions se sont répandues dans le monde et continuent d'en rayonner. Pour tous les Cercles de Lumière réunis aujourd'hui, ces bénédictions seront accordées et Jésus sera présent dans chacun d'eux, apportant sa lumière et ses bénédictions à tous les participants. Voyez-vous, l'œuvre est puissante. Elle est universelle, mais elle a besoin de grandir. Car il y a tant d'âmes dans le monde qui sont dans le besoin et si peu de personnes capables d'être formées et d'être des instruments pour le monde. Considérez-vous non seulement comme faisant partie de ce petit groupe, mais comme des instruments pour le monde, vos dons individuels au service de beaucoup.
 
 L'œuvre continue, mes chers élèves, et je continue d'être avec vous. Que Dieu vous bénisse dans votre travail, vos voyages, vos efforts et pour ce lieu qui a tant besoin d'élévation et de joie. Puissiez-vous être bénis et transmettre ce message à vos frères et sœurs. Que Dieu vous bénisse tous, mes bien-aimés, belles âmes. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

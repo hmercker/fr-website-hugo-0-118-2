@@ -32,6 +32,7 @@ Jacques | [Donnez votre Amour, pas vos conseils.](/fr-contemporary-messages/fr-c
 Jacques | [Le pouvoir de s’élever au-dessus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-17-1-ks-james/) | 17 Décembre 2003
 Jacques | [La plus grande proportion de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-1-11-1-ks-james/) | 11 Janvier 2004
 Jacques | [Soyez un guide sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-13-1-na-james/) | 13 Décembre 2005
+Jacques  | [Vous êtes une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-1-2-af-james/) | 1 Décembre 2014 
 Jacques | [Connaître la vérité par l’éveil des facultés de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-3-af-james/) | 4 Janvier 2016 
 Jacques | [Bénédiction de la fête du travail à la maison de Selah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-12-1-af-james/) | 12 Mars 2016
 Jacques | [Le don de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-29-1-af-james/) | 29 Mars 2016
@@ -58,4 +59,6 @@ Jacques | [Soyez au service du monde](/fr-contemporary-messages/fr-contemporary-
 Jacques | [L’Amour de Dieu agit à travers nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-16-1-af-james/) | 16 Août 2024
 Jacques | [Accueil de la première prière en personne à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-3-af-james/) | 10 Janvier 2025
 Jacques | [Sachez qu'il y a beaucoup plus à venir avec vos prières, votre service, votre développement de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-4-em-james/) | 19 Janvier 2025 
+Jacques | [Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-1-2-mc-james/) | 1 Mars 2026
 Jacques (frère de Jésus) | [Priez pour exprimer vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-2-1-em-james-brother-of-jesus/) | 2 Avril 2026
+Jacques | [Votre premier objectif est de recevoir l’Amour Divin et de retourner auprès de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-12-2-em-james/) | 12 Juin 2026

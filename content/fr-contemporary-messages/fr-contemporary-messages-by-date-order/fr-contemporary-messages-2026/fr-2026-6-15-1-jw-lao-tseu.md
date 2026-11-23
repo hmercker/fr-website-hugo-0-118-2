@@ -22,3 +22,7 @@ Je souhaite transmettre non seulement la simplicité de la Voie, mais aussi sa g
 Soyez dans la joie et l’allégresse. Nous ne vous abandonnerons pas et nous répondons toujours à l’appel. Je vous remercie de m’avoir permis de revenir, ainsi que mon frère, une fois de plus, pour recueillir ce message. Je me retire maintenant, avec tout mon amour et mes bénédictions. Que les bénédictions du grand Amour de Dieu soient avec vous tous.
 
 Je suis Lao-Tseu.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

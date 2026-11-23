@@ -30,3 +30,7 @@ Mes chers amis, Dieu veut que vous soyez tous dans la lumière et l’harmonie, 
 Puissiez-vous trouver votre chemin, mes amis, sur la Voie Divine, trouver la joie dont je parle et récolter les fruits que je vous promets, présents et à venir. C’est à vous de décider. C’est à vous de vous ouvrir et d’accepter. Dans cette humilité, dans cette simplicité d’être, tant de choses peuvent vous parvenir et tant de choses vous parviendront. Laissez-vous porter par la grâce de l’Amour de Dieu, mes chers amis. Tout le reste viendra en son temps. Je vous aime. Je suis Barbara. Je vous aime tous et je prie avec vous, tout comme d’innombrables lumières, d’innombrables êtres célestes, même des êtres stellaires et des âmes en quête. Cette pièce est emplie de milliers d’âmes qui cherchent la lumière avec vous et qui sont ici pour vous aider et recevoir guidance et vérité, chacune avec ses propres desseins et ses propres aspirations.
 
 Que Dieu vous bénisse, mes amis. Je vous aime tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

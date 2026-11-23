@@ -18,6 +18,7 @@ Jésus et Judas | [Choisir l’Amour de Dieu / Jésus confirme Judas](/fr-contem
 Jésus  | [Il y a beaucoup de choses que vous ignorez sur vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-2-af-jesus/) | 12 Janvier 2026
 Jésus | [Il est essentiel de connaître et d'enseigner la vérité pour combattre l'erreur répandue dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-1-af-jesus/) | 14 Janvier 2026
 Jésus | [Nous marchons tous dans la même direction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-17-2-af-jesus/) | 17 Janvier 2026
+Jésus | [Je suis le Premier Fils de Dieu, transformé par Son Amour en un ange ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-31-2-af-jesus/) | 31 Janvier 2026
 Jésus et Augustin | [Foi et Âme 1 : Avancez avec foi pour accomplir votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-1-af-jesus-and-augustine/) | 8 Février 2026
 Jésus | [Foi et Âme 6 : Ayez foi en la puissance de l’Amour de Dieu pour vous mettre en communion avec les anges et vous aligner sur Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-13-1-af-jesus/) | 13 Février 2026 
 Jésus | [Puissiez-vous comprendre combien vous êtes aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-20-2-af-jesus/) | 20 Février 2026 
@@ -55,8 +56,8 @@ Copernic et Jésus | [La science de l’éveil de l’âme par l’Amour Divin e
 Jésus | [Soyez un canal pour Dieu de toutes les manières possibles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-4-1-af-jesus/) | 4 Juillet 2026
 Jésus | [S'ouvrir à l'Amour du Père et à la transformation à venir de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-1-af-jesus/) | 5 Juillet 2026 
 Jésus | [Appel à devenir les agents de changement de Dieu par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-12-1-af-jesus/) | 12 Juillet 2026 
-Jésus | [Ouvrez votre âme au don de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-17-2-af-jesus/) | 17 Juillet 2026 
-Jésus | [Marcher ensemble vers le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-19-2-af-jesus/) | 19 Juillet 2026 
+Jésus | [Ouvrez votre âme au don de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-17-1-af-jesus/) | 17 Juillet 2026 
+Jésus | [Marcher ensemble vers le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-19-1-af-jesus/) | 19 Juillet 2026 
 Jésus | [Des phares de lumière dans le grand plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-2-1-af-jesus/) | 2 Août 2026 
 Jésus | [Le chemin éternel de l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-9-1-af-jesus/) | 9 Août 2026
 Jésus | [Bien-aimés instruments de Dieu : marcher dans l'amour et le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-16-1-af-jesus/) | 16 Août 2026 
@@ -78,6 +79,7 @@ Jésus | [Avancer ensemble : accomplir le dessein de Dieu](/fr-contemporary-mess
 Jésus | [Soyez des instruments de vérité, de lumière et d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-23-1-af-jesus/) | 23 Octobre 2026 
 Jésus | [L’amour sans jugement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-25-1-af-jesus/) | 25 Octobre 2026
 Jésus | [Perceptions et compréhensions découlent naturellement du développement de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-30-1-af-jesus/) | 30 Octobre 2026
+Jésus | [Soyez des exemples vivants de la vérité que vous connaissez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-1-1-af-jesus/) | 1 Novembre 2026 
 
 
 

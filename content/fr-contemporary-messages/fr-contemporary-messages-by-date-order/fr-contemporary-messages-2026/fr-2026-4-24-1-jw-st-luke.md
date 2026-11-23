@@ -21,3 +21,7 @@ Si vous considérez votre progression, des ténèbres que vous avez endurées à
 Comme le Maître l'a indiqué, laissez cette bénédiction, laissez les aspirations de vos âmes atteindre Dieu, libérez-vous de vos fardeaux afin que Dieu puisse vous toucher, vous bénir et vous transformer par son amour. Je vous remercie. Je suis votre frère en Christ, disciple du Maître et votre ami céleste.
 
 Je suis Luc. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

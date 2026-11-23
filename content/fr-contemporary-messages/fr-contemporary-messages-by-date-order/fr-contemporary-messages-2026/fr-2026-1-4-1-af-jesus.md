@@ -16,3 +16,7 @@ Que Dieu vous accompagne, mes bien-aimés. Je suis votre frère et ami, Jésus. 
 Mes bien-aimés, nous sommes unis dans cette vérité pour l’éternité et nous cheminerons sur la voie qui nous mènera à la réconciliation avec Dieu. Il n’y a pas d’autre voie qui nous mènera à cette unité, à cette réconciliation. Je vous exhorte à rechercher sa bénédiction avec les aspirations profondes de votre âme. Recherchez cette bénédiction et elle vous sera accordée, car vous aspirez à Dieu, à être aimé et à aimer. Nous sommes tous ici avec vous, mes bien-aimés. Nous prions avec vous. Nous prions pour ce lieu. Nous nous joignons à vos prières pour ce monde et nous continuerons à chercher à être les instruments de lumière, de bénédictions et d’amour de Dieu pour votre monde.
 
 Je vous aime, mes amis bien-aimés. Oh, je vous aime tellement et je marcherai avec vous pour l’éternité. Je suis Jésus. Oui, c’est moi. Il n’y a personne d’autre que moi et que ce que je représente dans l’Esprit du Christ, le premier frère sur le chemin et celui qui réside au plus haut des cieux. Je suis là. Je suis avec vous et je vous aime. Que Dieu vous bénisse, mes bien-aimés. Je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

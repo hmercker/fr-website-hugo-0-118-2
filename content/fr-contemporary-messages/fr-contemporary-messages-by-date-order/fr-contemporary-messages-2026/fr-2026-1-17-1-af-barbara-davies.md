@@ -26,3 +26,7 @@ Mes amis, mes chers amis, sachez que tout ce que vous faites dans le monde, chaq
 Puissiez-vous trouver votre véritable raison d'être, mes amis bien-aimés. Puissiez-vous suivre le chemin que Dieu a tracé pour vous. Puissiez-vous être fidèles à vous-mêmes et fidèles à Dieu. Ainsi, toute la merveille, tout le potentiel, toute la beauté qui résident en votre âme pourront se révéler et s'exprimer. Dans cette expression, d'autres en bénéficieront, et d'autres encore verront leur lumière s'allumer, car vous avez été une lumière. Soyez cette lumière, soyez un canal d'amour, et soyez avec Dieu. Vous récolterez les fruits d'un enfant empli d'Amour, un enfant que Dieu a adopté, un enfant qui exprime tout ce qu'il est et tout ce qu'il peut devenir en ce monde.
 
 Que Dieu vous bénisse, mes chers amis. Je suis Barbara et je vous remercie de vous être réunis dans la prière, afin que vous puissiez donner naissance à une vie que les anges pourront utiliser et qui apportera aux autres réconfort, guérison, paix et parfois, vérité. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

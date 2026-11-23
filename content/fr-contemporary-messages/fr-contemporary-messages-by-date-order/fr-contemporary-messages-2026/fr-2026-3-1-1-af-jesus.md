@@ -21,4 +21,8 @@ Soyez fidèles à vous-mêmes, à cette lumière qui grandit en vous, et tout vi
 
 Mes bien-aimés, nous sommes tous proches, montant vers le Palais de la Paix, accompagnés chacun de vos anges gardiens. La lumière s'intensifie, la paix devient plus tangible et l'Amour de Dieu abonde dans ce lieu glorieux qu'Il nous a offert. Ouvrez grand vos âmes, mes bien-aimés, et cherchez l'Élixir qui apporte tout ce dont l'âme a besoin et la transforme en quelque chose de divin. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus, et je vous aime. À jamais, nous cheminons ensemble sur cette grande route vers la réconciliation avec Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Je vous aime.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 

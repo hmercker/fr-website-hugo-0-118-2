@@ -26,3 +26,7 @@ Une âme portée par l'Amour de Dieu est une âme vivante, capable d'aider les a
 Bien des choses changent sur votre Terre, comme vous le savez bien, mais aussi en vous-même. Toutes les âmes qui prient pour recevoir l’Amour de Dieu sont en constante transformation ; laissez-vous donc toujours porter par la grâce divine et faites-en votre priorité afin d’accomplir le rôle que Dieu a déposé en vous. Car c’est par la prière — par l’afflux de l’Amour de Dieu dans votre âme — que cela vous sera révélé. Vous cheminerez en tant qu’âme illuminée par l’Amour et la Lumière de Dieu, tel un phare capable d’attirer les nombreuses personnes que Dieu a l’intention de vous envoyer en temps voulu.
 
 Je suis Yogananda. Que le Souffle de l’Amour de Dieu pénètre en vous tandis que vous vous recueillez dans la prière et recevez cette immense bénédiction. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

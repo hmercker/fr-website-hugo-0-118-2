@@ -26,3 +26,7 @@ Dieu vous aimera inconditionnellement. Nous vous aimerons inconditionnellement. 
 Nous voulons que vous connaissiez cette joie, que vous ressentiez l’accomplissement d’être l’instrument de Dieu dans le monde, et vous serez heureux, épanouis et joyeux tout au long de ce voyage. Nous prions tous pour que chacun de vous soit sur ce chemin, que vous vous exprimiez avec beauté et éloquence, que vous soyez sages et humbles, aimants et doux, mais fermes dans la vérité, que vous soyez cette belle lumière qui rayonne à travers chacun de vous. Mes chers amis, un grand destin vous attend. Imaginez-le. Cherchez votre vocation et Dieu vous montrera le chemin.
 
 Que Dieu vous bénisse, mes amis. Je suis la Foi. Oh, je vous aime tellement. Belles âmes, soyez fortes et courageuses. Soyez intègres et remplis de foi. Tout se déroulera comme il se doit. Je vous l’assure, mes amis. Dieu a tout en main. Il vous suffit de le suivre et de rechercher sa guidance, et vous serez émerveillés par les résultats. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse tous. Je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

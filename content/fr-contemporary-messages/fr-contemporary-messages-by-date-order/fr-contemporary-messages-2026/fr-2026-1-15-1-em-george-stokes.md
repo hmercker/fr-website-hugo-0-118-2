@@ -16,3 +16,7 @@ Que l’Amour du Père soit avec vous en grande abondance, chers enfants de Dieu
 Abreuvez-vous, chers enfants. Laissez cet Amour vous purifier, vous absoudre, vous envelopper et vous maintenir si près du Père que vous puissiez ressentir Son Amour. C’est un don qui vous est offert pour vous soutenir en ces temps de changement, en ces temps marqués par le chaos ; sachez pourtant que vous êtes en sécurité dans l’Amour de Dieu. Accordez-vous le réconfort et la joie d’être soutenus par Dieu, votre Créateur, votre Père. Il veille sur tout ce dont vous avez besoin, sur tout ce qui peut vous préoccuper ; Il prend soin de tout pour vous, afin que vous puissiez être libérés de toute inquiétude. Laissez Sa grâce toucher vos âmes, et permettez à votre amour de rencontrer le Sien, pour ne faire qu’un dans cet Amour.
 
 C’est une bénédiction toute particulière pour vous tous, ici, dans ce « Cercle de Lumière ». Abreuvez-vous, abreuvez-vous, chers véritables enfants, et accueillez cette bénédiction comme étant la vôtre. Je suis votre frère, George. Mon amour est avec vous, tout comme l’amour d’une multitude d’âmes transformées qui vous entourent et vous touchent de leur amour, en union avec l’Amour de notre Père. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

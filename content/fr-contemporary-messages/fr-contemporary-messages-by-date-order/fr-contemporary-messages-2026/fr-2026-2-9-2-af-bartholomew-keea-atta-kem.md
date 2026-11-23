@@ -37,3 +37,7 @@ Soyez fidèles à Son Amour. Tout le reste viendra ainsi, par la lumière, par l
 
 Soyez fidèles à Son Amour. Tout le reste viendra ainsi, sur la voie de la lumière, sur la voie de l'Amour, sur la voie de Dieu. Que Dieu vous bénisse, mes amis. Keea vous aime. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

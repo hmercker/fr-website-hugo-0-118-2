@@ -22,3 +22,7 @@ Il y a une certaine facilité dans cet état de grâce qui découle de votre dia
 Alors, priez simplement. Lâchez prise sur toutes ces choses qui, dans le grand schéma des choses, n'ont aucune importance. Laissons-nous porter par la légèreté de la lumière et de l'Amour de Dieu. Je vous remercie pour ce moment et pour que mon bien-aimé reçoive ce message. Je souhaite à chacun de vous une grande effusion d'Amour Divin dans vos âmes, afin que nous ne fassions qu'un dans l'Amour de Dieu. Allez en paix. Je vous aime.
 
 Je suis Care.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

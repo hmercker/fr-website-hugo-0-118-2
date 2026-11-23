@@ -48,3 +48,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus. Je suis avec vous et je
 Nous vous soutenons, nous vous entourons, nous vous protégeons, nous vous guidons, nous vous enseignons et nous vous aimons, car vous êtes vraiment très précieux, mes amis bien-aimés. Nous souhaitons rassembler le plus grand nombre possible en un seul corps uni, un seul corps agissant qui se répandra à travers le monde et apportera la lumière dans les ténèbres. Vous faites partie du plan de Dieu, tout comme nous. Dieu veillera à ce que chaque lumière dans le monde ait la liberté de choisir consciemment d'œuvrer pour le bien de l'humanité et d'avancer avec clarté, détermination, force, foi, lumière et amour.
 
 Nous travaillons ensemble, mes chers amis, tous ensemble. Que Dieu vous bénisse, âmes bien-aimées. Je suis Moïse. Je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

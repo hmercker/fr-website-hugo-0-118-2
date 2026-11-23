@@ -22,3 +22,7 @@ Très chers, lorsque vous entrez dans l'espace de la prière — que ce soit en 
 Très chers, vous êtes tous engagés sur une voie, un chemin de transformation de l'âme. Soyez forts et sincères ; aspirez à maintenir la conscience de l'âme dans votre état d'éveil. Car en agissant ainsi et en pratiquant, vous créez un partenariat : vous vous mettez à l'unisson des désirs de votre âme et vous vous alignez sur le centre de votre être, permettant au cœur de l'âme de vous mener et de vous guider. Votre mental apprend à suivre, à s'aligner et à ne faire qu'un avec votre âme.
 
 Je suis Keea Atta Kem. Que Dieu vous bénisse tout au long de votre cheminement vers l'éveil. Puissiez-vous vous délecter de la gloire de l'Amour de Dieu — l'Amour Divin — à chaque souffle. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

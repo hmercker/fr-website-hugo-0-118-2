@@ -16,3 +16,7 @@ Je viens. Je suis Jésus. Je suis ici pour reconnaître chacun de vous, la bén�
 Je suis envoyé vers vous pour vous révéler votre appel, pour aider à éveiller en votre âme cet appel venant de Dieu — qui désire que Ses enfants, Sa création, Le connaissent — pour soutenir cet appel en vous et en manifester la présence, afin que vous puissiez servir la lumière de votre monde par votre propre transformation. Vous vivez tous ces grands changements, en vous et autour de vous. Ce qui vous apportera la stabilité, c’est cette Essence. Je suis ici pour vous offrir cette bénédiction, cet appel, cette vérité : l’Âme de Dieu aspirant à ce que votre âme et la Sienne ne fassent qu’un, amenant ainsi l’harmonie dans votre monde.
 
 Que Dieu vous bénisse tous sur ce chemin exquis de l’Amour divin, aux côtés de vos frères et sœurs, votre véritable famille éternelle. Je suis Jésus. Que Dieu vous bénisse tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

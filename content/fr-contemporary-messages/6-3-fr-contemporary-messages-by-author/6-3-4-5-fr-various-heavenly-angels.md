@@ -16,6 +16,7 @@ weight:
 Adriana | [Se ressourcer dans la prière pour se préparer aux défis à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-6-1-af-adriana/) | 6 Septembre 2020
 Agnès | [Ne pas ignorer l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-2-jr-agnes/) | 19 Mai 2014
 Aliyah | [La Promesse de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-3-mc-aliyah/) | 8 Mai 2025
+Ann | [Recevoir l’Amour Divin vous met en harmonie avec la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-3-2-em-ann/) | 3 Mai 2026
 Archange Gabriel | [La mort et la résurrection de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-6-21-1-rl-archangel-gabriel/) | 21 Juin 2004
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021
 Archange Michael et Luc | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-2-em-archangel-michael-and-luke/) | 26 Février 2024
@@ -61,9 +62,8 @@ Grace Jordan | [Soyez courageux face à vos défis](/fr-contemporary-messages/fr
 Grace Jordan | [Demandez à Dieu d'établir la conscience de l'Amour dans votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-14-4-mc-grace-jordan/) | 14 Septembre 2025
 Grace Jordan | [Un acte de Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-grace-jordan/) | 13 Janvier 2026
  ||<p align="center"><span style="color:red">**Autres Anges Célestes**</span></p> | |
+Ariel | [La joie d’une âme éprise de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-3-2-af-ariel/) | 3 Novembre 2026
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
-James  | [Vous êtes une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-1-2-af-james/) | 1 Décembre 2014 
-James | [Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-1-2-mc-james/) | 1 Mars 2026
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 James Tudor Sr | [Exprime sa déception face aux changements culturels à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-2-af-james-tudor-sr/) | 22 Janvier 2025
 James Tudor Sr | [Qu’ils l’acceptent ou non, cette vérité s’enracine dans l’âme de ceux qui l’entendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-2-af-james-tudor-sr/) | 8 Février 2026
@@ -74,7 +74,9 @@ Jean Hughes | [Prenez contact avec Dieu tout au long de la journée pour bénir 
 Jean Hugues | [Nous avons un aperçu de cet Amour en vivant sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-8-1-em-john-hugues/) | 8 Juin 2025
 Jean Hugues | [Le Voile](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-3-2-em-john-hugues/) | 3 Juillet 2025 
 Jean Hugues | [Prier ensemble est une source de joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-5-1-em-john-hugues/) | 5 Février 2026
-Jean Hugues | [Soyez à l’écoute de la vérité transmise par cet Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-7-2--john-hugues/) | 7 Mai 2026 
+Jean Hugues | [Soyez à l’écoute de la vérité transmise par cet Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-7-2-em-john-hugues/) | 7 Mai 2026 
+Jean Hugues | [Éliminez ces montagnes en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-18-1-em-john-hugues/) | 18 Juin 2026
+Jacques (de la cinquième sphère) et Jean Hugues | [L’Amour Divin vous portera à travers les épreuves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-6-1-em-james-5th-spherian-john-hughe/) | 6 Juillet 2026
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
 La Joya | [Éléments utilisés dans la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-2-mc-la-joya/) | 8 Octobre 2020
 Le père du médium | [Aide aux pays en difficulté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-23-2-fab-mediums-father/) | 23 Janvier 2007
@@ -89,6 +91,7 @@ Marthe | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messa
 Marthe | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
 Marthe | [Prière d'ouverture de Konda Coast](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-1-4-af-martha/) | 1 Mars 2024
 Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
+Marthe | [Priez pour ceux qui résistent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-29-3-em-martha/) | 29 Juin 2026 
 Marthe | [Marthe prodigue ses conseils aux bénévoles et aux membres de l’Église spiritualiste de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-16-1-af-martha/) | 16 Septembre 2026
 Marty Ketterman | [La joie de la progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-14-4-em-marty-ketterman/) | 14 Mai 2026 
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004

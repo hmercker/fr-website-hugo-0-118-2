@@ -20,3 +20,7 @@ Il est merveilleux de vivre ce que vous pourriez considérer comme les sommets d
 Sachez éprouver de la gratitude pour ce parcours de prise de conscience ; comprenez qu’avec le temps, vous surferez à nouveau sur une magnifique vague de l’Amour de Dieu, portés haut par ses eaux et totalement immergés en Lui. C’est un mouvement perpétuel de flux et de reflux, de hauts et de bas, jusqu’à ce que vous soyez pleinement transformés. Je suis là pour vous encourager à comprendre la dynamique et la dualité de votre voyage — ces hauts et ces bas, ces flux et ces reflux — et à tout accueillir, à remercier Dieu profondément au milieu de tout ce qui change en vous. Car c’est ainsi, bien-aimés, que le voyage de transformation devient complet et accompli.
 
 Nous prions avec vous et nous sommes là pour vous encourager. Nous sommes à vos côtés pour vous soutenir avec force, pour vous aimer et pour vous offrir nos bénédictions et nos dons alors que vous parcourez ce chemin magnifique de l’éveil et du devenir de l’âme divine. Je suis Foi. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

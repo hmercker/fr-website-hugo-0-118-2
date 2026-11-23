@@ -22,3 +22,7 @@ Nous pouvons vous influencer ; nous pouvons ouvrir une porte spirituelle pour qu
 Puissiez-vous persévérer sur ce chemin, ce chemin béni, et puissiez-vous considérer mes conseils et les partager avec ceux qui en ont besoin, afin que cette prière fervente puisse toucher le plus grand nombre. De tout mon cœur, je vous remercie et je me retire de cette prière. Je suis votre frère et ami en Christ.
 
 Je suis Yogananda.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

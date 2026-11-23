@@ -24,3 +24,7 @@ Chacun de vous a des proches pour qui il a prié, et qui portent cet Amour dans 
 Je suis Barbara. Je vous aime tous beaucoup et je suis heureuse d’être parmi vous aujourd’hui. Que Dieu vous bénisse, encore et encore, inlassablement. Je vous aime. Que Dieu vous bénisse.
 
 **Thomas** : Je suis Thomas. Certains d’entre vous me connaissent, ou ont entendu parler de moi. Je suis simplement venu vous dire ceci : vous connaissez la vérité. La croyance n’a rien à voir avec cela. Vous savez ce que vous savez. Restez fermes. Tenez-vous droits et incarnez la vérité que vous portez en votre âme. Que Dieu vous bénisse. Mon amour vous accompagne également.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

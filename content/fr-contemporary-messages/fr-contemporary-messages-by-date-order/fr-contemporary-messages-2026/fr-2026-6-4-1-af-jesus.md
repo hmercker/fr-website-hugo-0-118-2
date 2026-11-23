@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme ici présente porte la Lumière de l’Amour de Dieu : Jésus inaugure la retraite de Johnson City"
 menu_title: ""
-description: "Jésus, reçu par Albert Fike : « Je vous exhorte à vous concentrer sur vos prières et sur vos moments partagés, à échanger, à vous soutenir et à vous aimer … »"
+description: "Chaque âme ici présente porte la Lumière de l’Amour de Dieu : Jésus inaugure la retraite de Johnson City"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True
@@ -16,3 +16,7 @@ Je viens, mes bien-aimés. Je viens vous accueillir dans ce Cercle de Lumière e
 Mes bien-aimés, en attirant les anges à vous, vous attirez les bénédictions qui se déversent sur vous, et vous ressentirez le Toucher de Dieu dans toute sa splendeur, sa gloire et sa merveilleuse beauté. Mes bien-aimés, nous venons en ce moment sacré pour être avec Dieu, pour connaître Dieu et Ses bénédictions sur vous, sur nous tous. Que la lumière brille. Puissions-nous être élevés au-delà des préoccupations du plan terrestre, vers l’harmonie et la grâce du Toucher de Dieu sur nous.
 
 Je suis votre frère et votre ami, Jésus. Je vous salue. Je vous accueille. Je vous serre dans mes bras, mes bien-aimés. Je suis ici avec vous dans la prière. Que Dieu vous bénisse tous dans Son Amour. Que Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

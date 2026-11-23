@@ -22,3 +22,7 @@ Chères sœurs, nous vous remercions pour votre dévouement et votre engagement 
 Que le grand déferlement de l'Amour divin vous atteigne toutes. Que la paix, la foi et l'humilité se déversent sur vous en une pluie de bénédictions. Je suis Seretta Kem. Je suis heureuse de servir et d'être à vos côtés alors que nous nous préparons toutes pour ce qui est à venir. Que Dieu vous bénisse.
 
 <u>Note de la médium</u> : Chaque mois, avant l'expérience de guérison mondiale, nous nous réunissons pour une prière de préparation. Le message reçu de Seretta Kem — ainsi que la manière dont elle a évoqué un incident récent au cours duquel une personne chère a été blessée et une âme a quitté ce monde à la suite de l'altercation — nous a incitées à le partager avec la communauté.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

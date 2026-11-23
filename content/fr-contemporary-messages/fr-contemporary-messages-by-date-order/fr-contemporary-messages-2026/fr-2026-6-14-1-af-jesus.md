@@ -27,3 +27,6 @@ Il y a tant à faire, mes bien-aimés, tant d’œuvres à accomplir. La Terre e
 
 Mes bien-aimés, nous cheminons ensemble. Nous sommes frères, et nous le resterons pour l’éternité. Je vous aime, mes bien-aimés. Je vous aime tant. Je veux que vous ressentiez combien je vous aime, combien je veille sur vous, combien je prie pour vous, et combien Dieu vous aime et vous enveloppe de Son Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis véritablement votre frère et votre ami. Je suis Jésus, et je viens à vous dans l’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

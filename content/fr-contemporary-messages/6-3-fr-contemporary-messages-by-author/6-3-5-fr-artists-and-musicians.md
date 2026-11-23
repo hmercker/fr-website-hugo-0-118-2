@@ -54,6 +54,13 @@ Frédéric Chopin | [Je souhaite apporter ma musique à l'humanité](/fr-contemp
 Gene Kelly | [Que votre cœur chante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-2-af-gene-kelly/) | 23 Novembre 2017
 George Harrison | [Un grand musicien revient à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-12-1-fab-george-harrison/) | 12 Juillet 2009
 George Harrison | [George Harrison rentre à la maison - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-14-2-fab-george-harrison/) | 14 Juillet 2009
+Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
+Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
+Hazrat Inayat Khan | [Le chant du cœur et la danse de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022
+Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
+Hazrat Hazrat Inayat Khan  | [Le chant et la danse Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-20-1-jw-inayat-khan/) | 20 Février 2023
+Hazrat Inayat Khan | [Écoutez avec votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-7-1-jw-inayat-khan/) | 7 Septembre 2026
+Hazrat Inayat Khan | [L’univers est un chant qui fredonne l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-16-1-jw-hazrat-inayat-khan/) | 16 Novembre 2026
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabelle/) | 16 Janvier 2025
 Jackie Gleason | [Les expériences d’un grand comédien, Jackie Gleason, comme esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-2-fab-jackie-gleason/) | 15 Mars 2013
 Jackie Gleason | [Clarification de Jackie Gleason](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-5-1-fab-jackie-gleason/) | 5 Avril 2013

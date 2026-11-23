@@ -25,7 +25,11 @@ Je vous supplie d'aller plus loin chaque jour, d'honorer véritablement votre â
 
 Mes bien-aimés, mes frères, nous cheminons ensemble. En vérité, chacun de vous est aimé et chéri. Chacun de vous est guidé et protégé. Chacun de vous ressent la douceur de l'amour du Père et chacun de vous me connaît comme votre véritable frère et ami. Nous avons dans nos vies le réconfort, la paix, la force, la sagesse, la joie et la puissance de l'amour. Puissions-nous exprimer cela de toutes les manières possibles dans nos vies. Dieu nous guidera véritablement sur ce chemin et révélera les possibilités de notre expression, de notre rôle, de nos dons, afin d'élever le monde et d'y apporter la lumière. Nous ne faisons qu'un, mes bien-aimés, unis dans la perspective grandiose d'accomplir la volonté et le plan de Dieu pour le monde. Nous continuons, mes bien-aimés, à marcher sur le Chemin Divin, à être véritablement Ses instruments, Ses enfants, Ses lumières dans le monde. Ainsi sommes-nous, mes bien-aimés, ainsi sommes-nous. Cela ne fera que grandir. D'autres nous rejoindront. La lumière brillera de plus en plus. La vérité sera révélée à tous. C'est notre destinée commune et nous l'accomplirons à chaque instant.
 
-Que Dieu vous bénisse, mes bien-aimés. Je marche avec vous. Je vous guide sur le chemin et je vous aime comme mes frères et sœurs. Que Dieu vous bénisse. Je suis Jésus, Maître du Royaume Céleste, et votre ami. Que Dieu vous bénisse, à jamais, dans Son Amour
+Que Dieu vous bénisse, mes bien-aimés. Je marche avec vous. Je vous guide sur le chemin et je vous aime comme mes frères et sœurs. Que Dieu vous bénisse. Je suis Jésus, Maître du Royaume Céleste, et votre ami. Que Dieu vous bénisse, à jamais, dans Son Amour.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 
 
 

@@ -32,6 +32,12 @@ Guru Nanak | [Le fondateur de la religion sikh apporte inspiration et conseils d
 Guru Ram Das | [Une bénédiction de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-11-3-mc-guru-ram-das/) | 11 Octobre 2018
 Guru Ram Das | [Embrasser d'autres cultures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-17-2-mc-guru-ram-das/) | 17 Mars 2019
 Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
+Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
+Hazrat Inayat Khan | [Le chant du cœur et la danse de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022
+Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
+Hazrat Hazrat Inayat Khan  | [Le chant et la danse Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-20-1-jw-inayat-khan/) | 20 Février 2023
+Hazrat Inayat Khan | [Écoutez avec votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-7-1-jw-inayat-khan/) | 7 Septembre 2026
+Hazrat Inayat Khan | [L’univers est un chant qui fredonne l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-11-16-1-jw-hazrat-inayat-khan/) | 16 Novembre 2026
 Hildegard of Bingen | [Une mystique médiévale exulte dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-1-fab-hildegard-of-bingen/) | 7 Août 2008
 Jacobus Arminius | [Un théologien Néerlandais découvre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-21-1-fab-jacobus-arminius/) | 21 Mars 2007
 Jérôme | [Vous êtes soutenu dans vos luttes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-12-1-af-jerome/) | 12 Septembre 2016

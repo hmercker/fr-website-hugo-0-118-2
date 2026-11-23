@@ -18,3 +18,7 @@ C’est sur ce point que vous pouvez porter votre attention. Priez pour ces âme
 Alors, mes chers, priez. Priez pour ces âmes tendres, mais profondément blessées, qui ne parviennent pas à trouver leur chemin. Priez pour elles. Un jour, vos prières en leur faveur seront exaucées. Gardez cette vérité à l’esprit alors que le monde sombre davantage dans le chaos. Restez fidèles à votre voie. Restez fidèles à Dieu et à votre propre être, qui est en train de ne faire qu’un avec Lui. C’est là que doit porter votre attention ; cela vous permettra de demeurer en harmonie et en sécurité.
 
 Que le Père vous bénisse abondamment, aujourd’hui et pour tous les jours à venir, sur cette Terre et au-delà. Je suis votre frère, Nathanaël (Barthélemy). Je suis présent à vos côtés, et je continuerai de l’être. Mon amour pour chacun d’entre vous est immense. Que Dieu vous bénisse, mes très, très chers enfants.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

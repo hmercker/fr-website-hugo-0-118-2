@@ -20,3 +20,7 @@ Ce respect doit demeurer présent dans votre conscience tandis que vous continue
 Soyez la vérité, un exemple vivant, une lumière magnifique. Dieu agira à travers vous de nombreuses choses, de nombreuses bénédictions et des miracles qui toucheront profondément les autres et contribueront à apporter le changement nécessaire dans votre monde. Ce changement n’a pas besoin d’être brutal et difficile. Il pourrait être facile et harmonieux si seulement le monde adoptait l’amour plutôt que la peur, l’ignorance et les ténèbres. Soyez amour, mes bien-aimés. Soyez vérité et soyez une lumière reflétant la puissance de l’Amour de Dieu en vous. Ainsi, vous attirerez vos amis anges près de vous et nous cheminerons ensemble, une force puissante pour ramener l’harmonie dans le monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis François et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

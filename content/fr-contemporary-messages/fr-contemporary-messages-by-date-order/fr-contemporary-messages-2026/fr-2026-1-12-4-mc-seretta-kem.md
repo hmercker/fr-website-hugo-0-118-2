@@ -20,3 +20,7 @@ Vous ressentirez tous la présence des anges plus intimement, notre lien plus pr
 Laissez votre évolution s'intégrer pleinement. Accordez-vous le temps de reconnaître et d'intégrer ces changements. Certains remarqueront la présence de nouveaux guides. D'autres prendront conscience de l'influence qui s'exerce sur leurs pensées, une influence harmonieuse, afin que le don d'un meilleur alignement entre l'âme et l'esprit s'établisse en chacun de vous. Votre chemin, guidé par l'engagement, est désormais plus clair, empreint de certitude, de conscience et de croissance. Vos pas, ancrés sur le Chemin de l'Amour Divin, portent l'empreinte de l'Amour de Dieu sur Terre. (...) Les Eaux Vives circulent en vous et à travers vous, nourrissant tout ce que vous touchez et apportant la guérison à tous les lieux, circonstances et environnements que vous fréquentez. L'Essence de Dieu ne cesse jamais de vous traverser et de pénétrer en vous. Vous êtes des piliers de lumière. Vous êtes des piliers d'amour, dont la nature a été transformée par nos prières communes, votre dévouement en présence des anges, tous unis dans l'harmonie avec la Volonté de Dieu.
 
 Je suis Seretta Kem, et je suis ici pour vous accompagner dans votre éveil. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

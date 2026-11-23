@@ -22,5 +22,7 @@ Que Dieu vous bénisse, mes amis. Je suis Barbara. Je chanterai avec mon âme ta
 
 1. <large id="f1"> En référence à un membre de la communauté qui a prononcé la prière d'ouverture[↩](#a1)
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
  

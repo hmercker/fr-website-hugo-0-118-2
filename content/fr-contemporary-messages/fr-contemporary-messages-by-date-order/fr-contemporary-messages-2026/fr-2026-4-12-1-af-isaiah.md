@@ -28,3 +28,7 @@ Je vous encourage à profiter pleinement de ce qui vous est offert en ces temps 
 Que Dieu vous bénisse abondamment, chers frères et sœurs. Comme l’a si bien dit notre chère sœur, *« plongez au plus profond de votre âme »*. Regardez, reconnaissez, ressentez, accueillez, priez, ouvrez-vous et demeurez dans ce lieu de grâce. Les réponses viendront et la vérité vous sera révélée afin que vous ne la niiez ni ne la déformiez, mais que vous l’acceptions simplement comme un don de Dieu, le don de la vérité qui vous est offert, un don qui vous accompagnera pour l’éternité, aux côtés de ce don d’Amour qui ouvre la porte et vous conduit vers ce lieu si beau, si paisible et si lumineux.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Isaïe. Je viens prier avec vous. Nous voici, enveloppés par la grâce de Dieu. Ouvrez-vous, désirez avec ferveur et vous connaîtrez la puissance de l’Amour de Dieu pour vous changer, vous regagner, vous transformer. Que Dieu vous bénisse, âmes bien-aimées. Que son Amour inonde vos âmes. Que la flamme de la vérité vous entoure. Que la lumière de la grâce vous accompagne. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

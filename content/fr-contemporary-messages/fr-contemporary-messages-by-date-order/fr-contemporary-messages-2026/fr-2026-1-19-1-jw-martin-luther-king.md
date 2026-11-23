@@ -24,3 +24,7 @@ Il est si important d'être un signe extérieur de paix, de la grâce de Dieu qu
 Je remercie à nouveau mon frère de m'avoir permis d'être présent en ce jour où nous célébrons les progrès accomplis, mais où nous restons aussi concentrés sur ce qui reste à faire. Agissez dans l'Amour de Dieu. C'est ma demande, et celle de tous ici présents, y compris celle de mon homonyme, Martin Luther, qui est parmi nous ce soir, ainsi que celle de frère Gandhi et de tant d'autres. Que la paix soit avec vous et que l'amour de Dieu vous accompagne. Que Dieu vous bénisse.
 
 Je suis Martin Luther King Jr.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,7 @@ Enfants, puisez dans l’amour qui réside en vos âmes pour toucher celles de v
 Vous détenez les réponses pour eux. Vous pouvez leur venir en aide. Vous le devez, pour le salut de l’humanité. Cela a été convenu avant même votre entrée dans cette vie ; alors, allez vers eux. Parlez-leur, mais avec amour. Touchez leurs âmes par votre amour, car c’est là la puissance de Dieu en vos âmes. Nous serons à vos côtés. Nous vous aiderons. Nous sommes vos amis. Nous sommes, par la volonté de Dieu, les protecteurs de Ses enfants sur Terre. Nous sommes vos gardiens.
 
 Que Dieu vous bénisse, véritables enfants de Dieu. Que Dieu vous bénisse. Prenez à cœur tout ce que j’ai dit et laissez ces paroles pénétrer profondément, très profondément, dans vos âmes, afin que vous puissiez reconnaître la vérité de ce que je vous dis. Que Dieu vous bénisse. Que Son Amour se répande sur vous, et que votre âme s’abreuve — qu’elle s’abreuve pleinement — de cette nourriture qu’est Son Amour. Je suis Jean-Baptiste. Mon amour vous accompagne. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

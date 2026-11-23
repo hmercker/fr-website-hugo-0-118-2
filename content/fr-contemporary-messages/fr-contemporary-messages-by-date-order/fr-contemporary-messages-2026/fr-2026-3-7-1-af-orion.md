@@ -42,3 +42,7 @@ En effet, cette manifestation représente votre dilemme en ce moment même. C’
 Voilà le véritable changement. Je parle d’un changement authentique, puissant, clair et sans ambiguïté. C’est un changement qui doit s’opérer dans la conscience de chacun, chacun d’entre vous menant une vie partagée entre le monde matériel et ses exigences, et le monde spirituel et l’âme, avec toutes leurs implications. Considérez ces choses, mes chers amis. C’est important. Ces lois dont je parle requièrent votre attention et votre obéissance. Comme toutes les lois universelles, elles ne peuvent être ignorées, car elles sont à l’œuvre, que vous en soyez conscients ou non. Il est important que vous ayez le pouvoir, que vous soyez investis de cette conscience.
 
 Que la sagesse véritable, la conscience, l’amour, la paix et l’harmonie vous comblent, toutes ces belles choses, ces éléments spirituels, dans votre vie. Nous sommes là pour vous aider à trouver le chemin qui vous permettra de vivre en harmonie avec ces valeurs. Dieu est toujours présent pour vous nourrir et vous accompagner sur cette voie. Que Dieu vous bénisse, mes amis. Je suis Orion et je vous aime infiniment, mes chers amis. Que Dieu vous bénisse de son amour.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -27,3 +27,7 @@ Je suis votre frère et ami, je suis Judas.
 <small>
 
 1. <large id="f1"> La gravitas est une vertu romaine qui signifie sérieux, dignité et importance. Elle est liée à la romanitas, à l'éducation, à la communication et à la politique. (Wikipédia)[↩](#f1)
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

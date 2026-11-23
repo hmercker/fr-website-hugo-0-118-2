@@ -23,3 +23,7 @@ Soyez fidèles, mes chers amis. C’est la pierre angulaire de votre service, de
 
 Que Dieu vous bénisse, mes chers amis. Je suis Barbara. Je vous aime. C’est pour moi un honneur et un privilège d’être parmi vous. Tout ira bien, mes amis — d’une manière ou d’une autre — dès lors que vous choisirez délibérément de suivre la Volonté de Dieu. Tout ira bien. Vous connaîtrez la joie et trouverez votre accomplissement dans la Vérité de l’Amour de Dieu. Je vous aime. Barbara vous aime. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

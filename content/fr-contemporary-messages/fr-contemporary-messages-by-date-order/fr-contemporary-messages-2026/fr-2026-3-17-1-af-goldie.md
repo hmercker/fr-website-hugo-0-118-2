@@ -22,3 +22,7 @@ Demandez à Dieu de remplir votre cœur de joie, comme Il remplit votre âme de 
 Mes chers amis, soyez joie. Soyez joie de tout votre être. Vous serez une lumière incomparable, un instrument précieux entre les mains de Dieu pour répandre Son Amour, sa lumière, sa paix et sa joie sur le monde. C’est ce dont le monde a besoin. Chacun de vous, qui connaissez l’Amour de Dieu et qui portez cet Amour en vous, pouvez être un canal de joie et de bénédictions pour les autres. Soyez fidèles à cela et laissez le reste, les choses humaines, s’effacer, afin d’être libres, de vous épanouir dans l’amour et la lumière. Alors seulement la joie pourra vous atteindre.
 
 Mes chers amis, je suis Goldie. Je vous aime et je suis heureuse d’être avec vous. Que Dieu vous bénisse tous. Ressentez la joie monter en vous et vous verrez que tous vos soucis s’évanouiront et que vous n’aurez plus qu’à vous préoccuper de Dieu et d’une vie plus lumineuse, d’expériences enrichissantes et d’une expression profonde de votre âme en sa présence. Que Dieu vous bénisse, mes bien-aimés. Je vous aime tellement.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

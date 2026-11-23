@@ -22,3 +22,7 @@ Mes bien-aimés, il reste beaucoup à faire, car les semailles ont eu lieu et Di
 Mes bien-aimés, chacun porte la vérité en son cœur. Votre âme rayonne de l’amour de Dieu. Laissez ce rayonnement se manifester. Laissez la vérité s’exprimer par vos lèvres. Laissez l’amour se traduire dans votre vie quotidienne. Dieu fera le reste, comme Il l’a fait et comme Il le fera toujours. Mes bien-aimés, qu’une grande bénédiction soit la vôtre : un éveil de l’âme, une Pentecôte, un grand déferlement d’Amour pour vous éveiller davantage, vous fortifier et vous illuminer, afin que vous soyez véritablement cette lumière dans le monde et que vous ayez la force et les moyens d’être des canaux de Dieu — vrais, purs et beaux.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et votre ami, pour toujours. Je suis Jésus et je vous aime. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

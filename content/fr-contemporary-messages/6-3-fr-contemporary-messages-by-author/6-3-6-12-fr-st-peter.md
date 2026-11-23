@@ -56,3 +56,4 @@ St Pierre | [La véritable Église est dans vos cœurs](/fr-contemporary-message
 St Pierre | [Fidélité à la Vérité : Servir Dieu avec force et ténacité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-18-2-af-st-peter/) | 18 Novembre 2025
 St Pierre | [Vous développez votre capacité à exprimer la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-22-2-mc-st-peter/) | 22 Mars 2026 
 St Pierre | [Vous avez tout ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-16-2-em-st-peter/) | 16 Mai 2026
+St Pierre | [Que signifie « Nous sommes avec vous » ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-10-2-em-st-peter/) | 10 Août 2026

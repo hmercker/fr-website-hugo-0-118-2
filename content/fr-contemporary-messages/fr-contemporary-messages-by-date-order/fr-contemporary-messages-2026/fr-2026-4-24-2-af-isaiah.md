@@ -24,3 +24,7 @@ Dieu a un plan pour chacun d’entre vous. Il vous guidera sur la voie de l’il
 Un avenir riche de promesses vous attend, mes amis bien-aimés. De nombreuses choses sont à venir : expériences, prises de conscience, révélations et une joie immense. Tout cela vous est destiné. Cela continuera de vous attendre, mes amis bien-aimés, selon votre désir, vos prières, votre foi et le chemin que vous empruntez ; car Dieu respecte votre libre arbitre et ne vous montrera, sur cette voie, que ce que vous souhaitez et désirez. Puissiez-vous désirer tout ce que Dieu a à vous offrir. Telle est notre prière pour vous. C’est ce qui doit vous parvenir : toutes les bénédictions de l’univers et de la grande Âme de Dieu, prêtes à vous être accordées dans leur plénitude et dans l’émerveillement de la main de Dieu posée sur vous.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Isaïe. Je viens proclamer à nouveau la vérité à vous, qui sur Terre êtes en quête, qui désirez et qui êtes prêts à parcourir la Voie Divine pour rechercher l’Amour du Père. Ce don vous est fait en cet instant même. Que Dieu vous bénisse tous sur ce chemin. Isaïe vous aime et vous accompagne tout au long de votre parcours.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

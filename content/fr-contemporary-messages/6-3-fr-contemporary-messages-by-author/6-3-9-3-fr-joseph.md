@@ -55,4 +55,5 @@ Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](
 Joseph | [La puissance de l’Amour de Dieu pour dissiper les montagnes de négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-20-1-em-joseph/) | 20 Février 2025
 Joseph | [Gratitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-19-1-em-joseph/) | 19 Février 2026
 Joseph | [Notre famille qui s’agrandit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-14-3-em-joseph/) | 14 Mai 2026
+Joseph | [Ne vous limitez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-11-1-em-joseph/) | 11 Juin 2026
 Joseph | [Les bénédictions sont abondantes et puissantes en cette période de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-20-1-af-joseph/) | 20 Octobre 2026

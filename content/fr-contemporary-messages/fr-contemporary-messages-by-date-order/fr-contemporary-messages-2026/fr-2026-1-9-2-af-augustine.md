@@ -20,3 +20,7 @@ Voilà ce dont vous avez véritablement besoin, mes frères et sœurs, pour êtr
 Mes chers élèves de la Vérité, aspirez à l’excellence. Ne laissez pas la volonté de votre esprit interférer avec celle de votre âme. Nous nous élèverons et progresserons toujours plus haut dans les royaumes de la paix, de la lumière et de l’amour.
 
 Que Dieu vous bénisse, mes amis. Votre maître, Augustin, est là, ainsi que beaucoup d’autres pour vous aider à vous élever, à enseigner et à aimer. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse tous. Augustin vous aime.
+
+### [**Lien vers les messages des années 2026**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
