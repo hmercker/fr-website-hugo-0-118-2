@@ -1,7 +1,7 @@
 ---
 title: "Dieu vous utilise au sein de ces cercles"
 menu_title: ""
-description: "Dieu vous utilise au sein de ces cercles""
+description: "Dieu vous utilise au sein de ces cercles"
 date: 2026-11-23 06:00:01+00:01
 draft: False
 hidden: True
